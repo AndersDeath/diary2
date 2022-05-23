@@ -1,1 +1,216 @@
-# diary
+# 03 April 2022
+
+Hello everybody! My name is Vladimir Bolshakov and this is my first note in the git diary. I've decided to start these notes in order to improve my English skills and avoid my native russian language usage. Maybe some of these words and sentencies will become as articles on Medium platform or somewhere else. During writing the first version of each text I will not use spelling systems for a grammar checking. 
+
+More than for one month, Russian have been at war with Ukraine. It's extrimely sad, but Russia is an evil. I cannot live with it. I do not want to a part of this evil. But I am. I was born in this damn country.
+
+# 04 April 2022
+
+Today I am depressed a lot. I hate this war. I cannot accept this. Putin should be fired. He should be prisoned. He should be sued. A dictator is a realt traitor of Russia.
+
+# 05 April 2022
+
+Today I've visited tax office. This is the first step of immigration preparation. I hope everything will be ok. Meditation works.
+
+# 06 April 2022
+
+I published note about SSJ-100. I've been waiting money from Drsmile. There are problems again there. I hate it and it's probably happened due to sactions. I really want immigrate asap. I also will talk with CEO today. It's good. After work I will go to the barber.
+
+# 07 Arlil 2022
+
+Today was a full day of meeting. Car battery is dead, and I didn't understand why, I've put the accumulator to my kitchen and plug it to charger. So, I hope I can use car today's evening.
+
+# 08 April 2022
+
+Today I've got just a day off. I didn't do anything. Me and Ksenia came to the coast for the Gulf of Finland. It was rare sunny day. 
+
+# 09 April 2022
+
+It's very interesting time. I am trying not to be insane. It's really hard to think about future. Today I've made my usual diary record. It was the second one made on ipad. Unfortunately I cannot connect a microphone to a phone due to problems with usb-c connector. But ipad works. By the way, I am writing it using web version of GitHub. Maybe in the future I will start writing notes with more details. I do not know. Now It's just an improvisation. Thanks.
+
+# 10 April 2022
+
+Since this day I use only english for publication. I also feel bad. tomorrow I write more
+
+# 12 April 2022
+
+Tomorrow I didn't have power for writing my ideas. Today Is the same. Only think that i can fix - I've visited MVD today in order to update my foreign passport. I've just got a ticket for tomorrrow. I will got there again. I also had a unseccussful call with one interesting company today. so, I am a bit depressive. I hate all that bullshit that is releated to my country. It is really hard to live in this atmosphere. but anyway I got money to my armenian account. It's really cool. But it is maybe first time when monet doesn't make me happy.
+
+# 13 April 2022
+
+Today I visited that athoryties and it was just waste of time. I am going to visit them tomorrow again, and Maybe I will achive something. I also have got an interesting offer from DrSmile. They just offered me stocks. It's very interesting. My mood is still not good. I am trying to fix it. I also had a couple of interviews with companies. The first one was quite interesting, but unfortunately they doesn't offer fully remote job. Other company was just waste of time. Very poor idea.
+
+# 14 April 2022
+
+I've already handed over fingerprints and retina. I hope my new passport will be ready soon. I also got email from Chis. He is SEO of DrSmile. They just offered me option. i will be aroud 40000 euros. Good sum, I think. In fact I have to sleep with it. 
+
+# 15 April 2022
+
+Today is saturday which is nice. I've got new Riffisen bank card, that is needable for sending money from Armenia to Russia. Unfortunately inbuilt insurance quite bad, I think I have to be without it. Anyway I need the bank account. Afternoon I met my protesist. He's made cast of teeth hopefully I wil be with new tooth next week. I also going to Rzhev in two weeks. I like this place very much. 
+
+# 16 April 2022
+
+I've recorded another one audio diary file today. I had a great trip on my car. It was good thing. The bad thing is that airbnb blocked me on site. I can see everything, but I cannot rent an apartment. It's sad, and I cannot fix it by myself. I've just texted to customer support, hopefully the will fix it. At the same time tommorow my vacation is going to start officially.
+
+# 17 April 2022
+
+I've done a lot of suff today. I almost finished with my english hometask which is great. I also closed my accounts in Tinkoff. I've looked for tires. i also staretd using todoist that is an amaizing service for todo lists. Now I am just tyried. Anyway Today I have not only good things, but also inconviniens ones. I cannot use Airbnb anymore because of my citizenship. I think they are nazists and even if their system was designed this way. I mean strong releation to citizenship. they could figure out something in order to help russians and belarussian who want to leave countries. But it is not so important for the Airbnb corporation. I know tha they can, because I am a programmer and I am vey good in this topic. anyway, god will be a jude for them.
+
+I really think a lot about Canada. I believe it will be a better place for immigration. I do not want to live in russia anymore. I dissapointed.
+
+# 18 April 2022
+
+Today I've finished several deals. I've got new Reiffeisen MIR card. I also had interesting interviews with 2 companies. One of them was Colibri company, other was InsideOut. It was nice. I also visited KT and made 3d picture of my jaws. 
+
+Ineco bank did not want to make a payment for 5,000 euros. I had to call them and explain that I was not using them as a transit bank and I was going to live in Armenia. 
+
+I'll probably get a new tooth tomorrow. Also, I counted my bills, after I convert the money into rubles, I will pay them.
+
+# 19 April 2022
+
+# 20 April 2022
+
+# 21 April 2022
+
+# 22 April 2022
+
+# 23 April 2022
+
+Today is my birthday 
+
+# 24 April 2022
+
+I've missed the last several days, because I do not know what I can say. I had a couple of interviews and other suff. I also going to write big article about my this week on the next week. I need to publish something to substack and medium. I also gpint to record my first artcile of substack as a podcast. Today I drive to Rzhev. I will be there in the evening. By the way I've celebrated my birthday very well. Me, Ksusha and Nastya had a great time in a restaraunt. I love them. It was very nice. 
+
+Well, I am in Rzhev. the road was very smooth. 6.30 hours and i am here. It's nice. Tommorow I have a lot of tasks. I think it will be plenty plenty of something to write here.
+
+I also going to start learning of Armenian alphabeth. It will be hard.
+
+# 25 April 2022
+
+I've done a lot of tasks today. I recorded another car podcast. I also prepeared a lot of stuff for 3 calls that i will have this week. I had a couple of calls with banks and to tax office. The last one is a terrible bullshit place. Tinkoff bank account has been closed. I also had a call to sberbank, cause it's impossible to undrstand where is my stocks. I think I will just sell them after founding. I really do not remember everything I've done. But this day was is very productive
+
+# 26 April 2022
+
+I just have told with Koppla. I think they are silly. But maybe the will break market.
+
+
+# 27 April 2022
+
+Today I had an interview with ClimatPartner. it was quite interesting code challange. I think i failed it. Anyway It was just a test, no more. I also recorded a small car podcast. So, this day was calm.
+
+# 28 April 2022
+
+InsideOut cto is very nice man. I had a very cool interview. I cannot expect success, but I have a hope. ClimatePartner and Koppla want me for the last interview turn. I don't think that they will be successful. Let's see. What else? I cleaned my ears. I've got presents from Yulia and Arseniy. Something like this.
+
+
+# 29 April 2022
+
+I've recorded my first car podcast in English. That was great. I could talk in Elglish for an hour. I event thought in this foreigh language. I also made a descicion to cancel worlking on book. I do not have time for it. I will come back to this topic in the future. But I still want to write texts. I will do this. Also, I do not want to write texts in russian anymore. I is just waste of time. I will continuw working on projects as well as on amazing list. I will add that tasks to my schedule toimmorow. Today's morning I had an interview for promotion of Engeneering manager Front end. That was nice. I do not think that I will get this role. But maybe. So, Tommow I am going to banya. Yeap. Me an Ksusha made a holiday for Arseniy. Sweets, cafee, palying table tennis. I hope he will remember this day.
+
+# 30 April 2022
+
+I've got presents from Ksusha's mom.! Now I have tea bar and that's great!
+
+# 01 May 2022
+
+Yesterday I had a great drive to banya on Lada Niva. This is piece of shit, but very authentic. Today I\ve came back to Saint-Petersburg. I've very tiered. Tommorow I will have a lot of deals. but it is good.
+
+# 02 May 2022
+
+So, Today I was in bad mood. I've done a lot of tasks, and I fixed it by alcohol. Cuba Libre
+
+# 03 May 2022
+
+I am not in good condition, I am extrimely nervous. I do not want to do anything. I consider it as a fight and because of it I do everything I should. Today I started learning blockchain stuff. I hope it will be successfull. I installed infinity wallet.
+
+# 04 May 2022
+
+For unpredictable and unknows reasons Spotify works on my laptop by browser. It's funking great. Also, today is the first working day after my vacation. I've started to dive into deals. I hope it will work. So, I also schedueled a short call with Chris tomorrow. It will be good tolking to him. Anothor stuff is that I'm goiung to tax office tomorrow. To Viborg. It will be long trip. The interview with WELL was unsuccessful. I can forget about it.
+
+# 05 May 2022
+
+Today, I was in Viborg tax office. It was quite long trip for 3.30 hour. Not so fast. I also recieved salary. That is great. I had interview with billie company and with very strange HR from UK. The last one was just fun. The rest of the day was filled with meetings and calls. Weird. 
+
+# 06 May 2022
+
+I had a very bad night. I didn't sleep. I am very anxious. It is very similar to a predepressive state. I also had a headacke. Pill helped me. Now I am much better.
+
+# 07 May 2022
+
+The day off. just a weekend. me and Ksenia were in Lundulovskaya roschcha. It's a small national park near spb. Everyone went outsuce the city. traffic jam is aweful People are very rude. Iam very tieded. But nature is excellent. tomorrow Im goingot LOG and driver medical board. and heat has been started in spb. there is very warm outside. nice. I am typing it without glasses. i almost do not see the text. it is funny.
+
+# 08 May 2022
+
+The doctor found a reason why I suffer from nose deseases. I am a victim of aspirin triada. It means that I am in dengerous place with my nose and breathe system. Ok, I also passes driver medicine board. It was absolutely easy and no I can just ask for new driver licence. That is very cool. I also had a very long drive on my car and recorded car's podcast. All these news are very cool. I've finished a lot of deals today. The book about multicultucal teams has been finished. It contents a very interesting and useful information.
+
+I also decided to figure out some excercises for my body. It might be yoga, or just simple physical activity. Anyway I am no so yang anymore.
+
+# 09 May 2022
+
+I had couples interviews this morning. Both of them are not so interesting. I also fixed one podcast version. I hope I will do the same with another one tomorrow. At the end of the day I rerecorded another podcast and recorded Lynch book chapter. I like it. I am a bit tiered of all this situation. Today is "Virtory day" but with strongly another sense.
+
+# 10 May 2022
+
+I've had an interview with Adblock producer. I do not know what will be with it. The english lesson was perfect. When I am in Armenia I should pass this IeLTS exam. To be honest I am a bit tiered of it. Exept these things I did nothing. I am not in the best condition today.
+
+Power has come to me. I've writter severral lines of code. I have to return to shell-for-study development.
+
+# 11 May 2022
+
+Ive done a lot of deals today. I am in good mood. I also had a great call with Strapi HR manager. Maybe she was just very polite, but it might be a match. Will see. So, tomorrow I have a lot of calls. I will try to be efficient tomorrow. Dud published the newest interview with Oleg Tinkov. He is a great. I think every businesmen in Russia should say their words about this damn war.
+
+Ksusha the best.
+
+# 12 May 2022
+
+Visited twilio webinar. it was fine. I've got something iteresting from it. I also pushed a lot of code and done some of videos from Coursera. I aso started reading of Dr. Ichak Adizes. By the way, I am in good for the last 2 days. It worries me. It's like I'm bipolar. However the most real reason is that I've got money and I've just finished get nervous. In a way, I just accepted the new reality and went into fight mode.
+
+# 13 May 2022 - Friday - Saint-Petersburg
+
+It is another hard day. I had a very short sreening interview with Armenian company and several calls in Drsmile. We discussed a lot of questions there. I decided to improove some stuff and fix some problems. I am drinking bear now. good. I also decied to add day name and place where i fix my thoughts about the day. Unfortunately I cannot add a lot of stuff here. i just do not have inspiration, but I have to save a least some thoughts.
+
+# 14 May 2022 - Saturday - Saint-Petersburg
+
+I went to the Gulf of Finland and spent great time there. The management course from Corursera is excellent. I also played the guitar and did notinh mainly. Great day I would day.
+
+
+# 15 May 2022 - Sunday - Saint-Petersburg
+
+Today I've recorded another pppodcast episode. I also done a lot of stuff. I create small abastract about engineering manager. The lectures about management were also cool. I decided trying to be more focused on omportant things. Mostly I spead on interesting but useless things. Generally these things just not in time. I will work on them later. I also thought a lot about creating of my own startup. i event do know how to start it, but I want to do this.
+
+# 16 May 2022 - Monday - Saint-Petersburg
+
+I did a lot of things today. Mostly I was working on ds questions and tasks. The doc will have me the day after tomorrow. it's good. Tomorrow I need to plan driving licence renewal. I think I will go to the ministry on Friday, maybe Thursday. I defently will be in Yerevan in two weeks. It's very interesting. Macdonalds has gone from Russia. The country is in decline.
+
+# 17 May 2022 - Tuesday - Saint-Petersburg
+
+I extrimely tiered. I will not be an engineer manager in Drsmile. I had a lot of hard meetings today. These were planing, groodming ones for emloyer and just first impression meetings with companies. I burned out today. I also scheduled a getting of the new dirver licence. I will go there on the next monday. All that I can is just speep.
+
+# 18 May 2022 - Wednesday - Saint-Petersburg
+
+Went to the doctor. Everything is fine. The good news came, the passport is ready. I will go tomorrow morning to get it. I am very tired today. But I feel much better now, thanks to such news. On Monday I will also go to renew my driver's license.
+
+
+# 19 May 2022 - Thursday - Saint-Petersburg
+
+I went to grandmother. She is ok. I took away some stuff for mother. I am going to meet her on weekend. I aslo had an interview with AdBlock plus team. It was quite interesting. I went to the barber. Ivan was sad. Clients have been leaving Russia. The main piece of news I got a new foreign passport which is great. I also bought tikets from Turckey to Yerevan. It looks like I will go there throug south of Turkey. I finished a lot of deal and very tiered. I even didn't have time for eating. Tomorrow I will have the first free morning on this week. It's good I will sleep a bit more than before. It's nice day. I will share more thoughts tomorrow.
+
+# 20 May 2022 - Friday - Saint-Petersburg
+
+I am very tired today. It's been a full day of meetings. By the way, Drsmile has bought PlusDental company. CEO are waiting for an approve by German govenment,. I also had a meeting with one German company. We discussed me. flight tickets were bought. We are going to Turkey firstly and then we are going to Armenia. It will be interesting. Mom has been waiting for me. i will to her on sunday. At the same time, I don't like this approach that I use in thing diary. I will reshape it, because I always forget something during the day and cannot remember it in the evening.
+
+# 21 May 2022 - Saturday - Saint-Petersburg
+
+I restructured artciels repo, because it is not only about articles anymore. Tomorrow I'm going to create separate repo for diary. This articles repo will be archived, but not deleted. All content except diary will merged with obsidian repo. I want to gather everything that might be published in one place. By the way i visited Primors today. It's nice city not so far from Viborg. Of course it's the gulf of Finland. I love that place. also I eat a burger wich is not so good. Tomorrow I am goint to meet my aunt and mom. I didn't see them for the very long time. I also think that it is the last note on this repo.
+UPDATE: I've changed my mind. It might be not a right design. Maybe I should merge articles and typescript repos. I should think about it. The situation is that I collect inforation in different repos, but all of these are about the same and not structured. It should be fixed. at the same time I should separate diary from the articles.
+
+# 22 May 2022 - Sunday - Saint-Petersburg
+
+I didn't have time to deal with diary today. I was extrimely busy. I've seen mother and aunt today. It was very nice. Church is still the same like 20 years ago. Musik the cat is beautiful. It's a very nice and friendly animal. I helped mother with shopping. I also recorded might be the last pppdocast from the car for the next several month. I should invent another format for that records. By the way I am very tiered. Ath the same time I've stopped writing code. I don not have time for it. It's very bad and sad. I want to be more involved into programming. I am not ready cut myself from coding yet.
+
+# 23 May 2022 - Monday - Saint-Petersburg
+
+I've got new driver licence. It's nice. I finished all documents preparation. I also have done with english texts. All that i need is sleep. I also thought a lot about opning a business in Yerevan. It might be outsource company. Why not? I think it's nice take. Tomorrow I will have time to fix all these deals that I planned. I just didn't have time. At the next weekend I will in Turkey. And I need to fix spelling here. I will be nice, I think.
+
+By the way. it's the last note here. i will copy full diary to other repo soon.
