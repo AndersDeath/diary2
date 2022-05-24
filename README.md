@@ -214,3 +214,5 @@ I didn't have time to deal with diary today. I was extrimely busy. I've seen mot
 I've got new driver licence. It's nice. I finished all documents preparation. I also have done with english texts. All that i need is sleep. I also thought a lot about opning a business in Yerevan. It might be outsource company. Why not? I think it's nice take. Tomorrow I will have time to fix all these deals that I planned. I just didn't have time. At the next weekend I will in Turkey. And I need to fix spelling here. I will be nice, I think.
 
 By the way. it's the last note here. i will copy full diary to other repo soon.
+
+# 24 May 2022 - Tuesday - Saint-Petersburg
