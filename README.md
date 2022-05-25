@@ -218,3 +218,7 @@ By the way. it's the last note here. i will copy full diary to other repo soon.
 # 24 May 2022 - Tuesday - Saint-Petersburg
 
 Today I had probably the last english lesson in this season. I will go to Turkey in 2 days and I will not have power for this activity. I need a shot break. I also groomed all my repositories. It's nice. This note is in the new repo. I want to figure out how to improve the diary process. The interview with se;fapy was interesting and I am shure not successful. Yes.
+
+# 25 May 2022 - Wednesday - Saint-Peterburg
+
+Honestly, I feel like I am a slave in DrSmile. I cannot change job quick. I do not have visa and other documents. It's frustrating.
