@@ -230,4 +230,4 @@ I'm in the hotel at Domodedovo. Sapsan was good. But, I spent 2 hours in taxi. M
 
 # 27 May 2022 - Friday - Moscow/Antalia/Kash
 
-I've passed immigration control. So, I am here in Kash. It was a long flight, maybe about 5 hours. I woke up at 5 am. Take off was at 9 am. In Antalia we were at 15 pm and then about 3 hours by car. There are no supermarkets and cafes nearby. It's sad, but not critical. The car is Citroen, it's very cheap one. 
+I've passed immigration control. So, I am here in Kash. It was a long flight, maybe about 5 hours. I woke up at 5 am. Take off was at 9 am. In Antalia we were at 15 pm and then about 3 hours by car. There are no supermarkets and cafes nearby. It's sad, but not critical. The car is Citroen, it's very cheap one. So, i left Russian till the next August. 
