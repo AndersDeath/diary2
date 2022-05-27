@@ -228,6 +228,6 @@ Honestly, I feel like I am a slave in DrSmile. I cannot change job quick. I do n
 Yesterday I worked a lot on preparing for trip to Turkey and Armenia. I've made a list with things I need to get with me. It's very useful, I would say. In addition, there was not very good news. Strapi just cancelled the call. It was very rude because I spent time on preparations. Hovewer I had doubts about them. Stapi's handbook is just a piece of trash. Anyway I was disapoited and happy at the same time. I had a free evening and time for preparation for the trip. I am writing it in the morning. It's about 9.43am now. I will try to add some thoughts here in the end of the day. I wish good trip for myself.
 I'm in the hotel at Domodedovo. Sapsan was good. But, I spent 2 hours in taxi. Moscow has huge traffic. I do not like this city. Anyway Tomorrow i will be in Turkey.
 
-# 27 May 2022 - Friday - Moscow
+# 27 May 2022 - Friday - Moscow/Antalia/Kash
 
-I've passed immigration control.
+I've passed immigration control. So, I am here in Kash. It was a long flight, maybe about 5 hours. I woke up at 5 am. Take off was at 9 am. In Antalia we were at 15 pm and then about 3 hours by car. There are no supermarkets and cafes nearby. It's sad, but not critical. The car is Citroen, it's very cheap one. 
