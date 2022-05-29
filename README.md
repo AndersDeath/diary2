@@ -238,3 +238,5 @@ i am vert very tiered. I will sleep very good tonight.
 
 * 9:49 - Hotel's breakfast was nice. I am looking for a beach now. 
 * 20:08 - We are at home. The day was long and we visited several places. Kaputash plaji was the first place. Then we went to Fethye in order to look at our old house and buy some goods in MMM Migros. Starbuks was also good. We also went swimming and got burned as usual.
+
+# 29 May 2022 - Sunday - Kaş
