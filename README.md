@@ -240,3 +240,5 @@ i am vert very tiered. I will sleep very good tonight.
 * 20:08 - We are at home. The day was long and we visited several places. Kaputash plaji was the first place. Then we went to Fethye in order to look at our old house and buy some goods in MMM Migros. Starbuks was also good. We also went swimming and got burned as usual.
 
 # 29 May 2022 - Sunday - Kaş
+
+* 19:44 - I've just got a good day. I am very calm and relaxed. We went to Demre city. There is an interesting beach. We didn't swim today due to burned skin. Yesterday the sun was merciless. Now I am sitting on the balcony and writing this lines. In the city center are many of restaraunts. I think we will go there for dinner shortly.
