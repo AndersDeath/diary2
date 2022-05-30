@@ -242,3 +242,7 @@ i am vert very tiered. I will sleep very good tonight.
 # 29 May 2022 - Sunday - Kaş
 
 * 19:44 - I've just got a good day. I am very calm and relaxed. We went to Demre city. There is an interesting beach. We didn't swim today due to burned skin. Yesterday the sun was merciless. Now I am sitting on the balcony and writing this lines. In the city center are many of restaraunts. I think we will go there for dinner shortly.
+
+# 30 May 2022 - Monday - Kaş
+
+* 18:41 - Well, Today I had a lot of calls with everybody I would say. I also swimmed on lunch it was nice, despite on loud music on the beach. I also think a lot of moving from Angilar to Reactjs. I want to recreate my current project Shell for Study and prepare it in other way. I know that I've done a lot of ui tasks of it, but Angulat has no future. I nead to move to reactjs. I think it is not the first my attemt to do it, but If I want to be better I need to do it. I also started prepareations to tomorrow's meeting with Selfapy. It will be interesting because It will be the first a presentation in English for me. Nice. 
