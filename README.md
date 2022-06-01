@@ -250,3 +250,9 @@ i am vert very tiered. I will sleep very good tonight.
 # 31 May 2022 - Monday - Kaş/Patara
 
 Today's evening I've spent on Patara beach. It's super beautiful place. The incredible sunset has just broken my mind. It's amazing. We also find nice place which is called Butka. It's a small restaraunt with cheap and food food. I higly reccoment it for everyone. I also had a super nice call with Selfapy. It's german company that proviced mental help to people. I really will be happy to work with them. At the same time. Today is the last spring day. Summer is very close to us.
+
+Nastya brought documents to my grandmother and sent letter to the tax office. Big thanks to her.
+
+The very bad meeting was on DrSmile. Thay want to introduce chaika-management. I do not like it at all. I should spend more time on interview preparations.
+
+# 01 June 2022 - Tuesday - Kaş
