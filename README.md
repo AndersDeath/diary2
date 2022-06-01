@@ -256,3 +256,5 @@ Nastya brought documents to my grandmother and sent letter to the tax office. Bi
 The very bad meeting was on DrSmile. Thay want to introduce chaika-management. I do not like it at all. I should spend more time on interview preparations.
 
 # 01 June 2022 - Tuesday - Kaş
+
+I had a very poor interview with Temedica. It's just waste of time. Today is the last day in Turkey in this trip. Today's night I am flying to Yerevan. It will be very hard to handle this night.
