@@ -246,3 +246,7 @@ i am vert very tiered. I will sleep very good tonight.
 # 30 May 2022 - Monday - Kaş
 
 * 18:41 - Well, Today I had a lot of calls with everybody I would say. I also swimmed on lunch it was nice, despite on loud music on the beach. I also think a lot of moving from Angilar to Reactjs. I want to recreate my current project Shell for Study and prepare it in other way. I know that I've done a lot of ui tasks of it, but Angulat has no future. I nead to move to reactjs. I think it is not the first my attemt to do it, but If I want to be better I need to do it. I also started prepareations to tomorrow's meeting with Selfapy. It will be interesting because It will be the first a presentation in English for me. Nice. 
+
+# 31 May 2022 - Monday - Kaş/Patara
+
+Today's evening I've spent on Patara beach. It's super beautiful place. The incredible sunset has just broken my mind. It's amazing. We also find nice place which is called Butka. It's a small restaraunt with cheap and food food. I higly reccoment it for everyone. I also had a super nice call with Selfapy. It's german company that proviced mental help to people. I really will be happy to work with them. At the same time. Today is the last spring day. Summer is very close to us.
