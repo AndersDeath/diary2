@@ -257,4 +257,9 @@ The very bad meeting was on DrSmile. Thay want to introduce chaika-management. I
 
 # 01 June 2022 - Tuesday - Kaş
 
-I had a very poor interview with Temedica. It's just waste of time. Today is the last day in Turkey in this trip. Today's night I am flying to Yerevan. It will be very hard to handle this night.
+I had a very poor interview with Temedica. It's just waste of time. Today is the last day in Turkey in this trip. Today's night I am flying to Yerevan. It will be very hard to handle this night. 
+
+I am sitting in the Terminal 1 of Antalya airport. Initially I've gone to Terminal 2 and it was a mistake. A taxi driver drove us just fo 2 eur. For unpredictable reasons ineco bank card has not worked in Airport's starbucks. I've had to pay by cash in eur.
+
+# 02 June 2022 - Tuesday - Antalya/Yerevan
+
