@@ -263,3 +263,4 @@ I am sitting in the Terminal 1 of Antalya airport. Initially I've gone to Termin
 
 # 02 June 2022 - Tuesday - Antalya/Yerevan
 
+I went to Yerevan. flight was very calm in spite of turbulence. We rent a hotel for 2 hours sleeping and then moved to the apartment. IT's nice. new building in appropriate place makes me happy. I also went for a walk to the city center. It's about 15 minutes from home. Well, I will be there more than for 2 months. 
