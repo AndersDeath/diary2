@@ -266,3 +266,5 @@ I am sitting in the Terminal 1 of Antalya airport. Initially I've gone to Termin
 I went to Yerevan. flight was very calm in spite of turbulence. We rent a hotel for 2 hours sleeping and then moved to the apartment. IT's nice. new building in appropriate place makes me happy. I also went for a walk to the city center. It's about 15 minutes from home. Well, I will be there more than for 2 months. 
 
 Also Yesterday I started making presentation that I want to use on the interviews with companies. It will be very cool and useful. I already firure out how I will do this. There will be not only informanis about me and my career, but also couple of cases that I can shot to recruters and others.
+
+One more thing. I feel very comfortable in Yerevan. I think the new step of my life has been started.
