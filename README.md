@@ -268,3 +268,7 @@ I went to Yerevan. flight was very calm in spite of turbulence. We rent a hotel 
 Also Yesterday I started making presentation that I want to use on the interviews with companies. It will be very cool and useful. I already firure out how I will do this. There will be not only informanis about me and my career, but also couple of cases that I can shot to recruters and others.
 
 One more thing. I feel very comfortable in Yerevan. I think the new step of my life has been started.
+
+# 03 June 2022 - Tuesday - Yerevan
+
+I've slept well.
