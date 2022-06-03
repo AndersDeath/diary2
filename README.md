@@ -247,7 +247,7 @@ i am vert very tiered. I will sleep very good tonight.
 
 * 18:41 - Well, Today I had a lot of calls with everybody I would say. I also swimmed on lunch it was nice, despite on loud music on the beach. I also think a lot of moving from Angilar to Reactjs. I want to recreate my current project Shell for Study and prepare it in other way. I know that I've done a lot of ui tasks of it, but Angulat has no future. I nead to move to reactjs. I think it is not the first my attemt to do it, but If I want to be better I need to do it. I also started prepareations to tomorrow's meeting with Selfapy. It will be interesting because It will be the first a presentation in English for me. Nice. 
 
-# 31 May 2022 - Monday - Kaş/Patara
+# 31 May 2022 - Tuesday - Kaş/Patara
 
 Today's evening I've spent on Patara beach. It's super beautiful place. The incredible sunset has just broken my mind. It's amazing. We also find nice place which is called Butka. It's a small restaraunt with cheap and food food. I higly reccoment it for everyone. I also had a super nice call with Selfapy. It's german company that proviced mental help to people. I really will be happy to work with them. At the same time. Today is the last spring day. Summer is very close to us.
 
@@ -255,13 +255,13 @@ Nastya brought documents to my grandmother and sent letter to the tax office. Bi
 
 The very bad meeting was on DrSmile. Thay want to introduce chaika-management. I do not like it at all. I should spend more time on interview preparations.
 
-# 01 June 2022 - Tuesday - Kaş
+# 01 June 2022 - Wednesday - Kaş
 
 I had a very poor interview with Temedica. It's just waste of time. Today is the last day in Turkey in this trip. Today's night I am flying to Yerevan. It will be very hard to handle this night. 
 
 I am sitting in the Terminal 1 of Antalya airport. Initially I've gone to Terminal 2 and it was a mistake. A taxi driver drove us just fo 2 eur. For unpredictable reasons ineco bank card has not worked in Airport's starbucks. I've had to pay by cash in eur.
 
-# 02 June 2022 - Tuesday - Antalya/Yerevan
+# 02 June 2022 - Thursday - Antalya/Yerevan
 
 I went to Yerevan. flight was very calm in spite of turbulence. We rent a hotel for 2 hours sleeping and then moved to the apartment. IT's nice. new building in appropriate place makes me happy. I also went for a walk to the city center. It's about 15 minutes from home. Well, I will be there more than for 2 months. 
 
@@ -269,6 +269,6 @@ Also Yesterday I started making presentation that I want to use on the interview
 
 One more thing. I feel very comfortable in Yerevan. I think the new step of my life has been started.
 
-# 03 June 2022 - Tuesday - Yerevan
+# 03 June 2022 - Friday - Yerevan
 
-I've slept well.
+I've slept well. I finished a lot of deals and had a lot of conversations wth my collegs. Today the wine fenst has been started in Yerevan. Unfortunately I have restictions and cannot drink alcohol, but It still fun. Tomorrow will be weekend. I want to sleep a bit and walk. I also want to reduce my weight. Yerevan is nice place for it, becaouse there are a lot of hills and stairs. It is very good cardio. I've recieved several emails from potentional firms. One have to prepare one case, make two calls next week. So, I can resume that this Friday was good.
