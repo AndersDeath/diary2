@@ -272,3 +272,7 @@ One more thing. I feel very comfortable in Yerevan. I think the new step of my l
 # 03 June 2022 - Friday - Yerevan
 
 I've slept well. I finished a lot of deals and had a lot of conversations wth my collegs. Today the wine fenst has been started in Yerevan. Unfortunately I have restictions and cannot drink alcohol, but It still fun. Tomorrow will be weekend. I want to sleep a bit and walk. I also want to reduce my weight. Yerevan is nice place for it, becaouse there are a lot of hills and stairs. It is very good cardio. I've recieved several emails from potentional firms. One have to prepare one case, make two calls next week. So, I can resume that this Friday was good.
+
+# 04 June 2022 - Saturday - Yerevan
+
+I spent all day in deals. Me and Ksusha found a way how to send money to Russian and tested it. It works. It means that I can schedule the next english lesson next week. It's nice. We also bought a lot of things for home and for ourselves. At the same time we walked a lot and used taxi. The wheather in Yerevan is beautiful. Very hot air but gentle sun make good envioronment. Tomorrow We also want to make a lot. I like it, honestly.
