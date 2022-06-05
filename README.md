@@ -281,3 +281,7 @@ I spent all day in deals. Me and Ksusha found a way how to send money to Russian
 
 * 12:11 - I've finished most part of tasks for today. Nice.
 * 20:56 - we had a good day. It was full of activities. One of the restaraunts was excellent. I also decided to buy Iphone 13 pro. I think it will be tomorrow. we changed all nessesary money. Drams were changed to rubles. Tomorrow I will send them to russia, to my account. It is very important. I also had a call with Oleg. i don't like his mood. i think he is very close to depression. it's sad, honestly. very very sad.
+
+Justh thought
+
+Many people say that programmers and people of intellectual professions in general should be out of politics. I strongly disagree with this. Only people who develop their brains and thinking during their lives can lead society to a better state. If a person claims to be intellectual, he or she should ponder and take part in politics. Otherwise society will end up with what happened in Russia.
