@@ -276,3 +276,7 @@ I've slept well. I finished a lot of deals and had a lot of conversations wth my
 # 04 June 2022 - Saturday - Yerevan
 
 I spent all day in deals. Me and Ksusha found a way how to send money to Russian and tested it. It works. It means that I can schedule the next english lesson next week. It's nice. We also bought a lot of things for home and for ourselves. At the same time we walked a lot and used taxi. The wheather in Yerevan is beautiful. Very hot air but gentle sun make good envioronment. Tomorrow We also want to make a lot. I like it, honestly.
+
+# 05 June 2022 - Sunday - Yerevan\
+
+* 12:11 - I've finished most part of tasks for today. Nice.
