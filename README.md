@@ -277,7 +277,7 @@ I've slept well. I finished a lot of deals and had a lot of conversations wth my
 
 I spent all day in deals. Me and Ksusha found a way how to send money to Russian and tested it. It works. It means that I can schedule the next english lesson next week. It's nice. We also bought a lot of things for home and for ourselves. At the same time we walked a lot and used taxi. The wheather in Yerevan is beautiful. Very hot air but gentle sun make good envioronment. Tomorrow We also want to make a lot. I like it, honestly.
 
-# 05 June 2022 - Sunday - Yerevan\
+# 05 June 2022 - Sunday - Yerevan
 
 * 12:11 - I've finished most part of tasks for today. Nice.
 * 20:56 - we had a good day. It was full of activities. One of the restaraunts was excellent. I also decided to buy Iphone 13 pro. I think it will be tomorrow. we changed all nessesary money. Drams were changed to rubles. Tomorrow I will send them to russia, to my account. It is very important. I also had a call with Oleg. i don't like his mood. i think he is very close to depression. it's sad, honestly. very very sad.
@@ -285,3 +285,4 @@ I spent all day in deals. Me and Ksusha found a way how to send money to Russian
 Justh thought
 
 Many people say that programmers and people of intellectual professions in general should be out of politics. I strongly disagree with this. Only people who develop their brains and thinking during their lives can lead society to a better state. If a person claims to be intellectual, he or she should ponder and take part in politics. Otherwise society will end up with what happened in Russia.
+
