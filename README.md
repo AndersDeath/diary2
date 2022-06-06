@@ -286,3 +286,4 @@ Justh thought
 
 Many people say that programmers and people of intellectual professions in general should be out of politics. I strongly disagree with this. Only people who develop their brains and thinking during their lives can lead society to a better state. If a person claims to be intellectual, he or she should ponder and take part in politics. Otherwise society will end up with what happened in Russia.
 
+# 06 June 2022 - Monday - Yerevan
