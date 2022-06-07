@@ -292,4 +292,4 @@ I've bought new iphone 13 pro. I also spent time in bank in order to send money.
 
 # 07 June 2022 - Tuesday - Yerevan
 
-I've bought case and glass for ipohne. It's ready for video creation. Tomorrow I will try to do this. I also sent the final bunch of money to Russsia. I've got my it sertificate from accountant. 
+I've bought case and glass for ipohne. It's ready for video creation. Tomorrow I will try to do this. I also sent the final bunch of money to Russsia. I've got my it sertificate from accountant. Also We had a good walk in the evening. Yerevan is beautiful at night. By the way I had a conflict with taxist. He didn't want to drive me by card. Only cash. i've just sent a message to customer support. They resolved everything.
