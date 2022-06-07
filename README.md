@@ -291,3 +291,5 @@ Many people say that programmers and people of intellectual professions in gener
 I've bought new iphone 13 pro. I also spent time in bank in order to send money. It was sucessful. I can resurect my english lessons. Sperbank credit card has been closed. It's nice. 36-38 degree was in Yerevan. It's really hot. Honestly, the day was pretty short and I just tried to finish all my deals.
 
 # 07 June 2022 - Tuesday - Yerevan
+
+I've bought case and glass for ipohne. It's ready for video creation. Tomorrow I will try to do this. I also sent the final bunch of money to Russsia. I've got my it sertificate from accountant. 
