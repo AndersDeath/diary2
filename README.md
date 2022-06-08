@@ -298,4 +298,4 @@ I've bought case and glass for ipohne. It's ready for video creation. Tomorrow I
 
 Well I had a huge list of tasks for today. 26 of them in my todolist. I happy that I finished all of them. I continued working on temedica presentation, management degree and other important things. I finished a lot of features for DS. So, Now I am just sitting here and trying not to became mad. I am extrimely tired. I also tried jumper today. it's nice and very hard for me. also I selected clinics that I want to try for my nose problems. Maybe I will make that surgery in Yerevan. I also provided good feedback about Anatolii the QA. He is well. 
 
-I also want to resurect my project that I did before the war. I will create a plan and oly after that proceed programming.
+I also want to resurect my project that I did before the war. I will create a plan and oly after that proceed programming. Nevermind, I am wating for dinner now. After I will walk.
