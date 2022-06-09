@@ -294,8 +294,10 @@ I've bought new iphone 13 pro. I also spent time in bank in order to send money.
 
 I've bought case and glass for ipohne. It's ready for video creation. Tomorrow I will try to do this. I also sent the final bunch of money to Russsia. I've got my it sertificate from accountant. Also We had a good walk in the evening. Yerevan is beautiful at night. By the way I had a conflict with taxist. He didn't want to drive me by card. Only cash. i've just sent a message to customer support. They resolved everything.
 
-# 09 June 2022 - Wednesday - Yerevan
+# 08 June 2022 - Wednesday - Yerevan
 
 Well I had a huge list of tasks for today. 26 of them in my todolist. I happy that I finished all of them. I continued working on temedica presentation, management degree and other important things. I finished a lot of features for DS. So, Now I am just sitting here and trying not to became mad. I am extrimely tired. I also tried jumper today. it's nice and very hard for me. also I selected clinics that I want to try for my nose problems. Maybe I will make that surgery in Yerevan. I also provided good feedback about Anatolii the QA. He is well. 
 
 I also want to resurect my project that I did before the war. I will create a plan and oly after that proceed programming. Nevermind, I am wating for dinner now. After I will walk.
+
+# 09 June 2022 - Thursday - Yerevan
