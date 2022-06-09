@@ -301,3 +301,5 @@ Well I had a huge list of tasks for today. 26 of them in my todolist. I happy th
 I also want to resurect my project that I did before the war. I will create a plan and oly after that proceed programming. Nevermind, I am wating for dinner now. After I will walk.
 
 # 09 June 2022 - Thursday - Yerevan
+
+Today I finished a lot of tasks. It's nice. I've finisehd with presentation for Temedica wich is nice. Tomorrow I want to do the same with presentation about me. I also tried to record another episode of pppodcast. I've just gone out and record everything on my new iphone. the microphone is nice. i like it. in the city center I've seen political demonstration and took nice video of it. I will proceed do it. I mean recording videos. Now I can do this, because I have all kind of equipment for it. And now I am going sleep. I think I will sleep well.
