@@ -303,3 +303,9 @@ I also want to resurect my project that I did before the war. I will create a pl
 # 09 June 2022 - Thursday - Yerevan
 
 Today I finished a lot of tasks. It's nice. I've finisehd with presentation for Temedica wich is nice. Tomorrow I want to do the same with presentation about me. I also tried to record another episode of pppodcast. I've just gone out and record everything on my new iphone. the microphone is nice. i like it. in the city center I've seen political demonstration and took nice video of it. I will proceed do it. I mean recording videos. Now I can do this, because I have all kind of equipment for it. And now I am going sleep. I think I will sleep well.
+
+
+# 10 June 2022 - Friday - Yerevan
+
+Honestly, Today I don't feel good fo some reasons. I do not know why. Anyway I've made some things for my presentation, restored gypsyprog account and did some onther things. I do not want to do anything, maybe because of my condition.
+
