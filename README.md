@@ -307,5 +307,7 @@ Today I finished a lot of tasks. It's nice. I've finisehd with presentation for 
 
 # 10 June 2022 - Friday - Yerevan
 
-Honestly, Today I don't feel good fo some reasons. I do not know why. Anyway I've made some things for my presentation, restored gypsyprog account and did some onther things. I do not want to do anything, maybe because of my condition.
+Honestly, Today I don't feel good fo some reasons. I do not know why. Anyway I've made some things for my presentation, restored gypsyprog account and did some onther things. I do not want to do anything, maybe because of my condition. Hovewer we went for a walk. It was good.
+
+# 11 June 2022 - Saturday - Yerevan
 
