@@ -312,3 +312,6 @@ Honestly, Today I don't feel good fo some reasons. I do not know why. Anyway I'v
 # 11 June 2022 - Saturday - Yerevan
 
 We've been walking for whole day. Top Gun: Moview was nice. The restaraunt was nice as well. I've just rest and have not done anything. This suturday has been just a free day. I like it. Maybe we will go to Sevan lake tomorrow, but we have not decided yet.
+
+# 12 June 2022 - Sunday - Yerevan
+
