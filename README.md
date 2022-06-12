@@ -315,3 +315,4 @@ We've been walking for whole day. Top Gun: Moview was nice. The restaraunt was n
 
 # 12 June 2022 - Sunday - Yerevan
 
+I didn't go to Sevan today. Honestly It was not good mood. i've just gone to museum of modern art. Which is not so good and visited botanic garden, which is very good. I also a bit tiered of everything. I think you can see the waves of mood that I have. i might be mad. Sometimes I feel very bad. Exactly like in this moment. Also Yesterday The host wrote to me. I should spend 10 day somewhere in the end of this month. I tought that it sould be the next month, but not. this problem will happen in 2 weeks. It's bad because i do not have enough money and should be very careful. 
