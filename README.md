@@ -316,3 +316,7 @@ We've been walking for whole day. Top Gun: Moview was nice. The restaraunt was n
 # 12 June 2022 - Sunday - Yerevan
 
 I didn't go to Sevan today. Honestly It was not good mood. i've just gone to museum of modern art. Which is not so good and visited botanic garden, which is very good. I also a bit tiered of everything. I think you can see the waves of mood that I have. i might be mad. Sometimes I feel very bad. Exactly like in this moment. Also Yesterday The host wrote to me. I should spend 10 day somewhere in the end of this month. I tought that it sould be the next month, but not. this problem will happen in 2 weeks. It's bad because i do not have enough money and should be very careful. 
+
+# 13 June 2022 - Monday - Yerevan
+
+Today is a public holiday in Russia. Because of that I was free and spent time doing nothing. It's pretty nice, I would say. We walked around city center and did some deals. I like it. Today's mood is much better than yestaerdays. By the way, I souhld start prepareing for my firrst talking video for youtube. I want to write a script and tell something interesting about myself and other things. Sadly, I cannot share a lot of interesting inforation that I got from interviews that I had for the last several years. anyway I will have a chance to share this with others. Selfapy has writter to me today. They want to talk with someone of my ex-coleeges and to know something about me. Unfortuntely I need to do this. It's sad, I do not want to do it, but I have to.
