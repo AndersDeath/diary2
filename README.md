@@ -323,4 +323,6 @@ Today is a public holiday in Russia. Because of that I was free and spent time d
 
 # 13 June 2022 - Tuesday - Yerevan
 
-I've had a nice call with my english teacher. it's happened, we resurected our lessons. I also did a full list of my tasks for today. It's quite good and productive. I also want to make something for Medium and Substack, becaue I still want to share my thoughts with everyone. Yea. 
+I've had a nice call with my english teacher. it's happened, we resurected our lessons. I also did a full list of my tasks for today. It's quite good and productive. I also want to make something for Medium and Substack, becaue I still want to share my thoughts with everyone. Yea. I've also recalled that I had a call with company which is called AMBOSS or somthing like this.
+
+By the way we finished watchinh the first season of "Succession". I really like it. It's beautiful and very rude movie. Probably today we will start whatching the second season.
