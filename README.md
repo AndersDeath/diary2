@@ -320,3 +320,7 @@ I didn't go to Sevan today. Honestly It was not good mood. i've just gone to mus
 # 13 June 2022 - Monday - Yerevan
 
 Today is a public holiday in Russia. Because of that I was free and spent time doing nothing. It's pretty nice, I would say. We walked around city center and did some deals. I like it. Today's mood is much better than yestaerdays. By the way, I souhld start prepareing for my firrst talking video for youtube. I want to write a script and tell something interesting about myself and other things. Sadly, I cannot share a lot of interesting inforation that I got from interviews that I had for the last several years. anyway I will have a chance to share this with others. Selfapy has writter to me today. They want to talk with someone of my ex-coleeges and to know something about me. Unfortuntely I need to do this. It's sad, I do not want to do it, but I have to.
+
+# 13 June 2022 - Tuesday - Yerevan
+
+I've had a nice call with my english teacher. it's happened, we resurected our lessons. I also did a full list of my tasks for today. It's quite good and productive. I also want to make something for Medium and Substack, becaue I still want to share my thoughts with everyone. Yea. 
