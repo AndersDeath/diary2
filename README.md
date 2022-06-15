@@ -326,3 +326,7 @@ Today is a public holiday in Russia. Because of that I was free and spent time d
 I've had a nice call with my english teacher. it's happened, we resurected our lessons. I also did a full list of my tasks for today. It's quite good and productive. I also want to make something for Medium and Substack, becaue I still want to share my thoughts with everyone. Yea. I've also recalled that I had a call with company which is called AMBOSS or somthing like this.
 
 By the way we finished watchinh the first season of "Succession". I really like it. It's beautiful and very rude movie. Probably today we will start whatching the second season.
+
+# 14 June 2022 - Wednesday - Yerevan
+
+i hav a call with Selfapy today. It was a session with a team. I was like on stand-up. Very hard I believe. other day was very smooth and without any significant news. Oh, yea, I've scheduled an appointment to LOR doctor. The iphones camera are great. i think I am ready to record a video for telegram or other media. Why not? AMBOOS rejected me. Shame on them. tomorrow I should make sport and meditation, because I've just stopped to do this. It's rally shame. Thank you.
