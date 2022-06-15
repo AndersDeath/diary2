@@ -329,4 +329,4 @@ By the way we finished watchinh the first season of "Succession". I really like 
 
 # 14 June 2022 - Wednesday - Yerevan
 
-i hav a call with Selfapy today. It was a session with a team. I was like on stand-up. Very hard I believe. other day was very smooth and without any significant news. Oh, yea, I've scheduled an appointment to LOR doctor. The iphones camera are great. i think I am ready to record a video for telegram or other media. Why not? AMBOOS rejected me. Shame on them. tomorrow I should make sport and meditation, because I've just stopped to do this. It's rally shame. Thank you.
+i hav a call with Selfapy today. It was a session with a team. I was like on stand-up. Very hard I believe. other day was very smooth and without any significant news. Oh, yea, I've scheduled an appointment to LOR doctor. The iphones camera are great. i think I am ready to record a video for telegram or other media. Why not? AMBOOS rejected me. Shame on them. tomorrow I should make sport and meditation, because I've just stopped to do this. It's rally shame. And again, I again dived into depression mode. Thank you.
