@@ -333,4 +333,8 @@ i hav a call with Selfapy today. It was a session with a team. I was like on sta
 
 # 15 June 2022 - Thursday - Yerevan
 
-LOR was nice. The hospital was nice. it's very american. Tomorrow I will go to make new KT. I also did a lot of tasks. at the same time I see that my written english became worse. I need to iprove it and be more concentraited on spelling.
+I went to the hospital today and got a consultation from an ENT and a surgeon. tomorrow I need a new CT scan of my teeth. 
+
+I also did a huge amount of tasks. today i continued my research on the topic of microfrontends. and i also did a bunch of other stuff. Also went to the train station, wanted to buy tickets for lake sevan but had to go to another station. Will do that tomorrow, and want to record a little on the mic at the same time.
+
+
