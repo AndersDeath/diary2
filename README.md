@@ -337,4 +337,10 @@ I went to the hospital today and got a consultation from an ENT and a surgeon. t
 
 I also did a huge amount of tasks. today i continued my research on the topic of microfrontends. and i also did a bunch of other stuff. Also went to the train station, wanted to buy tickets for lake sevan but had to go to another station. Will do that tomorrow, and want to record a little on the mic at the same time.
 
+# 16 June 2022 - Friday - Yerevan
+
+They increased my salary to 35 eur per hour. It looks like that It doesn't make sence to looking for new job. It's interesting. It's first time in my life when I got this situation. It's also very significat because yesterday I sent Ivan Gammel contacts to one company that might be siutable for me. But now it looks like I can change my mind.
+
+Oh, I also make KT today and went to railroad station to Sevan. I wanted to buy a ticket but this place doesn't have casher or something like this. I've just waste my time. Anyway it was a good walk.
+
 
