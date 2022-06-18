@@ -345,3 +345,6 @@ Oh, I also make KT today and went to railroad station to Sevan. I wanted to buy 
 
 So, Luckily I finished with all tasks for today. It's nice. It's good job. I am very satisfied of this day.
 
+# 17 June 2022 - Saturday - Yerevan
+
+We are goint to Sevan lake. Defenetly it will be bus drive.
