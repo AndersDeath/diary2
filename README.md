@@ -350,3 +350,5 @@ So, Luckily I finished with all tasks for today. It's nice. It's good job. I am 
 We are goint to Sevan lake. Defenetly it will be bus drive.
 
 We didn't go to Sevan again. We found a very cheap Chinice restaraunt and ate a lot of food. Becouse of that I've became heavy and lazy. I also bought a learnin book for Armanian language, tomorrow I will try to study something. 
+
+Also I did nothing today. It's great. Tomorrom I will go local barber. It will be my first try to cut hair not in Ivans chair.
