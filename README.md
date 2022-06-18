@@ -348,3 +348,5 @@ So, Luckily I finished with all tasks for today. It's nice. It's good job. I am 
 # 17 June 2022 - Saturday - Yerevan
 
 We are goint to Sevan lake. Defenetly it will be bus drive.
+
+We didn't go to Sevan again. We found a very cheap Chinice restaraunt and ate a lot of food. Becouse of that I've became heavy and lazy. I also bought a learnin book for Armanian language, tomorrow I will try to study something. 
