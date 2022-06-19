@@ -352,3 +352,7 @@ We are goint to Sevan lake. Defenetly it will be bus drive.
 We didn't go to Sevan again. We found a very cheap Chinice restaraunt and ate a lot of food. Becouse of that I've became heavy and lazy. I also bought a learnin book for Armanian language, tomorrow I will try to study something. 
 
 Also I did nothing today. It's great. Tomorrom I will go local barber. It will be my first try to cut hair not in Ivans chair.
+
+# 19 June 2022 - Sunday - Yerevan
+
+So, I went to barber today. The guy was professional. I also starded making of the linkedin account for Ksusha. It goes well. I've made a plan and I think I will finish with it in a week. Only today I understood that my salary increased and I have freedom in my future desigiongs and maybe can proceed wiriting a book. I am happy, really. 
