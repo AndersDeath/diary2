@@ -356,3 +356,7 @@ Also I did nothing today. It's great. Tomorrom I will go local barber. It will b
 # 19 June 2022 - Sunday - Yerevan
 
 So, I went to barber today. The guy was professional. I also starded making of the linkedin account for Ksusha. It goes well. I've made a plan and I think I will finish with it in a week. Only today I understood that my salary increased and I have freedom in my future desigiongs and maybe can proceed wiriting a book. I am happy, really. 
+
+# 20 June 2022 - Monday - Yerevan
+
+I've gone to doctor. The surgical operation will be very cheap. I think I will make it here, in Armenia. At hte same time I've made a lot of tasks. I've texted to Jacov again and i also texted to Chris. 
