@@ -360,3 +360,7 @@ So, I went to barber today. The guy was professional. I also starded making of t
 # 20 June 2022 - Monday - Yerevan
 
 I've gone to doctor. The surgical operation will be very cheap. I think I will make it here, in Armenia. At hte same time I've made a lot of tasks. I've texted to Jacov again and i also texted to Chris. 
+
+# 21 June 2022 - Tuesday - Yerevan
+
+Iv'e rent a car for weekend ,and It will be fine. I didn't recieve an answer for Jacov, unfotunately. 
