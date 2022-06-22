@@ -364,3 +364,7 @@ I've gone to doctor. The surgical operation will be very cheap. I think I will m
 # 21 June 2022 - Tuesday - Yerevan
 
 Iv'e rent a car for weekend ,and It will be fine. I didn't recieve an answer for Jacov, unfotunately. 
+
+So, fonrtunately I got an answer from Yakov, It's ok. I also spend a lot of time on my tasks and finally fixed issue in SFS project. Tomorrow I will start doing many things in that project.
+
+
