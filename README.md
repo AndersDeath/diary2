@@ -367,4 +367,6 @@ Iv'e rent a car for weekend ,and It will be fine. I didn't recieve an answer for
 
 So, fonrtunately I got an answer from Yakov, It's ok. I also spend a lot of time on my tasks and finally fixed issue in SFS project. Tomorrow I will start doing many things in that project.
 
+# 22 June 2022 - Wednesday - Yerevan
 
+I started migration all data from FE side of SFS to Backend. I prepared a lot of things for that. i also recieved an invitation from Temedica. I will go to the interivew with them. It's really cool. So, I am still waiting an answer from Selfapy. I also had a short chat with Valery. He was a teamled in DS last year. He left company and went to startup. He told me that the start-up turned out to be a piece of shit. This day was a bit better than others. 
