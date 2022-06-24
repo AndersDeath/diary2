@@ -374,3 +374,5 @@ I started migration all data from FE side of SFS to Backend. I prepared a lot of
 # 23 June 2022 - Thursday - Yerevan
 
 I was pissed off today. I think somethings goes wrong with my nerves. I can lose temper just in the second. I consider it as bad thing. I will proceed meditation tomorrow. I need to think more about myself. Ksusha found a D7 Portugal visa, that can help us in immigration. i think she is not ready going to Amerika. Honestly Portugal one of the several Eropean countries that I like. Temedica called me. They want to postpone interview with me. It's not sad. It just doesn't bother me. Well, this night is the last one in this apartments. We need to move to another place tomorrow and go back here after one week. IO aslo tried to record pppodcast today. Honestly it's bullshit. I cannot just walking and recording my thoughts in public. I need to find another way how to note this reflections
+
+# 24 June 2022 - Friday - Yerevan
