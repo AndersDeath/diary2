@@ -381,4 +381,4 @@ We moved to another apartments. Also me and my ds team released big project on D
 
 # 25 June 2022 - Saturday - Yerevan
 
-We rented a car today. Suprisingly it was Honda Pilot, not Hunday. 
+We rented a car today. Suprisingly it was Honda Pilot, not Hunday. The policeman has sopped us and tried to get mony from me. I even went to ATM and got cash, but policeman disappiered. We aslo wen to the montain lake and to the on of the gighest montain of Armenia. 
