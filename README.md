@@ -378,3 +378,7 @@ I was pissed off today. I think somethings goes wrong with my nerves. I can lose
 # 24 June 2022 - Friday - Yerevan
 
 We moved to another apartments. Also me and my ds team released big project on DS. I did a lot today. The new place is not so interesting. Honestly i also tried to record short videos yesterday. These are not so good, but I tried. Really. By the way, in th hall of this house is construction works. Workers are changing a lift. The owner of this apartment is a programmer. Slavmed clinic, where a want to make operation is not so far from this place, but i will be in another place when the operation happens.
+
+# 25 June 2022 - Saturday - Yerevan
+
+We rented a car today. Suprisingly it was Honda Pilot, not Hunday. 
