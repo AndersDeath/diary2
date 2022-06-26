@@ -382,3 +382,8 @@ We moved to another apartments. Also me and my ds team released big project on D
 # 25 June 2022 - Saturday - Yerevan
 
 We rented a car today. Suprisingly it was Honda Pilot, not Hunday. The policeman has sopped us and tried to get mony from me. I even went to ATM and got cash, but policeman disappiered. We aslo wen to the montain lake and to the on of the gighest montain of Armenia. There is a very intersting effect. You drive up but car drive by itself. The reason of this is optical fake. We also visited lake Sevan. I've taken a lot of pictures. unfortunately I have to return car tomorrow's morning. Yes, it is. I cannot drive on this anymore. Car is cool. really. I aslo recorded another video and send it to review. Ksusha will look at this. Wow, I've recalled Ksusha colored strand of hair to white. It was a surpraise for me, but I am happy that she decided to change something. It's a very brave thing.
+
+# 26 June 2022 - Sunday - Yerevan
+
+It was a super strange day.
+
