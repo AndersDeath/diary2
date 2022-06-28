@@ -385,5 +385,15 @@ We rented a car today. Suprisingly it was Honda Pilot, not Hunday. The policeman
 
 # 26 June 2022 - Sunday - Yerevan
 
-It was a super strange day.
+It was a super strange day. I've just done nothing and that was good.
+
+# 27 June 2022 - Monday - Yerevan
+
+It was very typicall monday. a lot of tasks, including job. i also restored shell for study. That is very good. because i can improove this stuff very soon, which is nice.
+
+# 28 June 2022 - Tuesday - Yerevan
+
+i improveed a bit shell for study and did other things. 
+
+
 
