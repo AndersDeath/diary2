@@ -393,7 +393,8 @@ It was very typicall monday. a lot of tasks, including job. i also restored shel
 
 # 28 June 2022 - Tuesday - Yerevan
 
-i improveed a bit shell for study and did other things. 
+I improveed a bit shell for study and did other things. 
 
+# 29 June 2022 - Tuesday - Yerevan
 
-
+Today I've visited doctor. They got analysis and i've just started process of preparation to Surgery
