@@ -397,4 +397,4 @@ I improveed a bit shell for study and did other things.
 
 # 29 June 2022 - Tuesday - Yerevan
 
-Today I've visited doctor. They got analysis and i've just started process of preparation to Surgery
+Today I've visited doctor. They got analysis and i've just started process of preparation to Surgery. I also improoved a bit sfs project. Tomorrow i will work on this more. I also closen iis account and sent all money to main main account.
