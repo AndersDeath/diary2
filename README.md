@@ -401,4 +401,4 @@ Today I've visited doctor. They got analysis and i've just started process of pr
 
 # 30 June 2022 - Wednesday - Yerevan
 
-I had a very hard day. I talked to many people. We have a problem with Marat, he wants to leave team. I quite tiered from him.
+I had a very hard day. I talked to many people. We have a problem with Marat, he wants to leave team. I quite tiered from him. Nurse from Slavmed called me. Tomorrow I will go there in order to talk with Anastasiologist. I tried to record video again. I's failed.
