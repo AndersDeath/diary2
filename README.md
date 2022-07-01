@@ -395,10 +395,12 @@ It was very typicall monday. a lot of tasks, including job. i also restored shel
 
 I improveed a bit shell for study and did other things. 
 
-# 29 June 2022 - Tuesday - Yerevan
+# 29 June 2022 - Wednesday - Yerevan
 
 Today I've visited doctor. They got analysis and i've just started process of preparation to Surgery. I also improoved a bit sfs project. Tomorrow i will work on this more. I also closen iis account and sent all money to main main account. I also got an email from sselfapy, It's probably an offer. But at the same time I will have a call with temedica. I pepared a plan for the conversation with selfapy. i want to ask spetial conditions from them, because I want to prepare myself for imigration to Portugal. Additionally I do not know what i can expect from the Temedica. Let's see. But I also decided to be more quite and focus on english and some other language.
 
-# 30 June 2022 - Wednesday - Yerevan
+# 30 June 2022 - Thursday - Yerevan
 
 I had a very hard day. I talked to many people. We have a problem with Marat, he wants to leave team. I quite tiered from him. Nurse from Slavmed called me. Tomorrow I will go there in order to talk with Anastasiologist. I tried to record video again. It's failed. I proceed working on sfs. I and Ksusha are goint to movie tomorrow. It will be in Moscow cinema theater. Also I recorded pppodcast. Tomorow I will try to record live videos for my telegram channel. I will try to do it in the morning.
+
+# 01 July 2022 - Friday - Yerevan
