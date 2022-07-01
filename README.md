@@ -404,3 +404,5 @@ Today I've visited doctor. They got analysis and i've just started process of pr
 I had a very hard day. I talked to many people. We have a problem with Marat, he wants to leave team. I quite tiered from him. Nurse from Slavmed called me. Tomorrow I will go there in order to talk with Anastasiologist. I tried to record video again. It's failed. I proceed working on sfs. I and Ksusha are goint to movie tomorrow. It will be in Moscow cinema theater. Also I recorded pppodcast. Tomorow I will try to record live videos for my telegram channel. I will try to do it in the morning.
 
 # 01 July 2022 - Friday - Yerevan
+
+I've got a data of my surgery, It will be the next thursday. I am a bit scared of the situation.
