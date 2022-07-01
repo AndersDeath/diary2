@@ -405,4 +405,4 @@ I had a very hard day. I talked to many people. We have a problem with Marat, he
 
 # 01 July 2022 - Friday - Yerevan
 
-I've got a data of my surgery, It will be the next thursday. I am a bit scared of the situation. Situdayion with Marat is almost resolved. I do not want to be bothered of it anymore.
+I've got a data of my surgery, It will be the next thursday. I am a bit scared of the situation. Situdayion with Marat is almost resolved. I do not want to be bothered of it anymore. We went to Doctor Strange movie. It was very interesting. 
