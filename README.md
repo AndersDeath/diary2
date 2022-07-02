@@ -409,4 +409,4 @@ I've got a data of my surgery, It will be the next thursday. I am a bit scared o
 
 # 02 July 2022 - Saturday - Yerevan
 
-Good morning! WE went to the city center and visited the great museum which is dedicated to one soviet movie director. also we have a good lunch. This saturday is just about the rest.
+Good morning! WE went to the city center and visited the great museum which is dedicated to one soviet movie director. also we have a good lunch. This saturday is just about the rest. We drone to a part this evening. the place was terrible and boring, but not so far from the place was another part whis was nice. 
