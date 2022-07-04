@@ -417,4 +417,4 @@ I was in horrible condition this morning. Unluckly I have not rested this night 
 
 # 04 July 2022 - Monday - Yerevan
 
-We came back to our first apartments. Honestly its nice place. We even will go for a walk today, because it's more pleasurable that before. The place is just closer to the city center.
+We came back to our first apartments. Honestly its nice place. We even will go for a walk today, because it's more pleasurable that before. The place is just closer to the city center. I also finished a lot of english excersices today. it's nice.
