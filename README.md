@@ -414,3 +414,7 @@ Good morning! WE went to the city center and visited the great museum which is d
 # 03 July 2022 - Sunday - Yerevan
 
 I was in horrible condition this morning. Unluckly I have not rested this night properly. I this it happened because of 13 kilometers walking yesteday. However I started porper preparations to IELST. Since it's very important for me.
+
+# 04 July 2022 - Monday - Yerevan
+
+We came back to our first apartments. Honestly its nice place
