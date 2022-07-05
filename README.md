@@ -418,3 +418,8 @@ I was in horrible condition this morning. Unluckly I have not rested this night 
 # 04 July 2022 - Monday - Yerevan
 
 We came back to our first apartments. Honestly its nice place. We even will go for a walk today, because it's more pleasurable that before. The place is just closer to the city center. I also finished a lot of english excersices today. it's nice. I've done a lot of English hometasks. it wasn't so fun, but very useful. Now I am going to sleep. Before that I want to read something. At the same time I really want to be more contcentated man. Usually It doesnt work out for me.
+
+# 05 July 2022 - Tuesday - Yerevan
+
+Tosya is Constitution day in Armenia. Nobody works today, because of that I still didn't recieve money on my ccount. i hope, it will be tomorrow.
+
