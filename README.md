@@ -421,5 +421,5 @@ We came back to our first apartments. Honestly its nice place. We even will go f
 
 # 05 July 2022 - Tuesday - Yerevan
 
-Tosya is Constitution day in Armenia. Nobody works today, because of that I still didn't recieve money on my ccount. i hope, it will be tomorrow. In the day after tomorrow will be surgery. I rally scared of this. Also I refused offer from Selfapy side. Also I had a very hard english lesson today. It was really nervouse. But I handeled it. I feel bad. I want to Sait-Petesburg. i want to go home. I hate Putin and all that gang. They finished my russian life. it is hard. 
+Tosya is Constitution day in Armenia. Nobody works today, because of that I still didn't recieve money on my ccount. i hope, it will be tomorrow. In the day after tomorrow will be surgery. I rally scared of this. Also I refused offer from Selfapy side. Also I had a very hard english lesson today. It was really nervouse. But I handeled it. I feel bad. I want to Sait-Petesburg. i want to go home. I hate Putin and all that gang. They finished my russian life. it is hard. Also I want to pay for IELTS exam soon. I want to pass that exam in August. By the way, our wedding anniversary will be in the day of Ksushas exam. It's sad, but I will be not tough because it will be Saturday, and we can celebrate all that stuff in Sunday.
 
