@@ -421,5 +421,5 @@ We came back to our first apartments. Honestly its nice place. We even will go f
 
 # 05 July 2022 - Tuesday - Yerevan
 
-Tosya is Constitution day in Armenia. Nobody works today, because of that I still didn't recieve money on my ccount. i hope, it will be tomorrow.
+Tosya is Constitution day in Armenia. Nobody works today, because of that I still didn't recieve money on my ccount. i hope, it will be tomorrow. In the day after tomorrow will be surgery. I rally scared of this. Also I refused offer from Selfapy side.
 
