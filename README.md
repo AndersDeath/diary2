@@ -427,3 +427,7 @@ Tosya is Constitution day in Armenia. Nobody works today, because of that I stil
 
 Tomorrow I will go to surgery. i aslo made a lot of deals today. I cannot eat till tomorrow. Surgery also was moved to 8.45AM that is nice. I made another try in order to record video. It was a bullshit. I sould make another try. Maybe after surgery. I also started learning portugal. I do not want to be dead. I am afraid of anesthesia.
 
+# 07 July 2022 - Thursday - Yerevan
+
+I am in the hospital. I've been waiting for registration.
+
