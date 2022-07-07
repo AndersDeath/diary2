@@ -429,5 +429,5 @@ Tomorrow I will go to surgery. i aslo made a lot of deals today. I cannot eat ti
 
 # 07 July 2022 - Thursday - Yerevan
 
-I am in the hospital. I've been waiting for registration.
+I am in the hospital. I've been waiting for registration. Operation was successful. I feel normal. 
 
