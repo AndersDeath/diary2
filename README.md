@@ -432,3 +432,8 @@ Tomorrow I will go to surgery. i aslo made a lot of deals today. I cannot eat ti
 I am in the hospital. I've been waiting for registration. Operation was successful. I feel normal. Anastasia was very strong. 
 Also, I recorded a video for tg
 When I am writing I feel worse 
+
+
+# 08 July 2022 - Friday - Yerevan
+
+I feel bad. I feel really bad.
