@@ -436,4 +436,4 @@ When I am writing I feel worse
 
 # 08 July 2022 - Friday - Yerevan
 
-I feel bad. I feel really bad.
+I feel bad. I feel really bad. I slept a bit and got pills. I also ate yogurt. Now I feel better
