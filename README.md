@@ -438,3 +438,5 @@ When I am writing I feel worse
 I feel bad. I feel really bad. I slept a bit and got pills. I also ate yogurt. Now I feel better. Salpadeine is amaizing pill. I should not forget abouq th e guy who was in the hospital with me. IElts exam was scheduled by Ksusha. I will passs it in the august
 
 # 09 July 2022 - Saturday - Yerevan
+
+I really wanted to do cheatmeal today, butbecause of surgery i didn't. 
