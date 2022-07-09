@@ -433,7 +433,6 @@ I am in the hospital. I've been waiting for registration. Operation was successf
 Also, I recorded a video for tg
 When I am writing I feel worse 
 
-
 # 08 July 2022 - Friday - Yerevan
 
 I feel bad. I feel really bad. I slept a bit and got pills. I also ate yogurt. Now I feel better. Salpadeine is amaizing pill. I should not forget abouq th e guy who was in the hospital with me. IElts exam was scheduled by Ksusha. I will passs it in the august
