@@ -440,3 +440,8 @@ I feel bad. I feel really bad. I slept a bit and got pills. I also ate yogurt. N
 # 09 July 2022 - Saturday - Yerevan
 
 I really wanted to do cheatmeal today, but because of surgery i didn't. I also was in the hospital. The price of surgery is swimming. i hate it. Anyway I will give them the rest of the money in the next week. Anyway I feel better today. I went for a short walk. Disgusting thing is that I cannot take a bath for a week. And I also cannot clean my head. It's taugh. 
+
+# 10 July 2022 - Sunday - Yerevan
+
+This day is much better. I feel good.
+
