@@ -443,5 +443,4 @@ I really wanted to do cheatmeal today, but because of surgery i didn't. I also w
 
 # 10 July 2022 - Sunday - Yerevan
 
-This day is much better. I feel good.
-
+This day is much better. I feel good. I even could buy a cold drink and enjoyed it.
