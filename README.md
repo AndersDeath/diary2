@@ -446,3 +446,5 @@ I really wanted to do cheatmeal today, but because of surgery i didn't. I also w
 This day is much better. I feel good. I even could buy a cold drink and enjoyed it. By the way, I think that already mentioned iy before, I scheduled an IELST exam. I will pass in the first week of the August. I hope I will do it well. I will try to prepare myself properly. Moreover I will remake my schedule tomorrow In order to spend more time on preparations.
 
 # 11 July 2022 - Monday - Yerevan
+
+I've send money to Russian, visited a doctor, made a plan for future talk with surgeon.
