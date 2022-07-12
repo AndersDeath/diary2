@@ -450,3 +450,5 @@ This day is much better. I feel good. I even could buy a cold drink and enjoyed 
 I've send money to Russian, visited a doctor, made a plan for future talk with surgeon. Today is extrimely hot day in Yerevan. It's around +37 degree. I also moved english lesson to Thursday.
 
 # 12 July 2022 - Tuesday - Yerevan
+
+I've gave money to the guy who should give them to Surgeon. i also recorded a voice audio in order to have evidences.
