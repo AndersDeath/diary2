@@ -452,3 +452,5 @@ I've send money to Russian, visited a doctor, made a plan for future talk with s
 # 12 July 2022 - Tuesday - Yerevan
 
 I've gave money to the guy who should give them to Surgeon. i also recorded a voice audio in order to have evidences. i've finished a lot of tasks today. it's great. i am really happy! So, I aslo made a part of english home tasks. I think i still should fix all this file and update it by spelling systenm. Now it's aweful. I think i acn call it as grooming session. I really miss my home. I cannot live in this move forever. it's just hard. Maybe someday i will have my home. But now I feel bad. i think it is some kind of fight that I should win. So, I should go to sleep. Tomorrow will be interesting,
+
+# 13 July 2022 - Friday - Yerevan
