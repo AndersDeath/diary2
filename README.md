@@ -455,4 +455,4 @@ I've gave money to the guy who should give them to Surgeon. i also recorded a vo
 
 # 13 July 2022 - Friday - Yerevan
 
-Today I visited a doctor. The recovery process is perfect.
+Today I visited a doctor. The recovery process is perfect. Tomorrow I will have a english class which is nice. I walked a lot today. It's the first day after surgey when I move so much.
