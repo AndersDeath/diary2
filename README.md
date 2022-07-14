@@ -459,4 +459,4 @@ Today I visited a doctor. The recovery process is perfect. Tomorrow I will have 
 
 # 14 July 2022 - Thursday - Yerevan
 
-I had a very hard english lesson. I groomed a bit MyMrain.
+I had a very hard english lesson. I groomed a bit MyMrain. I've started learning Portugese language. it's quite interesting, but not so understandable. However my main focus is still English. I will have exams in the first days of August.
