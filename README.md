@@ -458,3 +458,5 @@ I've gave money to the guy who should give them to Surgeon. i also recorded a vo
 Today I visited a doctor. The recovery process is perfect. Tomorrow I will have a english class which is nice. I walked a lot today. It's the first day after surgey when I move so much. But unfortunately nothing happend on othr side, beside our russian programmers with russian Legal entity cannot get money anymore. it's look like things changed. See you tomorrow. I hope I will make more and more now.
 
 # 14 July 2022 - Thursday - Yerevan
+
+I had a very hard english lesson. I groomed a bit MyMrain.
