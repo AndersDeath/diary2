@@ -463,4 +463,4 @@ I had a very hard english lesson. I groomed a bit MyMrain. I've started learning
 
 # 15 July 2022 - Friday - Yerevan
 
-The doctor cut off stratches from my mouth. It is amazing. I also presented something in DR SMILE in front of auditory, that was a bit scary, but it is my first such expierence. I sturving and will be happy to eat something. I am tiered of this week.
+The doctor cut off stratches from my mouth. It is amazing. I also presented something in DR SMILE in front of auditory, that was a bit scary, but it is my first such expierence. I sturving and will be happy to eat something. I am tiered of this week. From tomorrow I want to focus more on my deals, because i should not visit the doctor every day. The recovery process is amaizing.
