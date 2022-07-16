@@ -467,5 +467,5 @@ The doctor cut off stratches from my mouth. It is amazing. I also presented some
 
 # 16 July 2022 - Saturday - Yerevan
 
-Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for pedestrians which is quite cool. Yerevan has children's railway. It is the place with lomotions and rails that are smaller than real. The price is 400 dram. I'm goinf to ride it next time, unfortunately i didn't have cash this time. The new Thor movie is not interesting. It is bad work, I would say, but anyway i got pleasue and whatched in 3D version.
+Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for pedestrians which is quite cool. Yerevan has children's railway. It is the place with lomotions and rails that are smaller than real. The price is 400 dram. I'm goinf to ride it next time, unfortunately i didn't have cash this time. The new Thor movie is not interesting. It is bad work, I would say, but anyway i got pleasue and whatched in 3D version. Tomorrow I want tp finish smoe deals that i started before surgery. I think the script for english video will be ready soon. And I awant to finish a presentation about me.
 
