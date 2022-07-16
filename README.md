@@ -464,3 +464,8 @@ I had a very hard english lesson. I groomed a bit MyMrain. I've started learning
 # 15 July 2022 - Friday - Yerevan
 
 The doctor cut off stratches from my mouth. It is amazing. I also presented something in DR SMILE in front of auditory, that was a bit scary, but it is my first such expierence. I sturving and will be happy to eat something. I am tiered of this week. From tomorrow I want to focus more on my deals, because i should not visit the doctor every day. The recovery process is amaizing. By the way I recorded a nice video yestarday. It was about the stairs that I walk on every day. The feedback was that I recorded not a good place but some kind of getto. It's not true. Today I will fix it.
+
+# 16 July 2022 - Saturday - Yerevan
+
+Today Was a cheat meal day. I've got middle-taste pancaces.
+
