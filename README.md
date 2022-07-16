@@ -467,5 +467,5 @@ The doctor cut off stratches from my mouth. It is amazing. I also presented some
 
 # 16 July 2022 - Saturday - Yerevan
 
-Today Was a cheat meal day. I've got middle-taste pancaces.
+Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for pedestrians which is quite cool. 
 
