@@ -471,6 +471,6 @@ Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for
 
 # 17 July 2022 - Sunday - Yerevan
 
-+41
++41. I finished all my deal list before afternoon. I am happy =) As I thought before I've started doing things. 
 
 
