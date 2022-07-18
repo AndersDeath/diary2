@@ -471,6 +471,6 @@ Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for
 
 # 17 July 2022 - Sunday - Yerevan
 
-+41. I finished all my deal list before afternoon. I am happy =) As I thought before I've started doing things. 
++41. I finished all my deal list before afternoon. I am happy =) As I thought before I've started doing things. The day was pretty hot as I already metioned. I was on child reailway again. I wanted to drive on it, but unfortunately I missed the train. anyway I walked around and foun men beach, with only men there. It was wierd. Also I've got tasty chicken soup in Sorriso. It's ice-cream cafe.
 
 
