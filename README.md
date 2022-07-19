@@ -475,7 +475,7 @@ Today Was a cheat meal day. I've got middle-taste pancaces. I found a tunnel for
 
 # 18 July 2022 - Monday - Yerevan
 
-nothing happened exept i've published the first talking videio on youtube. Today I am gonna to start learning my speach in English. I think it will be good exercise. 
+nothing happened exept i've published the first talking videio on youtube. Today I am gonna to start learning my speach in English. I think it will be good exercise. I recorded small pppodcast. Accountant sent me the bill and I payed it.
 
 # 19 July 2022 - Tuesday - Yerevan
 
