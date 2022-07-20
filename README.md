@@ -479,3 +479,8 @@ nothing happened exept i've published the first talking videio on youtube. Today
 
 # 19 July 2022 - Tuesday - Yerevan
 
+I've spent all day on tasks. Nothing significant happened. I've just worked and the rest. Thats it.
+
+# 20 July 2022 - Wednesday - Yerevan
+
+
