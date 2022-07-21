@@ -487,6 +487,6 @@ I've eventually prepared everyhing for deployment SFS to OVH. It doesn't work ye
 
 # 21 July 2022 - Thursday - Yerevan
 
-The day is good. i've rebooted the OVH servier. Now it is working correctly. i also started working of whitesova.com. Api and client work well. I've fixed several isssues on that side. Also I've fugured out new topic for the future youtube talking video and event made a test recording. Unfortutally it was unsuccessful. Anyway I am gount to make a new efford tomorrow. At the same time just after the recording I've recocred pppodcast, which is nice.
+The day is good. i've rebooted the OVH servier. Now it is working correctly. i also started working of whitesova.com. Api and client work well. I've fixed several isssues on that side. Also I've fugured out new topic for the future youtube talking video and event made a test recording. Unfortutally it was unsuccessful. Anyway I am gount to make a new efford tomorrow. At the same time just after the recording I've recocred pppodcast, which is nice. By the way I've just remembered, ksusha schedule an appointment for me to visa center. Maybe if she shedules the same for her, we will ask for Finnish visa, and mught be live there for a while. Surely It depends on situation.
 
 
