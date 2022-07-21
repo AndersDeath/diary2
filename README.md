@@ -483,4 +483,6 @@ I've spent all day on tasks. Nothing significant happened. I've just worked and 
 
 # 20 July 2022 - Wednesday - Yerevan
 
+I've eventually prepared everyhing for deployment SFS to OVH. It doesn't work yet, but I will solve this problem tomorrow. tHe rest of the day I was working on CS tickets of DRSmile. I am making huge investigation of everything there.
+
 
