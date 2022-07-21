@@ -485,4 +485,8 @@ I've spent all day on tasks. Nothing significant happened. I've just worked and 
 
 I've eventually prepared everyhing for deployment SFS to OVH. It doesn't work yet, but I will solve this problem tomorrow. tHe rest of the day I was working on CS tickets of DRSmile. I am making huge investigation of everything there.
 
+# 21 July 2022 - Thursday - Yerevan
+
+The day is good. i've rebooted the OVH servier. Now it is working correctly. i also started working of whitesova.com. Api and client work well. 
+
 
