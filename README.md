@@ -491,4 +491,4 @@ The day is good. i've rebooted the OVH servier. Now it is working correctly. i a
 
 # 22 July 2022 - Wednesday - Yerevan
 
-Today I've got my documents from the hospital.
+Today I've got my documents from the hospital. I also finished a lot of deals. I've update SFS again, changed icons, and renamed it as Whitesova.com. The rest of the day I was working on DRSMile tasks and thinking about future. Now I want to just finish everything and go to cafe and eat. MAybe I will add something after here, I do not know.
