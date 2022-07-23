@@ -495,5 +495,5 @@ Today I've got my documents from the hospital. I also finished a lot of deals. I
 
 # 23 July 2022 - Saturday - Yerevan
 
-I did nothing today. I've just had a rest and that's it. Syrovarnya turned out to be a great restaurant. The pizza was wonderful. I also had a great pistacho cheescake. I called Oleg. He is in Argentina now. His Peruan girlfried is also with him. It's nice, I think. He has a support now. She knows spanish and can solve a lot of problems. Today's morning I started doing Yoga. I've made a very simple exercises, but sweat covered my body.
+I did nothing today. I've just had a rest and that's it. Syrovarnya turned out to be a great restaurant. The pizza was wonderful. I also had a great pistacho cheescake. I called Oleg. He is in Argentina now. His Peruan girlfried is also with him. It's nice, I think. He has a support now. She knows spanish and can solve a lot of problems. Today's morning I started doing Yoga. I've made a very simple exercises, but sweat covered my body. I've just recalled, today I wear contact lences for the first time after surgery. It is pleasure to be able to see everything correctly.
 
