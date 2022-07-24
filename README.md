@@ -497,3 +497,6 @@ Today I've got my documents from the hospital. I also finished a lot of deals. I
 
 I did nothing today. I've just had a rest and that's it. Syrovarnya turned out to be a great restaurant. The pizza was wonderful. I also had a great pistacho cheescake. I called Oleg. He is in Argentina now. His Peruan girlfried is also with him. It's nice, I think. He has a support now. She knows spanish and can solve a lot of problems. Today's morning I started doing Yoga. I've made a very simple exercises, but sweat covered my body. I've just recalled, today I wear contact lences for the first time after surgery. It is pleasure to be able to see everything correctly. So, I am not starving. I walked a lot. This day is nice. Eerything went well. Oh, one thing. I took several photos of Yerevans funicular. It's abadoned and partially ruiner. Homeless people live there. Sad story honestly.
 
+# 24 July 2022 - Sunday - Yerevan
+
+today is a holiday in Yerevan when locals pour water on each other
