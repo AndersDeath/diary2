@@ -502,3 +502,5 @@ I did nothing today. I've just had a rest and that's it. Syrovarnya turned out t
 Today is a holiday in Yerevan when locals pour water on each other. I've spent good time walking in botanic garden. I also did nothing. I just update one thing is sfs project and that's it.
 
 # 25 July 2022 - Monday - Yerevan
+
+I've visited surgeon today. Everything is ok. I need to visit him before flight to Russia.
