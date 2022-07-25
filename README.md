@@ -500,3 +500,5 @@ I did nothing today. I've just had a rest and that's it. Syrovarnya turned out t
 # 24 July 2022 - Sunday - Yerevan
 
 Today is a holiday in Yerevan when locals pour water on each other. I've spent good time walking in botanic garden. I also did nothing. I just update one thing is sfs project and that's it.
+
+# 25 July 2022 - Monday - Yerevan
