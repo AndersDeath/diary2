@@ -503,4 +503,4 @@ Today is a holiday in Yerevan when locals pour water on each other. I've spent g
 
 # 25 July 2022 - Monday - Yerevan
 
-I've visited surgeon today. Everything is ok. I need to visit him before flight to Russia.
+I've visited surgeon today. Everything is ok. I need to visit him before flight to Russia. I also made some improovments for SFS project as usual. I've started implementation of avatar uploading. So, the rest of the day was quite easy. Not so cool, honestly. Today I again practiced yoga a bit. 
