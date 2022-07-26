@@ -507,3 +507,4 @@ I've visited surgeon today. Everything is ok. I need to visit him before flight 
 
 # 26 July 2022 - Tuesday - Yerevan
 
+I was working on nodemailer implementation. honestly it doesn't work now. I cannot understand why, but i will try to resolve this issue tomorrow. 
