@@ -504,3 +504,6 @@ Today is a holiday in Yerevan when locals pour water on each other. I've spent g
 # 25 July 2022 - Monday - Yerevan
 
 I've visited surgeon today. Everything is ok. I need to visit him before flight to Russia. I also made some improovments for SFS project as usual. I've started implementation of avatar uploading. So, the rest of the day was quite easy. Not so cool, honestly. Today I again practiced yoga a bit. I also tried to make some kind of video about D7 visa. I am just a piece of shit. it was absolutly bad. I didn't know how to fix my phsyco problems. I was afraid of Ksusha today. This fear I felt last time many years ago when I was a student. I need practice meditation more. I do not want to feel that shit again. I will record this fucking video tomorrow. it's the only chance. It's something like a challange. The last thing for today is that I should meet Alexander Tupavov today. I was working with him for Retec many years ago. He is going to finish some deals here in Yerevan this week. Unfortunatelt his flight was deleyed because it was flyone company. The worst piece of shit on the market. I've offered him meeting on Thursday. I hope he will have time for it. Also I started listening to All-in podcast. It's about economy. Honestly it's quite interesting show. Of couse it is in English. Now I am going to sleep.
+
+# 26 July 2022 - Tuesday - Yerevan
+
