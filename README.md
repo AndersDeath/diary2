@@ -507,4 +507,4 @@ I've visited surgeon today. Everything is ok. I need to visit him before flight 
 
 # 26 July 2022 - Tuesday - Yerevan
 
-I was working on nodemailer implementation. honestly it doesn't work now. I cannot understand why, but i will try to resolve this issue tomorrow. Atthe same time i am in the end of preparation to ielts. the next lesson will be the final. i anxious.
+I was working on nodemailer implementation. honestly it doesn't work now. I cannot understand why, but i will try to resolve this issue tomorrow. Atthe same time i am in the end of preparation to ielts. the next lesson will be the final. i anxious. also i finished many tasks today. its good. iam writing this text on ipad. keyboard is not convinient for me. nevertheless i am lazy and do not want to oped laptop.
