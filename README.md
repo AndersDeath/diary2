@@ -511,3 +511,9 @@ I was working on nodemailer implementation. honestly it doesn't work now. I cann
 
 # 27 July 2022 - Wednesday - Yerevan
 
+SendGrid is added as an email provider. 300 email per day is my maximum. I think it will be enough for the beggining. I finished with all that email stuff. I can start working on "magic" login links and email verifying engine. I aslo finished a lot of deals today. in the evening we went for a walk. it look lie we visited all kind of placeses that we could. It's true. 
+
+# 28 July 2022 - Thursday - Yerevan
+
+bolshakov@shitesova.com - is based on Zoho. Password is standard
+
