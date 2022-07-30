@@ -515,5 +515,5 @@ SendGrid is added as an email provider. 300 email per day is my maximum. I think
 
 # 28 July 2022 - Thursday - Yerevan
 
-bolshakov@shitesova.com - is based on Zoho. Password is standard
+bolshakov@shitesova.com - is based on Zoho. Password is standard. I've started implementation of email verification. Also I finished with fixing some issues. Also I've met Alexander Tupavov. This a man I worked with many years ago.
 
