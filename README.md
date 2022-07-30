@@ -523,4 +523,4 @@ I finished a lot of tasks and proceded working on email. verification. I've done
 
 # 30 July 2022 - Saturday - Yerevan
 
-I am bored of Yerevan honestly. the heat has been trying to kill. i think I visited all palces in the city center and neighborhood. i didn't write a code today. But I was in local zoo. It is sad place. Especcially I felt sorry for the elephant. He looked as mindless. I do noi like zoos because of this. Animals should be free. Also this day is very windy. Even very very very small rain was here. 
+I am bored of Yerevan honestly. the heat has been trying to kill. i think I visited all palces in the city center and neighborhood. i didn't write a code today. But I was in local zoo. It is sad place. Especcially I felt sorry for the elephant. He looked as mindless. I do noi like zoos because of this. Animals should be free. Also this day is very windy. Even very very very small rain was here. I visited the barber one more time. Now my haircut is perfect. By the way I am going to pass IELTS next week. after that I will be more free that now. I am happy.
