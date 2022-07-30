@@ -521,3 +521,6 @@ bolshakov@shitesova.com - is based on Zoho. Password is standard. I've started i
 
 I finished a lot of tasks and proceded working on email. verification. I've done with forms and endpoints. Next time I should finish withbackrnd implementation. Honestly I am exited of my SFS project. Now it looks better that before. I uploaded everything on server and I can start working on business process very soon. At the same timh the day was quite hard for me. I am very tieered and even miss yoga class. i decided to do it tommorow.
 
+# 30 July 2022 - Saturday - Yerevan
+
+I am bored of Yerevan honestly. the heat has been trying to kill. i think I visited all palces in the city center and neighborhood.
