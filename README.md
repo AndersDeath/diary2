@@ -527,4 +527,4 @@ I am bored of Yerevan honestly. the heat has been trying to kill. i think I visi
 
 # 31 July 2022 - Sunday - Yerevan
 
-this is day is good.
+this is day is good. WE went for a walk. I finish a lot of tasks. Honestly I'be been anxious about exams. I will do my best to pass this well.
