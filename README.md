@@ -527,4 +527,4 @@ I am bored of Yerevan honestly. the heat has been trying to kill. i think I visi
 
 # 31 July 2022 - Sunday - Yerevan
 
-this is day is good. WE went for a walk. I finish a lot of tasks. Honestly I'be been anxious about exams. I will do my best to pass this well. However I wantched a huge video series about American laws. I also did something for SFS. After the next fridy I can focuse more on the project, wich will be nice. The heat today is huge. I practically sit at home for whole day. But in the evening I went to Sorisso and ate chicket soup. This dish is delicious.
+this is day is good. WE went for a walk. I finish a lot of tasks. Honestly I'be been anxious about exams. I will do my best to pass this well. However I wantched a huge video series about American laws. I also did something for SFS. After the next fridy I can focuse more on the project, wich will be nice. The heat today is huge. I practically sit at home for whole day. But in the evening I went to Sorisso and ate chicket soup. This dish is delicious. I've fogot to add. In two weeks we will be in Rzhev. Yes we should come back to Russia for a while
