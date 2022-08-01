@@ -531,3 +531,4 @@ this is day is good. WE went for a walk. I finish a lot of tasks. Honestly I'be 
 
 # 01 August 2022 - Monday - Yerevan
 
+I've changed my passpord data in my PE sertificate. It's cool. I also finished a lot of english tasks. Exam is very close
