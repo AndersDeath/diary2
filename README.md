@@ -533,6 +533,10 @@ this is day is good. WE went for a walk. I finish a lot of tasks. Honestly I'be 
 
 I've changed my passpord data in my PE sertificate. It's cool. I also finished a lot of english tasks. Exam is very close. When I was in ministry I faced with a problem. I had to pay a duty which was possible only by cash. I didn't have it and had to run outside to the extrimely heat streed and looking fo ATM. Fortunately, I found one not so far from the building. I cannot hide, that is was annoing situation. Anywas I did the deal. MTS and Ineco didn't anser to my phone calls. I've scheduled an appointment in Ineco for tomorrow. I will try to deal with my problems there. If I have time I will go to the MTS building as well. When I finish with that reregistration, I can leave this countrly for a while. At the same time I've still been investigating Portugal topic.
 
-# 02 August 2022 - Monday - Yerevan
+# 02 August 2022 - Tuesday - Yerevan
 
 Today was the last lesson with Marina Marshall which is my English teacher. I am going to English Counsil for speaking test tomorrow. I did a lot of improvements for SFS project which is nince, I whoud say. I also finished a lot of things for DrSmile.
+
+# 03 August 2022 - Wednesday - Yerevan
+
+I hope I passed this part well. I've got not convinient topics for me, but I've tried to do my best. I also improved SFS project. Again. I have time for it and I can work on it now. It is perfect.
