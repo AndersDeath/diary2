@@ -535,4 +535,4 @@ I've changed my passpord data in my PE sertificate. It's cool. I also finished a
 
 # 02 August 2022 - Monday - Yerevan
 
-Today was the last lesson with Marina Marshall which is my English teacher. I am going to English Counsil for speaking test tomorrow.
+Today was the last lesson with Marina Marshall which is my English teacher. I am going to English Counsil for speaking test tomorrow. I did a lot of improvements for SFS project which is nince, I whoud say. I also finished a lot of things for DrSmile.
