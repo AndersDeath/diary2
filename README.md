@@ -540,3 +540,8 @@ Today was the last lesson with Marina Marshall which is my English teacher. I am
 # 03 August 2022 - Wednesday - Yerevan
 
 I hope I passed this part well. I've got not convinient topics for me, but I've tried to do my best. I also improved SFS project. Again. I have time for it and I can work on it now. It is perfect. As always I was extrimely tiered today. It was because of bad sleeping this night. Anyway Ifound stamina for improving features in SFS project, did some schemes for DrSmile etc. Also, I got salary today and started exchanging money for the future trip to Russia. I will be there in 2 weeks. The closes weekend I will be in Dilijan. It's a small town in Mountains. I am goint to rest a car which will be fun.
+
+# 04 August 2022 - Thursday - Yerevan
+
+
+
