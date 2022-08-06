@@ -551,4 +551,4 @@ I've taken the last part of IELTS. I hope I have not made many mistakes. The res
 
 # 06 August 2022 - Saturday - Yerevan
 
-We are going to Dilijan today.
+We are going to Dilijan today. I've also started reading of Startup book and procedded reading of besiscs of phylosophy.
