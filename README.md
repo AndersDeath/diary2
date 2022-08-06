@@ -546,3 +546,5 @@ I hope I passed this part well. I've got not convinient topics for me, but I've 
 I've set up verification emails for sfs. Also I've been preparing to IELST. Tomorrow I am going to the last part of it. I hope the result will be available next week. So, It's cool. The day after tomorrow we are goint to Dilizhan. It will be shot one night trip and it will be the last weekend in Yerevan I still do not know when I will go to this place again, but I am sure that I will do this. Additionally, I can switch my focus a bit after the exam.
 
 # 05 August 2022 - Friday - Yerevan
+
+I've taken the last part of IELTS. I hope I have not made many mistakes. The result will be on the next week.
