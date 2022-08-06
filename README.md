@@ -547,4 +547,4 @@ I've set up verification emails for sfs. Also I've been preparing to IELST. Tomo
 
 # 05 August 2022 - Friday - Yerevan
 
-I've taken the last part of IELTS. I hope I have not made many mistakes. The result will be on the next week.
+I've taken the last part of IELTS. I hope I have not made many mistakes. The result will be on the next week. At the same time I feel tired of Yerevan. 
