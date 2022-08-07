@@ -555,4 +555,4 @@ We are going to Dilijan today. I've also started reading of Startup book and pro
 
 # 07 August 2022 - Sunday - Yerevan
 
-I've came back to Yerevan. I've took many photos of Dilija.
+I've came back to Yerevan. I've took many photos of Dilija. I've rent Toyota Corolla by the way
