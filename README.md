@@ -554,3 +554,5 @@ I've taken the last part of IELTS. I hope I have not made many mistakes. The res
 We are going to Dilijan today. I've also started reading of Startup book and procedded reading of besiscs of phylosophy. Dilijan is nice. Tomorrow morning we will go back. The hotel is nice. Car is also good. Many thanks to Ksusha. This day was wonderful.
 
 # 07 August 2022 - Sunday - Yerevan
+
+I've came back to Yerevan. I've took many photos of Dilija.
