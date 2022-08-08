@@ -559,3 +559,4 @@ I've came back to Yerevan. I've took many photos of Dilija. I've rent Toyota Cor
 
 # 08 August 2022 - Monday - Yerevan
 
+I've finished with full list of my tasks. I am still in the process of my schedule changing.
