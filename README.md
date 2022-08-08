@@ -555,4 +555,4 @@ We are going to Dilijan today. I've also started reading of Startup book and pro
 
 # 07 August 2022 - Sunday - Yerevan
 
-I've came back to Yerevan. I've took many photos of Dilija. I've rent Toyota Corolla by the way
+I've came back to Yerevan. I've took many photos of Dilija. I've rent Toyota Corolla by the way. The rest of the day I was resting. also we wathced a Train Bullet movie in the Dolma Garden mall. Probaly it is the last hollywood movie that i watched in Russian translation. In one week I will be in Russia. As you know western movies are banned there. 
