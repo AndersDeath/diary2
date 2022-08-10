@@ -565,3 +565,6 @@ I've finished with full list of my tasks. I am still in the process of my schedu
 
 Today I got a result of my IELTS exam. Unfortunately it's 6. It is bad. i had to spend more time on preparation. Languages knowlage is my silly side. It's rally hard for me to learn it and spend a lot of time on it. I remember how my russian language teacher told us. Ready more, guys, if you read a lot you can absorb how to sepeal and how to write. Honestly it is bullshit. It doesn't work for me. Anyway, I finished a lot of thing regarding programming today. I've started another ui for SFS project. I decided to rewrite everything in react. I think it is the only way for me to learn this library properly. I pend the half of day in efforts to create proper validation for login form. it was not so easy, I would say. but I did it. Also I finished a lot of things for DS and others. as usual though.
 
+# 10 August 2022 - Wednesday - Yerevan
+
+I've got the original IELTS certificate. I've confirmed B2 level of English. It's very good. I also recorded pppodcst
