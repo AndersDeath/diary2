@@ -567,4 +567,7 @@ Today I got a result of my IELTS exam. Unfortunately it's 6. It is bad. i had to
 
 # 10 August 2022 - Wednesday - Yerevan
 
-I've got the original IELTS certificate. I've confirmed B2 level of English. It's very good. I also recorded pppodcst
+I've got the original IELTS certificate. I've confirmed B2 level of English. It's very good. I also recorded pppodcast. The day was quite, but i was extrimely anxious.
+
+# 11 August 2022 - Thursday - Yerevan
+
