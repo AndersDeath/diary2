@@ -574,3 +574,5 @@ I've got the original IELTS certificate. I've confirmed B2 level of English. It'
 I've spent all day on SFS Reactjs version project. I finished with some important things, that is amaizin. Also we went for a walk in the morning and visited good place Syrovarnya. This Thusday is the final one in Yerean. We will go back to Russia. I don't want to do this, but I have to. 
 
 # 12 August 2022 - Friday - Yerevan
+
+I slept bad honestly. I've just worked today. 
