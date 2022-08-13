@@ -577,6 +577,6 @@ I've spent all day on SFS Reactjs version project. I finished with some importan
 
 I slept bad honestly. I've just worked today. In the evening we went to Syrovarnya again. It was nice. 
 
-
+# 13 August 2022 - Saturday - Yerevan
 
 
