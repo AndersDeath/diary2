@@ -575,4 +575,8 @@ I've spent all day on SFS Reactjs version project. I finished with some importan
 
 # 12 August 2022 - Friday - Yerevan
 
-I slept bad honestly. I've just worked today. 
+I slept bad honestly. I've just worked today. In the evening we went to Syrovarnya again. It was nice. 
+
+
+
+
