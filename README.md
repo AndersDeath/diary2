@@ -580,3 +580,7 @@ I slept bad honestly. I've just worked today. In the evening we went to Syrovarn
 # 13 August 2022 - Saturday - Yerevan
 
 Today was our wedding anniversary. Exactly one year ago we formalized our relationship. Ksyusha also graduated with an A out of 9. That's very cool. We also went to a great restaurant and celebrated all of the above. Tomorrow we leave for Russia. that's it. In the evening we will be already in Rzhev.
+
+# 14 August 2022 - Sunday - Yerevan - Moscow - Saint-Petersburg
+
+
