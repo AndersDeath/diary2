@@ -583,4 +583,5 @@ Today was our wedding anniversary. Exactly one year ago we formalized our relati
 
 # 14 August 2022 - Sunday - Yerevan - Moscow - Saint-Petersburg
 
+Well, I got a shower. I packed all my things. I'm ready to departure.
 
