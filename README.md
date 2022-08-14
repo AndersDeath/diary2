@@ -583,5 +583,5 @@ Today was our wedding anniversary. Exactly one year ago we formalized our relati
 
 # 14 August 2022 - Sunday - Yerevan - Zhukovsky - Rzhev
 
-Well, I got a shower. I packed all my things. I'm ready to departure. We crossed the border well. Everything is ok. Zhukovscky airport sucks. It is very bad place. I do not want to be there again. Ksusha's mpther and her husband picked up  us in that place. We ate shashlik near the roard. 
+Well, I got a shower. I packed all my things. I'm ready to departure. We crossed the border well. Everything is ok. Zhukovscky airport sucks. It is very bad place. I do not want to be there again. Ksusha's mpther and her husband picked up  us in that place. We ate shashlik near the roard. WE a re in Rzhev now. I will provide more tomorrow.
 
