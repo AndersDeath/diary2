@@ -583,5 +583,5 @@ Today was our wedding anniversary. Exactly one year ago we formalized our relati
 
 # 14 August 2022 - Sunday - Yerevan - Zhukovsky - Rzhev
 
-Well, I got a shower. I packed all my things. I'm ready to departure.
+Well, I got a shower. I packed all my things. I'm ready to departure. We crossed the border well. Everything is ok. Zhukovscky airport sucks.
 
