@@ -587,6 +587,6 @@ Well, I got a shower. I packed all my things. I'm ready to departure. We crossed
 
 # 15 August 2022 - Monday - Rzhev
 
-Today was a quite busy day. We handeled some deals that are related to daily problems like orders, PCR tests. etc. Also we were in Arabika cafe. It's quite good place in the Rzhev's city center. I like that place. It's much better that others and at the same time there is a delitious americano. 
+Today was a quite busy day. We handeled some deals that are related to daily problems like orders, PCR tests. etc. Also we were in Arabika cafe. It's quite good place in the Rzhev's city center. I like that place. It's much better that others and at the same time there is a delitious americano. We also came to Ksushas gradmother. She is old woman with cancer which is horrible. She's been fighting with in for 3 or 4 years. She has leukemia.
 
 
