@@ -595,5 +595,5 @@ I was working for whole day. I walked a lot around. I also started reading books
 
 # 17 August 2022 - Wednesday - Rzhev
 
-
+I need to start write texts more thoughtfully. My spelling is worse. I want to change it. Anyway, I finished a lot of things today. As usual I am trying to be on track. Just after this diary session I want to reorganize my schedule. Today is Wednesday and I am going back to Saint-Petersburg this Saturday. I have a train from Tver.
 
