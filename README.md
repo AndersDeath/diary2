@@ -591,6 +591,9 @@ Today was a quite busy day. We handeled some deals that are related to daily pro
 
 # 16 August 2022 - Tuesday - Rzhev
 
-I was working for whole day. I walked a lot aroud. I also started reading books in Ukranian and listen to music in this language. I think it is a huge layer of the culture.
+I was working for whole day. I walked a lot around. I also started reading books in Ukranian and listen to music in this language. I think it is a huge layer of the culture. It was a quite usual day. I improved SFS reactjs version a bit. Also I was woring on DS tasks. I felt not well unfortunately. It seems some kind of acclimatization.
+
+# 17 August 2022 - Wednesday - Rzhev
+
 
 
