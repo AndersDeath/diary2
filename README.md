@@ -599,4 +599,4 @@ I need to start write texts more thoughtfully. My spelling is worse. I want to c
 
 # 18 August 2022 - Thursday - Rzhev
 
-We had a conversation my colleegs about German business visa. Probably it might be a good thing as an emergancy exit from Russia.
+We had a conversation my colleegs about German business visa. Probably it might be a good thing as an emergancy exit from Russia. Also I feel bad because of acclimatization or I just got sick for some reasons. TOday I fell a bit better, but anyway it is not good.
