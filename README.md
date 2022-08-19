@@ -600,3 +600,7 @@ I need to start write texts more thoughtfully. My spelling is worse. I want to c
 # 18 August 2022 - Thursday - Rzhev
 
 We had a conversation my colleegs about German business visa. Probably it might be a good thing as an emergancy exit from Russia. Also I feel bad because of acclimatization or I just got sick for some reasons. TOday I fell a bit better, but anyway it is not good. Ksusha is out for whole day. It's sad. Anyway despite on those facts, I finished a full list of my business. And I am going to cook =) I need to make some food for myself because I do not have money for visiting a cafe. 
+
+# 19 August 2022 - Friday - Rzhev
+
+Actually this day is also good. I feel not so well. A small feaver makes me sad. At the same time i look around and think that I am happy and have everything for the future normal life. Despite the fact that The was has been started 6 months ago, I do not feel bad anymore. Surely It is not the same sutiation like it was before the war, but better that nothing. I learned protuguese a bit today. Maybe I will know more shortly. Let's see. Now I am in the Ksusha's grandmother house. It's nice very soviet place.
