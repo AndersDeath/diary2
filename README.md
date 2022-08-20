@@ -77,4 +77,4 @@ Actually this day is also good. I feel not so well. A small feaver makes me sad.
 
 # 20 August 2022 - Saturday - Rzhev - Tver
 
-We are going home today. We are sitting in a cafe in Tver. Ksushas mother and her husband drove us to Tver. The mother had an appointment in medical center. Then we separated and went to different sides. Me and Ksusha walked around Tvers city-center and then went to cafe that I mentioned before. We spet a lot of time there and them met again Ksushas mother and mother's husband. They invited us to Georgian restaraunt that was quite good. 
+We are going home today. We are sitting in a cafe in Tver. Ksushas mother and her husband drove us to Tver. The mother had an appointment in medical center. Then we separated and went to different sides. Me and Ksusha walked around Tvers city-center and then went to cafe that I mentioned before. We spet a lot of time there and them met again Ksushas mother and mother's husband. They invited us to Georgian restaraunt that was quite good. After that we went to huge mall GLobus that is in depressibve Tver's district. we walked there, got a cup of tea and bought some goods in train.
