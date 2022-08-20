@@ -607,4 +607,4 @@ Actually this day is also good. I feel not so well. A small feaver makes me sad.
 
 # 20 August 2022 - Saturday - Rzhev - Tver
 
-We are going home today. We are sitting in a cafe in Tver.
+We are going home today. We are sitting in a cafe in Tver. Ksushas mother and her husband drove us to Tver. The mother had an appointment in medical center.
