@@ -606,3 +606,5 @@ We had a conversation my colleegs about German business visa. Probably it might 
 Actually this day is also good. I feel not so well. A small feaver makes me sad. At the same time i look around and think that I am happy and have everything for the future normal life. Despite the fact that The was has been started 6 months ago, I do not feel bad anymore. Surely It is not the same sutiation like it was before the war, but better that nothing. I learned protuguese a bit today. Maybe I will know more shortly. Let's see. Now I am in the Ksusha's grandmother house. It's nice very soviet place. I need only finish with post for TG and with presentation task.
 
 # 20 August 2022 - Saturday - Rzhev - Tver
+
+We are going home today. We are sitting in a cafe in Tver.
