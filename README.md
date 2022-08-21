@@ -75,6 +75,8 @@ We had a conversation my colleegs about German business visa. Probably it might 
 
 Actually this day is also good. I feel not so well. A small feaver makes me sad. At the same time i look around and think that I am happy and have everything for the future normal life. Despite the fact that The was has been started 6 months ago, I do not feel bad anymore. Surely It is not the same sutiation like it was before the war, but better that nothing. I learned protuguese a bit today. Maybe I will know more shortly. Let's see. Now I am in the Ksusha's grandmother house. It's nice very soviet place. I need only finish with post for TG and with presentation task.
 
-# 20 August 2022 - Saturday - Rzhev - Tver
+# 20 August 2022 - Saturday - Rzhev - Tver - Saint-Petersburg
 
 We are going home today. We are sitting in a cafe in Tver. Ksushas mother and her husband drove us to Tver. The mother had an appointment in medical center. Then we separated and went to different sides. Me and Ksusha walked around Tvers city-center and then went to cafe that I mentioned before. We spet a lot of time there and them met again Ksushas mother and mother's husband. They invited us to Georgian restaraunt that was quite good. After that we went to huge mall GLobus that is in depressibve Tver's district. we walked there, got a cup of tea and bought some goods in train. After that they drove us to the central railway station. We sat to the train and now I am writing this lines there. Also I decied to restructure this diary. for the first time i downloaded it to the laptop and separated big file to smaller ones.
+
+# 21 August 2022 - Sunday - Saint-Petersburg
