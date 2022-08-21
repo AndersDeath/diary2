@@ -89,4 +89,4 @@ in the evening we went to Auchan and bought some goods. We have to save money no
 
 That probably it for today. It's cool to write a text when you are in a good mood. i feel that I am at home. I can write and text anything, but from phisical perspective this place is my home. I have a problem with it, unfortunately i have to leave this place. there is the only person who destroyed everything. I wil remember it forever. I think not only me. Today's exploition somewhere in Moscow region ar effects of that evil which they rised up.
 
-I've just recalled that I need to add one thing. Max Cavalera book is cool.
+I've just recalled that I need to add one thing. Max Cavalera book is cool. It's very easy to read. But this book won't improve my skills. It's just for fun.
