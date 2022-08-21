@@ -81,4 +81,4 @@ We are going home today. We are sitting in a cafe in Tver. Ksushas mother and he
 
 # 21 August 2022 - Sunday - Saint-Petersburg
 
-I met Artyom Sagaida today. He is a front-end chapter lead in drsmile and back then he was my teamlead. He is a very professianal. We talked a bit about us and about job. honestly It was somthing like real getting to know. We were in British backery which is on Mayakovskaya metro station in the Saint-Petersburg city center.
+I met Artyom Sagaida today. He is a front-end chapter lead in drsmile and back then he was my teamlead. He is a very professianal. We talked a bit about us and about job. honestly It was somthing like real getting to know. We were in British backery which is on Mayakovskaya metro station in the Saint-Petersburg city center. i am glad to see him. I hope we will meet each other in reallity in the future. Anywas I also sorted out the suitcases after our trip.
