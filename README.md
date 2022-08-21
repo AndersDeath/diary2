@@ -86,3 +86,5 @@ I met Artyom Sagaida today. He is a front-end chapter lead in drsmile and back t
 I didn't write about politics for a very long time. Now I have to. So, here in russia we have a facist philosopher Dugin. His daoguhter was blown up in the car today. Someone wanted to kill him but made a mistake. I consider it as a terror. I am afraid of this tendency. it is hard to think that Russia became not a terror but just dangarous from existence perspective country.
 
 in the evening we went to Auchan and bought some goods. We have to save money now, because we just do not have them. Anyway we cooked a dinner today. I think it was a firts time for a very long period when we made a dishes. It's fun. Also I need to make something with insurance for car. I will handle it tomorrow, maybe. I need to contact with an angend and she will make all that she need to.
+
+That probably it for today. It's cool to write a text when you are in a good mood. i feel 
