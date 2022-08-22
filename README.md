@@ -93,3 +93,4 @@ I've just recalled that I need to add one thing. Max Cavalera book is cool. It's
 
 # 22 August 2022 - Monday - Saint-Petersburg
 
+This day was a full of business.
