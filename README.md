@@ -93,4 +93,4 @@ I've just recalled that I need to add one thing. Max Cavalera book is cool. It's
 
 # 22 August 2022 - Monday - Saint-Petersburg
 
-This day was a full of business. I bought an insurance for the car. Also I finished a lot of planned tasks including creating of the new category in my TG channel. It's knock from the future. i want to publish news about cool new technologies that we do not have here. I think it will be fun. I've got the car in the evening. Fortunately it works and in good condition. I need olnly check anifreeze tomorrow.
+This day was a full of business. I bought an insurance for the car. Also I finished a lot of planned tasks including creating of the new category in my TG channel. It's knock from the future. i want to publish news about cool new technologies that we do not have here. I think it will be fun. I've got the car in the evening. Fortunately it works and in good condition. I need olnly check anifreeze tomorrow. grandmother and Vladimir Alexandrovich are in good mood and do a lot of things. I am happy that they have energy for all business they want to do.
