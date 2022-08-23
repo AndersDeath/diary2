@@ -102,3 +102,5 @@ I tought a lot about my life today. Honestly being here in Sain-Petersburg is ex
 Newermind I prepared list of things that I want to sell on Avito. Tomorrow I will take theirs photos and publish in on the internet. I want to rise some money. In better case I will have arout 50k rubles. It will be very helpful for us in our situation.
 
 I fell better from physical perspective, but Ksusha got sick and has fever. It's sad. I do not like to see her in this condition. She eats pills and does everything for being healthy.
+
+The landlord came for the money and fixed some kitchen stuff. It's nice. Thanks to him.
