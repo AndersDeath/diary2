@@ -96,3 +96,5 @@ I've just recalled that I need to add one thing. Max Cavalera book is cool. It's
 This day was a full of business. I bought an insurance for the car. Also I finished a lot of planned tasks including creating of the new category in my TG channel. It's knock from the future. i want to publish news about cool new technologies that we do not have here. I think it will be fun. I've got the car in the evening. Fortunately it works and in good condition. I need olnly check anifreeze tomorrow. grandmother and Vladimir Alexandrovich are in good mood and do a lot of things. I am happy that they have energy for all business they want to do. I've drove around neigbourhood. It was nice. Unfortunately Lada is not so good car and feel tiered. And the weather is very typicall for this area. It's rainy and very wet outside. today is my brother birthday.
 
 # 23 August 2022 - Monday - Saint-Petersburg
+
+I tought a lot about my life today. Honestly being here in Sain-Petersburg is extrimely depressive thing for me. I had a good mood in the first day after coming back, but now I am not in good condition.
