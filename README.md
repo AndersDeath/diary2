@@ -100,3 +100,5 @@ This day was a full of business. I bought an insurance for the car. Also I finis
 I tought a lot about my life today. Honestly being here in Sain-Petersburg is extrimely depressive thing for me. I had a good mood in the first day after coming back, but now I am not in good condition. I really fell like I am in the flood here. It's extrimely annoing feeling. I want to see changes, I want to feel myself as free. I do not feel this way here. 
 
 Newermind I prepared list of things that I want to sell on Avito. Tomorrow I will take theirs photos and publish in on the internet. I want to rise some money. In better case I will have arout 50k rubles. It will be very helpful for us in our situation.
+
+I fell better from physical perspective, but Ksusha got sick and has fever. It's sad. I do not like to see her in this condition.
