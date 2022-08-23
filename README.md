@@ -97,4 +97,4 @@ This day was a full of business. I bought an insurance for the car. Also I finis
 
 # 23 August 2022 - Monday - Saint-Petersburg
 
-I tought a lot about my life today. Honestly being here in Sain-Petersburg is extrimely depressive thing for me. I had a good mood in the first day after coming back, but now I am not in good condition. I really fell like I am in the flood here. It's extrimely annoing feeling. I want to see changes, I want to feel
+I tought a lot about my life today. Honestly being here in Sain-Petersburg is extrimely depressive thing for me. I had a good mood in the first day after coming back, but now I am not in good condition. I really fell like I am in the flood here. It's extrimely annoing feeling. I want to see changes, I want to feel myself as free. I do not feel this way here.
