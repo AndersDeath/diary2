@@ -106,3 +106,5 @@ I fell better from physical perspective, but Ksusha got sick and has fever. It's
 The landlord came for the money and fixed some kitchen stuff. It's nice. Thanks to him.
 
 # 24 August 2022 - Wednesday - Saint-Petersburg
+
+Ive started this day from product training and english learning. I also fixed tooth. Prices for dental service increased a lot. it's not a surprise. Also I published knock from the future piece of news. I think it will be fun to publish this kind of stuff. 
