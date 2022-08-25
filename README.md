@@ -111,4 +111,4 @@ Ive started this day from product training and english learning. I also fixed to
 
 # 25 August 2022 - Thursday - Saint-Perersburg
 
-Today I mostly was working on DRSMILE release. I spent a bit time on setting up Apple developer and distribution certificates. This is quite shitty process. Also I had a nice call with Artem, who is my coleege. In the evening i and Ksusha are going to walk in the city center. I think i will be nice. We are going to Obvodniy channel.
+Today I mostly was working on DRSMILE release. I spent a bit time on setting up Apple developer and distribution certificates. This is quite shitty process. Also I had a nice call with Artem, who is my coleege. In the evening i and Ksusha are going to walk in the city center. I think i will be nice. We are going to Obvodniy channel. 
