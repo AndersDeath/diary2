@@ -119,4 +119,4 @@ I was working on issues and tasks for whole day. Mostly I was focused on Angular
 
 # 27 August 2022 - Friday - Saint-Petersburg
 
-Pppodcast was recorded today.
+Pppodcast was recorded today. We went to raketa manufacture today. There is museum we wanted to visit, but it was closed. 
