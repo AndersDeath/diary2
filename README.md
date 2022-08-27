@@ -115,3 +115,4 @@ Today I mostly was working on DRSMILE release. I spent a bit time on setting up 
 
 # 26 August 2022 - Friday - Saint-Petersburg
 
+I was working on issues and tasks for whole day.
