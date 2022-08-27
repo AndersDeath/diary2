@@ -119,4 +119,4 @@ I was working on issues and tasks for whole day. Mostly I was focused on Angular
 
 # 27 August 2022 - Friday - Saint-Petersburg
 
-Pppodcast was recorded today. We went to raketa manufacture today. There is museum we wanted to visit, but it was closed. 
+Pppodcast was recorded today. We went to raketa manufacture today. There is museum we wanted to visit, but it was closed. It's really sad. Also we visited Vkusno i tochka again. Ksusha is still ill. I am afraid of this. I think she should sit at home, but it's quite impossible. She wants to be everywhere, which is not smart. I sould be stonger and protect her.
