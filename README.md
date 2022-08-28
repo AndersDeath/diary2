@@ -117,6 +117,10 @@ Today I mostly was working on DRSMILE release. I spent a bit time on setting up 
 
 I was working on issues and tasks for whole day. Mostly I was focused on Angular + firebase + auth investigation. It works. I need only to fix some visualization and separate everything to steps. The plan is to use in as a basis for future article. I think I will write in in English. I do not want to use Russian language for it anymore. I am sure that it is waste of time. I need to collect information for the book. Programming is not only coding, but it is also some kind of philosophy. This idea is very exiting. Ksusha met Sasha, which is her friend from univercity. they are pretty close. Oh, I've forgottent to mention that today I has a call with potentional reactjs candidate. It's cool. This interview was just disaster and that guy doesn't know enough for working in DRSMILE.
 
-# 27 August 2022 - Friday - Saint-Petersburg
+# 27 August 2022 - Saturday - Saint-Petersburg
 
 Pppodcast was recorded today. We went to raketa manufacture today. There is museum we wanted to visit, but it was closed. It's really sad. Also we visited Vkusno i tochka again. Ksusha is still ill. I am afraid of this. I think she should sit at home, but it's quite impossible. She wants to be everywhere, which is not smart. I sould be stonger and protect her. Also I've lost Kazakhsat sim card. That morons sold it to someone. It means that i cannot restore access to kaspi bank and Halyk is also in danger. I have money on the last one. I should spend it as soon as possible. Kazakhstan is aweful place. I hate it. I do not remember shuch unfriendly country. maybe only sayshelles islands were the same. I think I should forget about 150 dollars that I have on halyk account. As I mentioned I will try to spend them outside of Russia, but if it will be impossible i also won't be sad. Shitty country.
+
+# 27 August - Sunday - Saint-Petersburg
+
+Today I had a rest. I spent whole day doing nothing.
