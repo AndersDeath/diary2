@@ -123,4 +123,4 @@ Pppodcast was recorded today. We went to raketa manufacture today. There is muse
 
 # 27 August - Sunday - Saint-Petersburg
 
-Today I had a rest. I spent whole day doing nothing. We went to the city center and drunk a limonade in one of the beautiful places. I do not remeber the name of this place and i am not sure that i want to come back there. at the same time I eat a lot today. it is not so good. I nwed to be in concentration and do not get a lot of waste calories.
+Today I had a rest. I spent whole day doing nothing. We went to the city center and drunk a limonade in one of the beautiful places. I do not remeber the name of this place and i am not sure that i want to come back there. at the same time I eat a lot today. it is not so good. I nwed to be in concentration and do not get a lot of waste calories. My mood is not so good.
