@@ -123,4 +123,4 @@ Pppodcast was recorded today. We went to raketa manufacture today. There is muse
 
 # 27 August - Sunday - Saint-Petersburg
 
-Today I had a rest. I spent whole day doing nothing.
+Today I had a rest. I spent whole day doing nothing. We went to the city center and drunk a limonade in one of the beautiful places. I do not remeber the name of this place and i am not sure that i want to come back there.
