@@ -127,4 +127,4 @@ Today I had a rest. I spent whole day doing nothing. We went to the city center 
 
 # 29 August - Monday - Saint-Petersburg
 
-I finally finished working on NG-FIREBASE-AUTH thing. I need to groom it, add some interfaces and fixes. I will do this tomorrow and after that I will start to separate the project by steps in order to put it into an article
+I finally finished working on NG-FIREBASE-AUTH thing. I need to groom it, add some interfaces and fixes. I will do this tomorrow and after that I will start to separate the project by steps in order to put it into an article. Also There was also a strange situation with Marat. He received his feedback from other people and began to find out who did it and why. 
