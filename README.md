@@ -124,3 +124,7 @@ Pppodcast was recorded today. We went to raketa manufacture today. There is muse
 # 28 August - Sunday - Saint-Petersburg
 
 Today I had a rest. I spent whole day doing nothing. We went to the city center and drunk a limonade in one of the beautiful places. I do not remeber the name of this place and i am not sure that i want to come back there. at the same time I eat a lot today. it is not so good. I nwed to be in concentration and do not get a lot of waste calories. My mood is not so good. In the evening we visited a med center where Ksusha got couple of injections on order to prevent wrinkle formation. I do not like it, but I am not a master of her. At the same time we got news that Ksushas best school friend got married with muslim guy and joined to this religion. I do not like religions in general, and i am sad. But it is not my business. It's her choise. 
+
+# 29 August - Monday - Saint-Petersburg
+
+I finally finished working on NG-FIREBASE-AUTH thing. I need to groom it, add some interfaces and fixes. I will do this tomorrow and after that I will start to separate the project by steps in order to put it into an article
