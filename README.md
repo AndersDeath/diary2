@@ -131,4 +131,4 @@ I finally finished working on NG-FIREBASE-AUTH thing. I need to groom it, add so
 
 # 30 August - Tuesday - Saint-Petersburg
 
-I've been working hard for whole day. Now I need a short brake and maybe in the evening I will add an information about this day. But in short. I've improoved NG-FIREBASE-AUTH, did some DRSMILE tasks and did research.
+I've been working hard for whole day. Now I need a short brake and maybe in the evening I will add an information about this day. But in short. I've improoved NG-FIREBASE-AUTH, did some DRSMILE tasks and did research. Also I've published piece of news in rubric knock from the future.
