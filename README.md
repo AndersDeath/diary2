@@ -135,4 +135,4 @@ I've been working hard for whole day. Now I need a short brake and maybe in the 
 
 # 31 August - Friday - Saint-Petersburg
 
-I did sports today. I did meditation. That's amaizing. I also trained English and Prodcut thinking today. Also the conflict between TJ team and Marat has been growing. i cannot understand whom i can belive in that situation.
+I did sports today. I did meditation. That's amaizing. I also trained English and Prodcut thinking today. Also the conflict between TJ team and Marat has been growing. i cannot understand whom i can belive in that situation. i am trying to do my best, but in reality it looks bad
