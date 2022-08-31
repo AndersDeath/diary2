@@ -135,4 +135,4 @@ I've been working hard for whole day. Now I need a short brake and maybe in the 
 
 # 31 August - Friday - Saint-Petersburg
 
-I did sports today. I did meditation. That's amaizing. 
+I did sports today. I did meditation. That's amaizing. I also trained English and Prodcut thinking today.
