@@ -134,3 +134,5 @@ I finally finished working on NG-FIREBASE-AUTH thing. I need to groom it, add so
 I've been working hard for whole day. Now I need a short brake and maybe in the evening I will add an information about this day. But in short. I've improoved NG-FIREBASE-AUTH, did some DRSMILE tasks and did research. Also I've published piece of news in rubric knock from the future. The weather is aweful. I think it's about 15 degree outside. It's saint Perersburg. Yesterdays walkin was amaizing, but today the conditions are sucks. I also got to know better Ryan Lozon who is a product manager in drsmile. surprisingly he is also metalhead. He was a fun of Lamb of God. Also Sereey Dzebiyev asked for permanent residency in Georgia and authorities refuesed his request. it is bad
 
 # 31 August - Friday - Saint-Petersburg
+
+I did sports today. I did meditation. That's amaizing. 
