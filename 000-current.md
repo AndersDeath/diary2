@@ -8,4 +8,4 @@ The wheather became better and it affected my productivity. I did sport, meditat
 
 # 03 September - Saturday - Saint-Petersburg
 
-Today is just free day. We went to the city center again. We were in Vasiliostrovsky market which was reconstructed several years ago.
+Today is just free day. We went to the city center again. We were in Vasiliostrovsky market which was reconstructed several years ago and became a food court.
