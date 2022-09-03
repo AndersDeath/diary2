@@ -8,4 +8,4 @@ The wheather became better and it affected my productivity. I did sport, meditat
 
 # 03 September - Saturday - Saint-Petersburg
 
-Today is just free day. We went to the city center again. We were in Vasiliostrovsky market which was reconstructed several years ago and became a food court. Currently this place has a lot of restaraunts for different tastes.
+Today is just free day. We went to the city center again. We were in Vasiliostrovsky market which was reconstructed several years ago and became a food court. Currently this place has a lot of restaraunts for different tastes. After that we walked through the city center and visited Novaya Gollandia, which is a important culture center in Saint-Petersburg.
