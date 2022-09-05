@@ -16,4 +16,4 @@ I've recorded a very nice pppodcast. Nastya gave us (me and K.) tickets to Manez
 
 # 05 September - Monday - Saint-Perersburg
 
-Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to write text shortly. Maybe even tomorrow it depends on current problems.
+Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to write text shortly. Maybe even tomorrow it depends on current problems. At the same time I've got an idea about daily standup manager. It's just something like daily tool where you can track information about current problems, tasks, ideas, etc. It is the idea about custom tool for very small teams.
