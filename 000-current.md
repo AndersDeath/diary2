@@ -17,3 +17,5 @@ I've recorded a very nice pppodcast. Nastya gave us (me and K.) tickets to Manez
 # 05 September - Monday - Saint-Perersburg
 
 Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to write text shortly. Maybe even tomorrow it depends on current problems. At the same time I've got an idea about daily standup manager. It's just something like daily tool where you can track information about current problems, tasks, ideas, etc. It is the idea about custom tool for very small teams. It's smaller that Jira and it's not trello like tool. Also I've dived into dental topics, because I really want to figure out how to save the mobile application within DRSMILE. Surely it mostly depends on stackeholders, but maybe I can find something. Today is a coffe day. Also I did some maths and management tasks. I am trying to proceed with all that sruff. Meditation and yoga excersices are also done. maybe we will go for a walk in the evening. I still do not know. it's about 15 minutes until working day end.
+
+# 06 September - Tuesday - Saint-Perersburg
