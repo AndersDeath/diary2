@@ -20,4 +20,4 @@ Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to writ
 
 # 06 September - Tuesday - Saint-Perersburg
 
-This day was wuite usuall. I did nothing new.
+This day was wuite usuall. I did nothing new. I had a plan to start writing an article, but I couldn't do this.
