@@ -20,4 +20,4 @@ Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to writ
 
 # 06 September - Tuesday - Saint-Perersburg
 
-This day was wuite usuall. I did nothing new. I had a plan to start writing an article, but I couldn't do this. It's not because I am lazy, but I just do not have power for it.
+This day was wuite usuall. I did nothing new. I had a plan to start writing an article, but I couldn't do this. It's not because I am lazy, but I just do not have power for it. I think I will do this tomorrow. I also thought a lot about replication of that ng-firebase-auth, but for React. I event created a new repository.
