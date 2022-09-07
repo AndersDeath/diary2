@@ -24,4 +24,4 @@ This day was wuite usuall. I did nothing new. I had a plan to start writing an a
 
 # 07 September - Wednesday - Saint-Perersburg
 
-So, yesterday we got caught in heavy rain. it's absolutely tipical weather for Saint-Petersburg in this part of the year. But, anyway we got a good time in the icty center.
+So, yesterday we got caught in heavy rain. it's absolutely tipical weather for Saint-Petersburg in this part of the year. But, anyway we got a good time in the icty center. today i woke up and already did yoga and got a shower.
