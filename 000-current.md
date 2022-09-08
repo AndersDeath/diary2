@@ -28,4 +28,4 @@ So, yesterday we got caught in heavy rain. it's absolutely typical weather for S
 
 # 08 September - Thursday - Saint-Perersburg
 
-I've been working on survey prototype since today. It will be some kind of thing for building surveys. The algorythm is absolutely simple and I deciedied to make it as open source. Maybe some specific things I will hide, because it will be about security. Honestly it was my main focus today. I practically didn't do anything ecxept this thing.
+I've been working on survey prototype since today. It will be some kind of thing for building surveys. The algorythm is absolutely simple and I deciedied to make it as open source. Maybe some specific things I will hide, because it will be about security. Honestly it was my main focus today. I practically didn't do anything ecxept this thing. Also I think a lot about future plans and other things.
