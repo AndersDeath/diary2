@@ -28,4 +28,4 @@ So, yesterday we got caught in heavy rain. it's absolutely typical weather for S
 
 # 08 September - Thursday - Saint-Perersburg
 
-I've been working on survey prototype since today. 
+I've been working on survey prototype since today. It will be some kind of thing for building surveys.
