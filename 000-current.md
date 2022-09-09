@@ -32,4 +32,4 @@ I've been working on survey prototype since today. It will be some kind of thing
 
 # 09 September - Friday - Saint-Perersburg
 
-yesterday I was in barber shop. Ivan has been learning programming and as I understood he want to stop working as a barber and became a programmer. I think it is good idea.
+yesterday I was in barber shop. Ivan has been learning programming and as I understood he want to stop working as a barber and became a programmer. I think it is good idea. Today I did sport and meditaion and whole day was dedicated for meetings.
