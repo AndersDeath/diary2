@@ -36,4 +36,4 @@ yesterday I was in barber shop. Ivan has been learning programming and as I unde
 
 # 10 September - Saturday - Saint-Perersburg
 
-Today I was in SPB Botanic gardnen. Also it was a cheat meal day. We were in Balagan food court. It's nice place and I got nice burger there. At the same time 
+Today I was in SPB Botanic gardnen. Also it was a cheat meal day. We were in Balagan food court. It's nice place and I got nice burger there. At the same time Me and Ksusha recieved her designh diploma, which is cool. 
