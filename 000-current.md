@@ -40,4 +40,4 @@ Today I was in SPB Botanic garden. Also it was a cheat meal day. We were in Bala
 
 # 11 Septemper - Sunday - Saint-Perersburg
 
-Today I recorded another episode of pppodcast. Today it is again in English& Also I've got an appointment in clinic that will shot me another vaccine against Covid.
+Today I recorded another episode of pppodcast. Today it is again in English& Also I've got an appointment in clinic that will shot me another vaccine against Covid. It's cool because my sertificate has been expired and I need to renew it.
