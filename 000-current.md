@@ -44,4 +44,4 @@ Today I recorded another episode of pppodcast. Today it is again in English& Als
 
 # 12 September - Monday - Saint-Perersburg
 
-Today is nice day, I did a lot despite being tired. I published knock from the future, did some front-end investigation and had several calls about different things.
+Today is nice day, I did a lot despite being tired. I published knock from the future, did some front-end investigation and had several calls about different things. So, i also going to visit Sberbank, I want to order mir card. It's just for having plan B bank card.
