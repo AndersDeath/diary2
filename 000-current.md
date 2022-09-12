@@ -43,3 +43,5 @@ Today I was in SPB Botanic garden. Also it was a cheat meal day. We were in Bala
 Today I recorded another episode of pppodcast. Today it is again in English& Also I've got an appointment in clinic that will shot me another vaccine against Covid. It's cool because my sertificate has been expired and I need to renew it. I recorded several thoughts about startup and another htings.  Again, I need to find a way how to generate startup ideas. It should boost my productivity. after this writing of this note I will go for a walk with Ksusha. The weather is quite well today. 
 
 # 12 September - Monday - Saint-Perersburg
+
+Today is nice day, I did a lot despite being tired. I published knock from the future, did some front-end investigation and had several calls about different things.
