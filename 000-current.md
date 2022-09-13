@@ -48,4 +48,4 @@ Today is nice day, I did a lot despite being tired. I published knock from the f
 
 # 13 September - Thuesday - Saint-Perersburg
 
-well. yesterday i was in sberbank. They fooled me. the sbercard will be attached to my current bank account, but to new one. The fact that this new card will be free, retrieved me from arguing on them. Today I was working on survey solution for whole day. I learned portuguese a bit in the morning, resolved some issues in DRSMILE and the I was programming only.
+well. yesterday i was in sberbank. They fooled me. the sbercard will be attached to my current bank account, but to new one. The fact that this new card will be free, retrieved me from arguing on them. Today I was working on survey solution for whole day. I learned portuguese a bit in the morning, resolved some issues in DRSMILE and the I was programming only. I think the new solution is quite good. It looks beautifult and I hope that I will create something good from this.
