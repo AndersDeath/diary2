@@ -12,7 +12,7 @@ Today is just free day. We went to the city center again. We were in Vasiliostro
 
 # 04 September - Sunday - Saint-Petersburg
 
-I've recorded a very nice pppodcast. Nastya gave us (me and K.) tickets to Manezh. There was a exibition of Leningrad's painters of 20th centuary. At the same time there was a post-chorus event. It was some kind of music band. They sand different modern songs acapello and with beat boxing on the background. It wasn't huge from musical side, but interection as a culutural event. Then we went back home, ate dinner and drove around neigbourhood by car. We talked a lot about islam, because K. ex-best frieds turned to that religion and Ksusha has a conversation with her today. Fortunately everything is fine with her, but all that she sad were strange. maybe becaouse I am an anti-religous person. Also I significantly improver ng-firebase-auth project. Essentialy everythin is ready for article. Tomorrow I will stard to decompose it by parts. Now I am going to dring tea and to read book a bit. I think it will be Harry Potter in Ukranian.
+I've recorded a very nice pppodcast. Nastya gave us (me and K.) tickets to Manezh. There was a exibition of Leningrad's painters of 20th centuary. At the same time there was a post-chorus event. It was some kind of music band. They sand different modern songs acapello and with beat boxing on the background. It wasn't huge from musical side, but interection as a culutural event. Then we went back home, ate dinner and drove around neighbourhood by car. We talked a lot about islam, because K. ex-best frieds turned to that religion and Ksusha has a conversation with her today. Fortunately everything is fine with her, but all that she sad were strange. maybe becaouse I am an anti-religous person. Also I significantly improver ng-firebase-auth project. Essentialy everythin is ready for article. Tomorrow I will stard to decompose it by parts. Now I am going to dring tea and to read book a bit. I think it will be Harry Potter in Ukranian.
 
 # 05 September - Monday - Saint-Perersburg
 
@@ -52,4 +52,4 @@ well. yesterday i was in sberbank. They fooled me. the sbercard will be attached
 
 # 14 September - Wednesday - Saint-Perersburg
 
-Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release. Also I've made a small tool that can help me in learning english texts. I deloyed it to github and can use it by github pages.
+Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release. Also I've made a small tool that can help me in learning english texts. I deloyed it to github and can use it by github pages. Now I am goint to drive a bit in neighbourhood. Maybe I wil buy some drings. I haven't decoded yet.
