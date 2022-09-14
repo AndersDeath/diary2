@@ -52,4 +52,4 @@ well. yesterday i was in sberbank. They fooled me. the sbercard will be attached
 
 # 14 September - Wednesday - Saint-Perersburg
 
-Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release.
+Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release. Also I've made a small tool that can help me in learning english texts. I deloyed it to github and can use it by github pages.
