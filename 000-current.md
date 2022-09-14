@@ -51,3 +51,5 @@ Today is nice day, I did a lot despite being tired. I published knock from the f
 well. yesterday i was in sberbank. They fooled me. the sbercard will be attached to my current bank account, but to new one. The fact that this new card will be free, retrieved me from arguing on them. Today I was working on survey solution for whole day. I learned portuguese a bit in the morning, resolved some issues in DRSMILE and the I was programming only. I think the new solution is quite good. It looks beautifult and I hope that I will create something good from this. Now I am goint to have a dinner and then go for a walk. The only think I need to do today is post something to telegram channel. By the way I have been reading Prestuplenie i Nakazanie by Dostoyevski. Surprisingly I enjoy this novel. When I was a schoolboy I hated it. I think It was a mistake to force children to learn this novel. The text is quite hard for understanding.
 
 # 14 September - Wednesday - Saint-Perersburg
+
+Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient.
