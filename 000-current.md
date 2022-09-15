@@ -56,4 +56,4 @@ Finally, I started training rhetorics. I just applied an course on Edx. It's rem
 
 # 15 September - Wednesday - Saint-Perersburg
 
-Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better. In the second part of working day I had a conversation with Artem, who is front-end chapter lead in Drsmile and my manager.
+Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better. In the second part of working day I had a conversation with Artem, who is front-end chapter lead in Drsmile and my manager. he faced with a problem because of war. He still didn't recieve two salaries because of sanctions.
