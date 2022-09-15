@@ -56,4 +56,4 @@ Finally, I started training rhetorics. I just applied an course on Edx. It's rem
 
 # 15 September - Wednesday - Saint-Perersburg
 
-Honestly I complitely tiered today.
+Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better.
