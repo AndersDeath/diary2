@@ -14,46 +14,46 @@ Today is just free day. We went to the city center again. We were in Vasiliostro
 
 I've recorded a very nice pppodcast. Nastya gave us (me and K.) tickets to Manezh. There was a exibition of Leningrad's painters of 20th centuary. At the same time there was a post-chorus event. It was some kind of music band. They sand different modern songs acapello and with beat boxing on the background. It wasn't huge from musical side, but interection as a culutural event. Then we went back home, ate dinner and drove around neighbourhood by car. We talked a lot about islam, because K. ex-best frieds turned to that religion and Ksusha has a conversation with her today. Fortunately everything is fine with her, but all that she sad were strange. maybe becaouse I am an anti-religous person. Also I significantly improver ng-firebase-auth project. Essentialy everythin is ready for article. Tomorrow I will stard to decompose it by parts. Now I am going to dring tea and to read book a bit. I think it will be Harry Potter in Ukranian.
 
-# 05 September - Monday - Saint-Perersburg
+# 05 September - Monday - Saint-Petersburg
 
 Actually Today I did a lot of work. ng-firebase-auth is ready I am goind to write text shortly. Maybe even tomorrow it depends on current problems. At the same time I've got an idea about daily standup manager. It's just something like daily tool where you can track information about current problems, tasks, ideas, etc. It is the idea about custom tool for very small teams. It's smaller that Jira and it's not trello like tool. Also I've dived into dental topics, because I really want to figure out how to save the mobile application within DRSMILE. Surely it mostly depends on stackeholders, but maybe I can find something. Today is a coffe day. Also I did some maths and management tasks. I am trying to proceed with all that sruff. Meditation and yoga excersices are also done. maybe we will go for a walk in the evening. I still do not know. it's about 15 minutes until working day end.
 
-# 06 September - Tuesday - Saint-Perersburg
+# 06 September - Tuesday - Saint-Petersburg
 
 This day was wuite usuall. I did nothing new. I had a plan to start writing an article, but I couldn't do this. It's not because I am lazy, but I just do not have power for it. I think I will do this tomorrow. I also thought a lot about replication of that ng-firebase-auth, but for React. I event created a new repository. Sadly, I've just done it and that's it. I was working mostly on a lot of tickets in DR SMILE and did stuff for myself. In partucular, I've published know from the future piece of news onto my telegram channel. I am going to have a dinner now and then probably go for a walk. I do not know, let's see. Only one thing I forgot that I need to order a new MIR card in Sber. Probably it will be useful for me in our journey. Also Ksusha bought all tickets and booked apartments for us in Turkey and Egypt. it will be my first visit to this african country and in continental part of that land. Prevously I was on Seyshell islands. It's also Africa but it's very unique place. So, I need to finish for today. i am not in good mood, I need to have a rest. 
 
-# 07 September - Wednesday - Saint-Perersburg
+# 07 September - Wednesday - Saint-Petersburg
 
 So, yesterday we got caught in heavy rain. it's absolutely typical weather for Saint-Petersburg in this part of the year. But, anyway we got a good time in the icty center. today i woke up and already did yoga and got a shower. Today I also had a lot of meetings. I've investigated topic about sirvey engine creation. The repository is ready and tomorow I will start do implementatin. After all we wnet ot Mednoye ozero which is not so far from our home. Usually it's quite crowdy place with tons of people. but now it is absolutely empty place. at the same time it is very beatiful lake, I wasn't there before. So, it was just cool to visit it and put into my visited places list. Also I was in grandmother house. I've got an statmenet for Ksusha. this thing will allow her to get diploma in the post ofiice. As usualty in autum grandma gave me a pack with vegetables. In this case that where tomatos. At the sme time I had a quite hard interview with Vietnamise guy. his emglish was very hard for understanding. His hard skill are impressive, but communoration is hard. Now I am going  to wash the dishes and then I will go to sleep.
 
-# 08 September - Thursday - Saint-Perersburg
+# 08 September - Thursday - Saint-Petersburg
 
 I've been working on survey prototype since today. It will be some kind of thing for building surveys. The algorythm is absolutely simple and I deciedied to make it as open source. Maybe some specific things I will hide, because it will be about security. Honestly it was my main focus today. I practically didn't do anything ecxept this thing. Also I think a lot about future plans and other things. For example I am trying to figure out new stuff and add it to my startup list. It's crusial for me. I am trying to be concentrated around this things. In the evening I will go to barber. I was there in spring last time. 
 
-# 09 September - Friday - Saint-Perersburg
+# 09 September - Friday - Saint-Petersburg
 
 yesterday I was in barber shop. Ivan has been learning programming and as I understood he want to stop working as a barber and became a programmer. I think it is good idea. Today I did sport and meditaion and whole day was dedicated for meetings. my team will be restructurized again, but it is not a problem for me. Anyway I want to work in Drsmile at least for one year. 2023 will be Drsmile year again. Also I published knock from the future note in my telegram channel. I did some code. just a couple of updates for ts-survey-prototype. On Frontend chapter meeting I presented two solutions that I prepeared. The first one is ng-firebase-auth and the second in survey stuff. Now I eat some dinner and going to the cinema. Ksusha bougt tickets and I think it will be nice evening in the city center again. So, yea. Today I am in better condition than usual. I hope everything will be ok.
 
-# 10 September - Saturday - Saint-Perersburg
+# 10 September - Saturday - Saint-Petersburg
 
 Today I was in SPB Botanic garden. Also it was a cheat meal day. We were in Balagan food court. It's nice place and I got nice burger there. At the same time Me and Ksusha recieved her designh diploma, which is cool. So Azbuka vkusa became more expencive. We were there and tried to find someting tasty, but all good there became very expencieve. After that we walked a lot in the city center. I created a starting sheme for the article that i've been writing. Honestly this day wasn't productive. i got some alchole yestaerday. It was only one bottle of medovuha, but I feel weak for all day. By the way it is one of reasons why I stopped drink beer, wine, vodka and others too much. It is just waste of time, I think that bad habit is one of things that makes people as piece of shit. and as a person who has had problems with alcohol in the past, I condemn those who do not want to stop drinking. It is just fast road to the grave.
 
-# 11 Septemper - Sunday - Saint-Perersburg
+# 11 Septemper - Sunday - Saint-Petersburg
 
 Today I recorded another episode of pppodcast. Today it is again in English& Also I've got an appointment in clinic that will shot me another vaccine against Covid. It's cool because my sertificate has been expired and I need to renew it. I recorded several thoughts about startup and another htings.  Again, I need to find a way how to generate startup ideas. It should boost my productivity. after this writing of this note I will go for a walk with Ksusha. The weather is quite well today. 
 
-# 12 September - Monday - Saint-Perersburg
+# 12 September - Monday - Saint-Petersburg
 
 Today is nice day, I did a lot despite being tired. I published knock from the future, did some front-end investigation and had several calls about different things. So, i also going to visit Sberbank, I want to order mir card. It's just for having plan B bank card. Unfortunately i lost access to my Kazakhstan phone number and I could not do anything with it, Unfortunately. Because of it I want to have more possibilities for saving and spending money. Also I restored an access to my avito account. I am going to pubish couple of adv there. I want to sell my camera, microphone and some other things. So, Alto I've started making notes with startup ideas. I just record  whatever comes into my mind. I thing it will give me some benefits in the future. The book by Iscah Adzises is very interecting, I still been reading it and somethimes see very useful thoughts there. I will try to adapt his ideas into my real working life. So, thats it for today, people. I need some rest and visit a bank.
 
-# 13 September - Thuesday - Saint-Perersburg
+# 13 September - Thuesday - Saint-Petersburg
 
 well. yesterday i was in sberbank. They fooled me. the sbercard will be attached to my current bank account, but to new one. The fact that this new card will be free, retrieved me from arguing on them. Today I was working on survey solution for whole day. I learned portuguese a bit in the morning, resolved some issues in DRSMILE and the I was programming only. I think the new solution is quite good. It looks beautifult and I hope that I will create something good from this. Now I am goint to have a dinner and then go for a walk. The only think I need to do today is post something to telegram channel. By the way I have been reading Prestuplenie i Nakazanie by Dostoyevski. Surprisingly I enjoy this novel. When I was a schoolboy I hated it. I think It was a mistake to force children to learn this novel. The text is quite hard for understanding.
 
-# 14 September - Wednesday - Saint-Perersburg
+# 14 September - Wednesday - Saint-Petersburg
 
 Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release. Also I've made a small tool that can help me in learning english texts. I deloyed it to github and can use it by github pages. Now I am goint to drive a bit in neighbourhood. Maybe I wil buy some drings. I haven't decoded yet. In general this day was quite usuall. Nothig new happened. I have couple workds about yesterday. We went to Sennaya ploschad'. It's a place in the city center. Ksusha found new public space here which is called Seno. That area is ex-stohouses. Nice modern place. I hope they will find firm that could rent flats and retail spaces. I wish them good luck.
 
-# 15 September - Wednesday - Saint-Perersburg
+# 15 September - Wednesday - Saint-Petersburg
 
 Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better. In the second part of working day I had a conversation with Artem, who is front-end chapter lead in Drsmile and my manager. he faced with a problem because of war. He still didn't recieve two salaries because of sanctions. There might be two reasons. The first one is that Alex Drsmile's SFO doesn't want to push this thing and help him fast. I have doubts in front of that guy, because I remember how he lied me before. The second reason probably that a bank that should sends money to Artem deleyed payments brcause of sanctions and Alex cannot do anything with it. I do not know the real reason. but yes. It is a very bad situation.
