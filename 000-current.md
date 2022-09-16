@@ -60,4 +60,4 @@ Honestly I complitely tiered today. I was working on survey implementaion for sh
 
 # 16 September - Friday - Saint-Petersburg
 
-I've started learning portuguese properly. I started writing down an abstract. Alsot I did rhetoric lesson and did a lot of ppnter things. So I worked on that language, product thingrin and rhetorics. also I will go to the hospital and get a vaccince. I do not awant to do it, but I have to.
+I've started learning portuguese properly. I started writing down an abstract. Alsot I did rhetoric lesson and did a lot of ppnter things. So I worked on that language, product thingrin and rhetorics. also I will go to the hospital and get a vaccince. I do not awant to do it, but I have to. 
