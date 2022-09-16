@@ -54,6 +54,8 @@ well. yesterday i was in sberbank. They fooled me. the sbercard will be attached
 
 Finally, I started training rhetorics. I just applied an course on Edx. It's remote thing, and consequently extrimely convinient. the rest of the day I was working on survey, drsmile release. Also I've made a small tool that can help me in learning english texts. I deloyed it to github and can use it by github pages. Now I am goint to drive a bit in neighbourhood. Maybe I wil buy some drings. I haven't decoded yet. In general this day was quite usuall. Nothig new happened. I have couple workds about yesterday. We went to Sennaya ploschad'. It's a place in the city center. Ksusha found new public space here which is called Seno. That area is ex-stohouses. Nice modern place. I hope they will find firm that could rent flats and retail spaces. I wish them good luck.
 
-# 15 September - Wednesday - Saint-Petersburg
+# 15 September - Thursday - Saint-Petersburg
 
 Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better. In the second part of working day I had a conversation with Artem, who is front-end chapter lead in Drsmile and my manager. he faced with a problem because of war. He still didn't recieve two salaries because of sanctions. There might be two reasons. The first one is that Alex Drsmile's SFO doesn't want to push this thing and help him fast. I have doubts in front of that guy, because I remember how he lied me before. The second reason probably that a bank that should sends money to Artem deleyed payments brcause of sanctions and Alex cannot do anything with it. I do not know the real reason. but yes. It is a very bad situation.
+
+# 16 September - Friday - Saint-Petersburg
