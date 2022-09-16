@@ -59,3 +59,5 @@ Finally, I started training rhetorics. I just applied an course on Edx. It's rem
 Honestly I complitely tiered today. I was working on survey implementaion for shole day. I umproved it a bit and now it works better. In the second part of working day I had a conversation with Artem, who is front-end chapter lead in Drsmile and my manager. he faced with a problem because of war. He still didn't recieve two salaries because of sanctions. There might be two reasons. The first one is that Alex Drsmile's SFO doesn't want to push this thing and help him fast. I have doubts in front of that guy, because I remember how he lied me before. The second reason probably that a bank that should sends money to Artem deleyed payments brcause of sanctions and Alex cannot do anything with it. I do not know the real reason. but yes. It is a very bad situation.
 
 # 16 September - Friday - Saint-Petersburg
+
+I've started learning portuguese properly. I started writing down an abstract.
