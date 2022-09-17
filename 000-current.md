@@ -64,4 +64,4 @@ I've started learning portuguese properly. I started writing down an abstract. A
 
 # 17 September - Saturday - Saint-Petersburg
 
-Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not ok. today I cleaned my room. In the eveining I bought a burger. I also took a shower. I've been thinking about creatinon of special telegram bot for saving links znd sort them. I will create ascheme of the project tomorrow. I also heared a lot of ex-echo moscow.
+Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not ok. today I cleaned my room. In the eveining I bought a burger. I also took a shower. I've been thinking about creatinon of special telegram bot for saving links znd sort them. I will create ascheme of the project tomorrow. I also heared a lot of ex-echo of moscow. Honestly it is hard to wait for immigration to Portugal.
