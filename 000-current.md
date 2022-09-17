@@ -64,4 +64,4 @@ I've started learning portuguese properly. I started writing down an abstract. A
 
 # 17 September - Saturday - Saint-Petersburg
 
-Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not ok. today I cleaned my room. In the eveining I bought a burger.
+Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not ok. today I cleaned my room. In the eveining I bought a burger. I also took a shower. 
