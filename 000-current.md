@@ -68,4 +68,4 @@ Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not 
 
 # 18 September - Sunday - Saint-Petersburg
 
-I analised 10 vacancies of CTO and EM that Ksusha sent me.
+I analised 10 vacancies of CTO and EM that Ksusha sent me. I also did rhetoric lesson and some other stuff.
