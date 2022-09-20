@@ -76,4 +76,4 @@ This day was very hard. Nothing interesting happened.
 
 # 20 September - Tuesday - Saint-Petersburg
 
-Fucking Putin. They decided to organize referendum and ruined our country. That is aweful. I did a lot of good things today.
+Fucking Putin. They decided to organize referendum and ruined our country. That is aweful. I did a lot of good things today. When I am in good conditions I will provide more information there.
