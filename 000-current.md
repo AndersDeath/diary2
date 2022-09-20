@@ -69,3 +69,5 @@ Yesterday I got a doze of vaccince. thats good. Today I am feel normal, but not 
 # 18 September - Sunday - Saint-Petersburg
 
 I analised 10 vacancies of CTO and EM that Ksusha sent me. I also did rhetoric lesson and some other stuff. i absolutely distructed by this day. It wasn't a sunday. it was a typicall working day, despite the fact that i recorded pppodcast in English again. this is one of things that I still want to do with pleasure and proper attention.
+
+# 19 September - Monay - Saint-Petersburg
