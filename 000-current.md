@@ -73,3 +73,7 @@ I analised 10 vacancies of CTO and EM that Ksusha sent me. I also did rhetoric l
 # 19 September - Monay - Saint-Petersburg
 
 This day was very hard. Nothing interesting happened. 
+
+# 20 September - Tuesday - Saint-Petersburg
+
+Fucking Putin.
