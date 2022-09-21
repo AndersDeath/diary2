@@ -80,4 +80,4 @@ Fucking Putin. They decided to organize referendum and ruined our country. That 
 
 # 21 September - Tuesday - Saint-Petersburg
 
-They declared a mobilization. They are aweful morons. I've really tried to work for whole day. It was hard and I didn't much. But I fixed some issues and dived deeper to telegram bot topic. I am really trying to be calm, but it's hard. I hate this person. Putin is piece of shit.
+They declared a mobilization. They are aweful morons. I've really tried to work for whole day. It was hard and I didn't much. But I fixed some issues and dived deeper to telegram bot topic. I am really trying to be calm, but it's hard. I hate this person. Putin is piece of shit. It is really frustrating that I was born in this fucking country. I thing that my goal, I mean immigration, is the better ming choise in my life.
