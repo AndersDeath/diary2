@@ -80,4 +80,4 @@ Fucking Putin. They decided to organize referendum and ruined our country. That 
 
 # 21 September - Tuesday - Saint-Petersburg
 
-They declared a mobilization. They are aweful morons.
+They declared a mobilization. They are aweful morons. I've really tried to work for whole day. It was hard and I didn't much.
