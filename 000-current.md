@@ -84,4 +84,4 @@ They declared a mobilization. They are aweful morons. I've really tried to work 
 
 # 22 Septemper - Wednesday - Saint-Petersburg
 
-Well, I am in shock. I thought a lot about mobilization, but i didn't believe in it. There is no razio. There is only bullshit and stupidness. I still wait for the 29th of September for leaving this fucking country. Sometimes I cannot understand why I was born in this fucking place. 
+Well, I am in shock. I thought a lot about mobilization, but i didn't believe in it. There is no razio. There is only bullshit and stupidness. I still wait for the 29th of September for leaving this fucking country. Sometimes I cannot understand why I was born in this fucking place. People in Europe live normally, people in US live normally, Surely they have crisis. But there is no global war.
