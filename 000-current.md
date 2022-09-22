@@ -84,4 +84,4 @@ They declared a mobilization. They are aweful morons. I've really tried to work 
 
 # 22 Septemper - Wednesday - Saint-Petersburg
 
-Well, I am in shock. I thought a lot about mobilization, but i didn't believe in it.
+Well, I am in shock. I thought a lot about mobilization, but i didn't believe in it. There is no razio. There is only bullshit and stupidness.
