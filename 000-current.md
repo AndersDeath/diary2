@@ -88,4 +88,4 @@ Well, I am in shock. I thought a lot about mobilization, but i didn't believe in
 
 # 23 Septemper - Thursday - Saint-Petersburg
 
-So, It's a new day, It's a new challange. I am still trying to be in normal condition. Honestly it's hard. I will go to Istambul in 6 days. It's less that week. I am very close to the end of my mental resource. I really scared. I can confess it with no problem. Ksusha is going to Rzhev today. She will come back in monday
+So, It's a new day, It's a new challange. I am still trying to be in normal condition. Honestly it's hard. I will go to Istambul in 6 days. It's less that week. I am very close to the end of my mental resource. I really scared. I can confess it with no problem. Ksusha is going to Rzhev today. She will come back in monday. Probably it will be the last visit to the homecity for very long time.
