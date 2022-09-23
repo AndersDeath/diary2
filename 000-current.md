@@ -88,4 +88,4 @@ Well, I am in shock. I thought a lot about mobilization, but i didn't believe in
 
 # 23 Septemper - Thursday - Saint-Petersburg
 
-So, It's a new day, It's a new challange.
+So, It's a new day, It's a new challange. I am still trying to be in normal condition. Honestly it's hard.
