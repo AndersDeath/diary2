@@ -90,4 +90,4 @@ Well, I am in shock. I thought a lot about mobilization, but i didn't believe in
 
 So, It's a new day, It's a new challange. I am still trying to be in normal condition. Honestly it's hard. I will go to Istambul in 6 days. It's less that week. I am very close to the end of my mental resource. I really scared. I can confess it with no problem. Ksusha is going to Rzhev today. She will come back in monday. Probably it will be the last visit to the homecity for very long time. Again, my main goal is to be still alive. I decided for myself that if I am cached by police of military officer I will do everything in order to avoid this war. Essentialy it's warld was 3 for me. At the same time it is aftershock by USSR falling. Putin is fucking fanatic. I wish him be dead. Please do not blame me for this. I totally understand that all lifes matters and nobody deserves to die, but cannot keep my emotions. This peson and his fucking team want us to be dead. It's extrimely sencitive topic of survival. My main goal is to be still alive. so, I still have hope. Everything will be ok. But not very soon.
 
-# 24 September - 
+# 24 September - Saturday - 
