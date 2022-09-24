@@ -92,4 +92,4 @@ So, It's a new day, It's a new challange. I am still trying to be in normal cond
 
 # 24 September - Saturday - Saint-Petersburg
 
-Today I mostly was scannig my documents. Tomorrow I shpuld sort all new pictures.
+Today I mostly was scannig my documents. Tomorrow I shpuld sort all new pictures. At the same time I've got new mir card.
