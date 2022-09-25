@@ -2,4 +2,4 @@
 
 git add .
 git commit -m"update"
-git satatus
+git status
