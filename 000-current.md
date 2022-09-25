@@ -96,4 +96,4 @@ Today I mostly was scannig my documents. Tomorrow I shpuld sort all new pictures
 
 # 25 September - Sunday - Saint-Petersburg
 
-Today I got panic. it's something new for me. 
+Today I got panic. it's something new for me. I've exchanged car summer weels to winter ones.
