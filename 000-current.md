@@ -96,4 +96,4 @@ Today I mostly was scannig my documents. Tomorrow I shpuld sort all new pictures
 
 # 25 September - Sunday - Saint-Petersburg
 
-Today I got panic. it's something new for me. I've exchanged car summer weels to winter ones. Me and Ksushe come up with plan B for us. If borders are close, we will go to Belarus. We will drive there by car and them move to another place. there are flights to Turkey. I will try to be calm.
+Today I got panic. it's something new for me. I've exchanged car summer weels to winter ones. Me and Ksushe come up with plan B for us. If borders are close, we will go to Belarus. We will drive there by car and them move to another place. there are flights to Turkey. I will try to be calm. I sohuld be calm.
