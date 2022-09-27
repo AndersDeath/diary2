@@ -99,3 +99,5 @@ Today I mostly was scannig my documents. Tomorrow I shpuld sort all new pictures
 Today I got panic. it's something new for me. I've exchanged car summer weels to winter ones. Me and Ksushe come up with plan B for us. If borders are close, we will go to Belarus. We will drive there by car and them move to another place. there are flights to Turkey. I will try to be calm. I sohuld be calm. I don't think that I will die. I hope that they will proclaim something after my flight. Honestly I cannot thing. It's really hard for me. Tomorrow I should meditate a bit. Maybe it will help me. I will try to code after this record. After that I will go and take a shower. It's hard. panic attack has been come to me.
 
 # 26 Septemper - Monday - Saint-Petersburg
+
+It's amaizing. Ksusha has come back home. other things were no so good. Situation is still bad.
