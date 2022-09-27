@@ -104,3 +104,4 @@ It's amaizing. Ksusha has come back home. other things were no so good. Situatio
 
 # 27 Septemper - Tuesday - Saint-Petersburg
 
+My mood bacome better. Thoday is Ksushas birthday.
