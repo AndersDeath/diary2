@@ -100,4 +100,4 @@ Today I got panic. it's something new for me. I've exchanged car summer weels to
 
 # 26 Septemper - Monday - Saint-Petersburg
 
-It's amaizing. Ksusha has come back home. other things were no so good. Situation is still bad. I cannot understand what I can do in this sutuation. I have liimitations because of health conditions, but It's not obvious.
+It's amaizing. Ksusha has come back home. other things were no so good. Situation is still bad. I cannot understand what I can do in this sutuation. I have liimitations because of health conditions, but It's not obvious. 4 day befrore evacuation.
