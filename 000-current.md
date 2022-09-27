@@ -104,4 +104,4 @@ It's amaizing. Ksusha has come back home. other things were no so good. Situatio
 
 # 27 Septemper - Tuesday - Saint-Petersburg
 
-My mood bacome better. Thoday is Ksushas birthday. this is very iportant date. She is 30 years old today.
+My mood bacome better. Thoday is Ksushas birthday. this is very iportant date. She is 30 years old today. I am sitting and dring bear.
