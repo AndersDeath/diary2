@@ -112,4 +112,4 @@ Today is my last full day in Russia. I am really nervous. Because of my conditio
 
 # 29 September - Thursday - Saint-Petersburg - Istanbul
 
-I left country. Probably I will live outside for a very long time.
+I left country. Probably I will live outside for a very long time. i crossed the border successfully. 
