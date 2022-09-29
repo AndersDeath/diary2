@@ -112,4 +112,4 @@ Today is my last full day in Russia. I am really nervous. Because of my conditio
 
 # 29 September - Thursday - Saint-Petersburg - Istanbul
 
-I left country. Probably I will live outside for a very long time. i crossed the border successfully. The only thing that officer asked me was a goal of this trip. I answered that It's tourism. It's not true, honestly, but this woman must not know about it. Putin destroyed everything what I had. 
+I left country. Probably I will live outside for a very long time. i crossed the border successfully. The only thing that officer asked me was a goal of this trip. I answered that It's tourism. It's not true, honestly, but this woman must not know about it. Putin destroyed everything what I had. I still need time and power for reflecting and understanding what I expierenced exactly.
