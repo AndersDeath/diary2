@@ -107,4 +107,5 @@ It's amaizing. Ksusha has come back home. other things were no so good. Situatio
 My mood bacome better. Today is Ksushas birthday. this is very iportant date. She is 30 years old today. I am sitting and dring bear. We expected another celebration. It's crearly understandable that the was has broken everything. Even more, Puting ruined everything. That's bullshit.
 
 # 28 September - Wednesday - Saint-Petersburg
+
 Today is my last full day in Russia. I am really nervous. Because of my condition I practically cannot do anything.
