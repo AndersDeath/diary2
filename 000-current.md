@@ -116,4 +116,4 @@ I left country. Probably I will live outside for a very long time. i crossed the
 
 # 30 September - Friday - Istanbul
 
-I had a lot of meetings today. It was quite interesting and fun expierence. Istanbul is absolutely understanable and cozy city. Despite the fact of many aweful news I am in good mood. The prices for goods are quite low here. That's amaizing from my perspective.
+I had a lot of meetings today. It was quite interesting and fun expierence. Istanbul is absolutely understanable and cozy city. Despite the fact of many aweful news I am in good mood. The prices for goods are quite low here. That's amaizing from my perspective. Inecobank debit card is also working here that makes me happy. I do not want to be in rash and trying to find ways of how to fly to Armenia.
