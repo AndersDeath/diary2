@@ -110,10 +110,10 @@ My mood bacome better. Today is Ksushas birthday. this is very iportant date. Sh
 
 Today is my last full day in Russia. I am really nervous. Because of my condition I practically cannot do anything.
 
-# 29 September - Thursday - Saint-Petersburg - Istanbul
+# 29 September - Thursday - Saint-Petersburg - Istanbul - Immigration arriving
 
 I left country. Probably I will live outside for a very long time. i crossed the border successfully. The only thing that officer asked me was a goal of this trip. I answered that It's tourism. It's not true, honestly, but this woman must not know about it. Putin destroyed everything what I had. I still need time and power for reflecting and understanding what I expierenced exactly. The only cool thing here is that I can talk everything I want without problems. all that i see is a catastrofy. CNN texted that about 200 000 people left country. Sure, It's not a 6 millions of ukratians, but the danger for them was undoubtely hight. The only man destroyer and crushed lifes of people from two countries. Essentialy this Putin guy is a monster. I wish him to be dethroned soon.
 
-# 30 September - Friday - Istanbul
+# 30 September - Friday - Istanbul - 1 day of immigration
 
 I had a lot of meetings today. It was quite interesting and fun expierence. Istanbul is absolutely understanable and cozy city. Despite the fact of many aweful news I am in good mood. The prices for goods are quite low here. That's amaizing from my perspective. Inecobank debit card is also working here that makes me happy. I do not want to be in rash and trying to find ways of how to fly to Armenia. By the way, today is the first day of total immigration.
