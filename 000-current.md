@@ -124,3 +124,4 @@ The situation hasn't changed. I am still here in İstanbul.
 The taxi service there is surprisingly aweful. Uber and others doesn't work properly.
 Here taxi drivers select you, not you do it with them. That's very strange. 
 It looks like you are in a trap and cannot plan your trip without problems. Sadly it is true. А 
+Despite this problem, the day was amaizing. 
