@@ -121,3 +121,4 @@ I had a lot of meetings today. It was quite interesting and fun expierence. Ista
 # 01 October - Saturday - İstanbul - 2 day of immigration 
 
 The situation hasn't changed. I am still here in İstanbul.
+The taxi service there is surprisingly aweful. Uber and others doesn't work properly.
