@@ -125,4 +125,4 @@ The taxi service there is surprisingly aweful. Uber and others doesn't work prop
 Here taxi drivers select you, not you do it with them. That's very strange. 
 It looks like you are in a trap and cannot plan your trip without problems. Sadly it is true. А 
 Despite this problem, the day was amaizing. 
-We visited several places of Istanbul bienale.
+We visited several places of Istanbul bienale, nice restaraunt nad metro bridge.
