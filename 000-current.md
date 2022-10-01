@@ -126,4 +126,4 @@ Here taxi drivers select you, not you do it with them. That's very strange.
 It looks like you are in a trap and cannot plan your trip without problems. Sadly it is true. А 
 Despite this problem, the day was amaizing. 
 We visited several places of Istanbul bienale, nice restaraunt nad metro bridge. after that we went to hamam and massage, that were awesome. we really spent good time, despite the fact that we are extrimely tiered now. From tomorrow I will try to go back to meditation and other practices that help we to survive in this fucking world. maybe I will look at criterias for cto and em.
-I need to continue my life and live as it was before the war and fucking putin madness. sure, i cannot understand how to become legal person in this fucking world, but i am sure that i will find a way.
+I need to continue my life and live as it was before the war and fucking putin madness. sure, i cannot understand how to become legal person in this fucking world, but i am sure that i will find a way. the most important thing is to make all documents and find a way how to recieve shengen visa. 
