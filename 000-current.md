@@ -11,4 +11,4 @@ i think a lot about south america, maybe that place is much better that fucking 
 
 # 02 October - Sunday - Istanbul - 3 day of immigration
 
-Today is new third day of immigration.
+Today is new third day of immigration. i think it is fair to count days from this trip, because things that happened in march were calmer and more understanable. 
