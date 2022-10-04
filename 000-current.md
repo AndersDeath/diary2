@@ -19,4 +19,4 @@ Today is the first day after starting of mobilization when I work effectively. I
 
 # 04 Octobaer - Monday - Istanbul - 5 day of immigration
 
-Today i had a full day of meetings. because of it I didn't have enough time for working on mmy perosnal projects. After that I went to restaraunt with Ksusha which was on roof in the hostorical center of Istanbul. By the way, today is 5th day of immigration.
+Today i had a full day of meetings. because of it I didn't have enough time for working on mmy perosnal projects. After that I went to restaraunt with Ksusha which was on roof in the hostorical center of Istanbul. By the way, today is 5th day of immigration. Also I had an interview with Iranian guy who wants to be a part of Drsmile.
