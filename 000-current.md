@@ -19,4 +19,4 @@ Today is the first day after starting of mobilization when I work effectively. I
 
 # 04 Octobaer - Monday - Istanbul - 5 day of immigration
 
-Today i had a full day of meetings. 
+Today i had a full day of meetings. because of it I didn't have enough time for working on mmy perosnal projects.
