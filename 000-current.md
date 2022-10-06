@@ -27,4 +27,4 @@ I've done a lot of things today. It was really cool. In the evening we went to e
 
 # 06 October - Thursday - Istanbul - 6 day of immigration
 
-Today is the last day in istanbul. i've packed all my stuff to suitcases and backpacks. The hole day i spent of programming. We found an instruction how to sned money to russia from ineco. Probably it will work. We need some time for testing this approach.
+Today is the last day in istanbul. i've packed all my stuff to suitcases and backpacks. The hole day i spent of programming. We found an instruction how to sned money to russia from ineco. Probably it will work. We need some time for testing this approach. Now I am goint to cook a dinner and then we will got to the airport.
