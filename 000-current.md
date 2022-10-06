@@ -23,4 +23,4 @@ Today i had a full day of meetings. because of it I didn't have enough time for 
 
 # 05 October - Tuesday - Istanbul - 6 day of immigration
 
-I've done a lot of things today. It was really cool. In the evening we went to exibitoin of one local artist. It was quite interesting. At the same time we faced with a problem of payments from Ineco to russia. We spent evening in attempts to find way to resolve it.
+I've done a lot of things today. It was really cool. In the evening we went to exibitoin of one local artist. It was quite interesting. At the same time we faced with a problem of payments from Ineco to russia. We spent evening in attempts to find way to resolve it. Tomorrow we will proceed. Also today is te final dau in istanbul when we can just walk. Tomorrow we will flight to Egypt and then we will go to Bodrum.
