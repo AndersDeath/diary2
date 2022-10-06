@@ -21,6 +21,8 @@ Today is the first day after starting of mobilization when I work effectively. I
 
 Today i had a full day of meetings. because of it I didn't have enough time for working on mmy perosnal projects. After that I went to restaraunt with Ksusha which was on roof in the hostorical center of Istanbul. By the way, today is 5th day of immigration. Also I had an interview with Iranian guy who wants to be a part of Drsmile. I didn't like him honestly. Tomorrow I will have more time for coding and dealing with my business. it's nice.
 
-# 05 October - Tuesday - Istanbul - 6 day of immigration
+# 05 October - Wednesday - Istanbul - 6 day of immigration
 
 I've done a lot of things today. It was really cool. In the evening we went to exibitoin of one local artist. It was quite interesting. At the same time we faced with a problem of payments from Ineco to russia. We spent evening in attempts to find way to resolve it. Tomorrow we will proceed. Also today is te final dau in istanbul when we can just walk. Tomorrow we will flight to Egypt and then we will go to Bodrum.
+
+# 06 October - Thursday - Istanbul - 6 day of immigration
