@@ -31,4 +31,4 @@ Today is the last day in istanbul. i've packed all my stuff to suitcases and bac
 
 # 07 October - Thursday - Sharm El-Sheikh - 7 day of immigration
 
-Today I woke up in Sharm El-SHeiks hotel near Red sea.
+Today I woke up in Sharm El-SHeiks hotel near Red sea. You probably remember that this place was in the Bible. So, the hottel is quite nice despite the fact taht it's old.
