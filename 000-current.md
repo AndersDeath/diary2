@@ -30,3 +30,5 @@ I've done a lot of things today. It was really cool. In the evening we went to e
 Today is the last day in istanbul. i've packed all my stuff to suitcases and backpacks. The hole day i spent of programming. We found an instruction how to sned money to russia from ineco. Probably it will work. We need some time for testing this approach. Now I am goint to cook a dinner and then we will got to the airport. This night we will be in Egypt. It will be my first visit there. I hope I will spend good time there. So, they flight was quite well. Unfortunately the drunk guy sat near us and did wierd things. He was from Germany, but was born in Turkmen SSR and then he immigrated to Germany. He is Armenian by the way and huge Putins fan. It was interesting case to talk to him, bacause all that he knows about Russia are from TV shows. Survey he has different view on the situaction.
 
 # 07 October - Thursday - Sharm El-Sheikh - 7 day of immigration
+
+Today I woke up in Sharm El-SHeiks hotel near Red sea.
