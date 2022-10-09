@@ -39,3 +39,4 @@ Actually today is the first vacation day. I will be free of DR SMILE for the nex
 
 # 09 October - Sunday - Sharm El-Sheigh - 9 day of immigration
 
+So, today I finally finished with EM and CTO criterias analysing.
