@@ -39,4 +39,4 @@ Actually today is the first vacation day. I will be free of DR SMILE for the nex
 
 # 09 October - Sunday - Sharm El-Sheigh - 9 day of immigration
 
-So, today I finally finished with EM and CTO criterias analysing. It means that I can start slow preparations to the my funute success. Joke. I also did several interesting things: finished one book, downloaded new one, etc. I also spent time on the beach, wich was nice. I was lying on a lounger and thought about different things. Tomrrow I am going to come back to my schedule and proceed learning languages and improving other skills.
+So, today I finally finished with EM and CTO criterias analysing. It means that I can start slow preparations to the my funute success. Joke. I also did several interesting things: finished one book, downloaded new one, etc. I also spent time on the beach, wich was nice. I was lying on a lounger and thought about different things. Tomrrow I am going to come back to my schedule and proceed learning languages and improving other skills. Actually I will work as usual, but without DR SMILE. That is amazing.
