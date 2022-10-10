@@ -43,4 +43,4 @@ So, today I finally finished with EM and CTO criterias analysing. It means that 
 
 # 10 October - Monday - Sharm El-Sheikh - 10 day of immigration
 
-Today Russia answered to blowing up of Crimea bridge.
+Today Russia answered to blowing up of Crimea bridge. They attacked sevral cities.
