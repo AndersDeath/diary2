@@ -43,4 +43,4 @@ So, today I finally finished with EM and CTO criterias analysing. It means that 
 
 # 10 October - Monday - Sharm El-Sheikh - 10 day of immigration
 
-Today Russia answered to blowing up of Crimea bridge. They attacked sevral cities. however today is my first vacation day. It's monday but I do not work. Nice. Also there is a cool piece of news. Portugal officially announced digital nomad visa. It's cool. It means that I will maybe have possibility to immigrate to this country cheaper that I thought. Other time I was reading books and sleeping. 
+Today Russia answered to blowing up of Crimea bridge. They attacked sevral cities. however today is my first vacation day. It's monday but I do not work. Nice. Also there is a cool piece of news. Portugal officially announced digital nomad visa. It's cool. It means that I will maybe have possibility to immigrate to this country cheaper that I thought. Other time I was reading books and sleeping. To be honest I am afraid of my future.
