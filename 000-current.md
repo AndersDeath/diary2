@@ -47,4 +47,4 @@ Today Russia answered to blowing up of Crimea bridge. They attacked sevral citie
 
 # 11 October - Tuesday - Sharm El-Sheikh - 11 day of immigration
 
-Today I finally recorded pppodcast. I also coded a bit. It will get a patent for this word "coded". Tomorrow is the latest day here. I don't want to repeat this experience really. It's full of shit thing honestly. I also has written down a scheme about temporary residency in Armenia.
+Today I finally recorded pppodcast. I also coded a bit. It will get a patent for this word "coded". Tomorrow is the latest day here. I don't want to repeat this experience really. It's full of shit thing honestly. I also has written down a scheme about temporary residency in Armenia. Also I think a lot about visa to Portugal and getting new residency there.
