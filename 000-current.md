@@ -51,4 +51,4 @@ Today I finally recorded pppodcast. I also coded a bit. It will get a patent for
 
 # 12 October - Wednesday - Sharm El-Sheikh - 12 day of immigration
 
-English lessons brcame interesting for me again. 
+English lessons brcame interesting for me again. Today I've started learning english idioms. This is my weak point.
