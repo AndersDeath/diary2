@@ -57,4 +57,4 @@ Dinner was nice. I am sitting in my room now and going to pack my things. Then I
 
 # 13 October - Thursday - Istanbul - 13 day of immigration
 
-This night was tough. About 3.20 am we left Sharm El-Sheikh.
+This night was tough. About 3.20 am we left Sharm El-Sheikh. The airport was in quite old. Some places were dirty. 
