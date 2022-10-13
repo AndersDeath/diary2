@@ -57,3 +57,4 @@ Dinner was nice. I am sitting in my room now and going to pack my things. Then I
 
 # 13 October - Thursday - Istanbul - 13 day of immigration
 
+This night was tough. 
