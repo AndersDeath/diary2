@@ -57,4 +57,4 @@ Dinner was nice. I am sitting in my room now and going to pack my things. Then I
 
 # 13 October - Thursday - Istanbul - 13 day of immigration
 
-This night was tough. About 3.20 am we left Sharm El-Sheikh. The airport was in quite old. Some places were dirty. There are several safety lines of control. The first one is the entrance to ariport territory. The second one is on main entrance into building. The third one is just after entrance. The fourth one is just after passport control. All that checks are very careful and strong. The couse is very simple, several years ago terrorists blowed up russian airplane with hundreds of tourists.
+This night was tough. About 3.20 am we left Sharm El-Sheikh. The airport was in quite old. Some places were dirty. There are several safety lines of control. The first one is the entrance to ariport territory. The second one is on main entrance into building. The third one is just after entrance. The fourth one is just after passport control. All that checks are very careful and strong. The couse is very simple, several years ago terrorists blowed up russian airplane with hundreds of tourists. All people died.
