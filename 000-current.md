@@ -62,4 +62,4 @@ Me and Ksusha slept for half a day and then we got pilates traning and we went t
 
 # 14 October - Friday - Istanbul - Bodrum - 14 day of immigration
 
-Today is exact 2 weeks of immigration. I am really want to go back home. It's more hard this time. I'm tired of all this flights and living in places where I don't want to live. This is absolutely fuck up situation.
+Today is exact 2 weeks of immigration. I am really want to go back home. It's more hard this time. I'm tired of all this flights and living in places where I don't want to live. This is absolutely fuck up situation. Now I'm sitting in airport and waiting for boarding.
