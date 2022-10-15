@@ -68,4 +68,4 @@ I've reached out our Bodrum base. It was the first time when we faced with trans
 
 # 15 October - Saturday - Gündoğan - Turgutreis - 15 day of immigration
 
-So, as I understood I don't live in Bodrum but in Gündoğan. It's a city not so far from Bodrum but this is not exact this place. I think it's very important and as a result I will use only this place as a reference. We visited to Turgutreis. 
+So, as I understood I don't live in Bodrum but in Gündoğan. It's a city not so far from Bodrum but this is not exact this place. I think it's very important and as a result I will use only this place as a reference. We visited to Turgutreis. It's a Bodrum's district. Ksusha wanted to get maniquere there.
