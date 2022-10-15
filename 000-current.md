@@ -66,6 +66,6 @@ Today is exact 2 weeks of immigration. I am really want to go back home. It's mo
 
 I've reached out our Bodrum base. It was the first time when we faced with transfer problems. Firm that should provide it to use just didn't come. Due to tthis we had to get a taxi to our apartments. Sure It was not so convinient, but we successfully came here. Booking obligated to fire back money for the transfer and taxi. The place looks like a village with hotels. This is quite place where I really want to finish with some my business. It's funny that this morning I was in Istanbul and now I am in many kilometres from that place. I like tachnologies and airplanes. Tomorrow we need to buy some necessary stuff. So, but honestly I still don't understand if this I like this place, but I will be here for approximetly two months.
 
-# 15 October - Saturday - Gündoğan - 15 day of immigration
+# 15 October - Saturday - Gündoğan - Turgutreis - 15 day of immigration
 
-So, as I understood I don't live in Bodrum but in Gündoğan. It's a city not so far from Bodrum but this is not exact this place. I think it's very important and as a result I will use only this place as a reference.
+So, as I understood I don't live in Bodrum but in Gündoğan. It's a city not so far from Bodrum but this is not exact this place. I think it's very important and as a result I will use only this place as a reference. 
