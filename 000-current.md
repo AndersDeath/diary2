@@ -72,4 +72,4 @@ So, as I understood I don't live in Bodrum but in Gündoğan. It's a city not so
 
 # 16 October - Sunday - Gündoğan - 16 day of immigration
 
-Today I finished a lot of tasks. I finally started mt sharenium project in very early alpha version. I am really happy bacause of it. At the same time I went for a walk for a while and got nice time. Unfortunately problems with ineco card happend in the evening. it's wierd that card didn't work in a shop, but I sucessfully payed for skype by the same card.
+Today I finished a lot of tasks. I finally started mt sharenium project in very early alpha version. I am really happy bacause of it. At the same time I went for a walk for a while and got nice time. Unfortunately problems with ineco card happend in the evening. it's wierd that card didn't work in a shop, but I sucessfully payed for skype by the same card. Anyway I ineco customer support told me that it's just a problem with ineco not with me because of my sitting in Turkey.
