@@ -76,4 +76,4 @@ Today I finished a lot of tasks. I finally started mt sharenium project in very 
 
 # 17 October - Monday - Gündoğan - 17 day of immigration
 
-Today I was working on articles mostly. The same thing I will do tomorrow. I worked a bit on my sharenium project. Now it's not necessary to buy domain name. I found a lot of architectual problems there. I need to fix them initially.
+Today I was working on articles mostly. The same thing I will do tomorrow. I worked a bit on my sharenium project. Now it's not necessary to buy domain name. I found a lot of architectual problems there. I need to fix them initially. Tomowwor I will start working by my usual schedule.
