@@ -90,3 +90,4 @@ Trying to be calm and concentrated, I’m looking to different sides and plan my
 
 Whatever it is, I don’t lose heart and try to find a solution to problem
 
+Today I was working on bot and on article. As a result did a lot today.
