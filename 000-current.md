@@ -79,3 +79,14 @@ Today I finished a lot of tasks. I finally started mt sharenium project in very 
 Today I was working on articles mostly. The same thing I will do tomorrow. I worked a bit on my sharenium project. Now it's not necessary to buy domain name. I found a lot of architectual problems there. I need to fix them initially. Tomowwor I will start working by my usual schedule. It's time to dive back to the languages and other inportant stuff. Ineco bank resolved all problems and now card works well. I already tested it in small restaraunt and a supermarket. At the same time I found that this apartments are not so ocnvinient for work. Terrace is not useful, the same stuff is with veranda. I need to resolve it somehow, but I do not know how. Will see. This evening we will go for a walk. I want to look at harbour or I like to call it marina. I also recalled that we finished with movie Brazil by by Terry Gilliam. I was really impressed my this work. I agree it's masterpiece. Autocracy as is. I live in this env, and I can say that it's true. I mean this movie is true. I will think about it many times in the future. It really has source for thinking.
 
 # 18 October - Tuesday - Gündoğan - 18 day of immigration
+
+I've decided to just copy my today's medium note. It's for history.
+
+I didn’t write notes for a quite long time. I was busy and worked hard on solving my problems. Last time I published something in the beginning of summer. It’s autumn outside now.
+
+For the last several months I was in Armenia, Russia, and Egypt. Currently I’m in Turkey. Fun fact is that it looks like I fled from mobilization. However this trip was planned before. I wanted to lose tax residency in Russia and for reaching this goal I had to spent another two months outside of the country. Currently it’s not so obvious if I can come back to Russia. Definitely I will lose tax residency there, but It’s not relevant for me anymore. I don’t want to be catched my military authorities just because I’m male.
+
+Trying to be calm and concentrated, I’m looking to different sides and plan my future. I really want to immigrate to EU, despite the fact that they complicate the process of obtaining visas for Russian passport holders. In the worst case, I will have to consider some other countries.
+
+Whatever it is, I don’t lose heart and try to find a solution to problem
+
