@@ -90,4 +90,4 @@ Trying to be calm and concentrated, I’m looking to different sides and plan my
 
 Whatever it is, I don’t lose heart and try to find a solution to problem
 
-Today I was working on bot and on article. As a result did a lot to this moment. At the same time I've got some not good news. It looks like Protugal will take statements for visa only in countries of residency.
+Today I was working on bot and on article. As a result did a lot to this moment. At the same time I've got some not good news. It looks like Protugal will take statements for visa only in countries of residency. It means that I will have to ask for visa in Moscow which is irrelevant now.
