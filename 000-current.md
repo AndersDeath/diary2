@@ -94,4 +94,4 @@ Today I was working on bot and on article. As a result did a lot to this moment.
 
 # 18 October - Tuesday - Gündoğan - 19 day of immigration
 
-Today I came back to normal condition. I meditated and did some sport. Also I came back to reactjs investigation. I think I've got everything for angular solution and now I need to switch again to that topic.
+Today I came back to normal condition. I meditated and did some sport. Also I came back to reactjs investigation. I think I've got everything for angular solution and now I need to switch again to that topic. It's obvious that Reactjs became a front-end standard nowaday.
