@@ -91,3 +91,7 @@ Trying to be calm and concentrated, I’m looking to different sides and plan my
 Whatever it is, I don’t lose heart and try to find a solution to problem
 
 Today I was working on bot and on article. As a result did a lot to this moment. At the same time I've got some not good news. It looks like Protugal will take statements for visa only in countries of residency. It means that I will have to ask for visa in Moscow which is irrelevant now. Also I published some new note on medium that I didn't for a very long time. I think I need to resurect this tradition and to do it more and more. It's really important. I also decided to publish all my notes on the internet. I am tired to live in fear. I need to share my thoughts with everyone. I think it's right choice. Anyway Let's see what will be the result.
+
+# 18 October - Tuesday - Gündoğan - 19 day of immigration
+
+Today I came back to normal condition.
