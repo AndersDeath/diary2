@@ -98,4 +98,4 @@ Today I came back to normal condition. I meditated and did some sport. Also I ca
 
 # 19 October - Tuesday - Gündoğan - 20 day of immigration
 
-I've recorded nother video today. It was about flora of area shere I live now. After that I trained some maths. Finally I found all books that I need for it. There is not only just theory, but exersices as well. I also thought a lot about Russian situation and decided to distance from it a bit. For me it's clear that I cannot go back to the country.
+I've recorded nother video today. It was about flora of area shere I live now. After that I trained some maths. Finally I found all books that I need for it. There is not only just theory, but exersices as well. I also thought a lot about Russian situation and decided to distance from it a bit. For me it's clear that I cannot go back to the country. It's extrimely hard to accept it as a fact.
