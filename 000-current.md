@@ -103,3 +103,5 @@ I've recorded nother video today. It was about flora of area shere I live now. A
 Also I will work more on programming tomorrow. I want to proceed working on some reactjs stuff that I consider as my programmer's future. It's true I need to thing as a manager but I also want to be still an engineer. It's an important part of my life and I can't remove it. Also I deided to think more in English. What I mean? I mean that when I work on something I need to thing about this using English words and forms. It's absolutely like I am doing now. I am writing a text without a thought in Russian. It's tremendous important thing. I need to keep doing it. By the way I've just remembered that tomorrow I wil work on new agule process that I want to introduce in my team. It's not about programming. It's about managing teams.
 
 # 20 October - Friday - Gündoğan - 21 day of immigration
+
+today I recorded another public view for youtube.
