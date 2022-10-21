@@ -104,4 +104,4 @@ Also I will work more on programming tomorrow. I want to proceed working on some
 
 # 20 October - Friday - Gündoğan - 21 day of immigration
 
-today I recorded another public view for youtube. I'm not sure that I will have time to edit it today.
+today I recorded another public view for youtube. I'm not sure that I will have time to edit it today. I also investigated immigration questions.
