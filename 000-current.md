@@ -104,4 +104,4 @@ Also I will work more on programming tomorrow. I want to proceed working on some
 
 # 20 October - Friday - Gündoğan - 21 day of immigration
 
-today I recorded another public view for youtube. I'm not sure that I will have time to edit it today. I also investigated immigration questions. Actully it's a topic in my video. Also I read a bit about programming today. Yesterday we started watichng twin peaks series in English. It's simple I would say. It's not so hard as I thought. I aslo recorded pppodcast. Unfortunately the previous one was recorded with problem and audio is empty.
+today I recorded another public view for youtube. I'm not sure that I will have time to edit it today. I also investigated immigration questions. Actully it's a topic in my video. Also I read a bit about programming today. Yesterday we started watichng twin peaks series in English. It's simple I would say. It's not so hard as I thought. I aslo recorded pppodcast. Unfortunately the previous one was recorded with problem and audio is empty. I made a mistake with plug in mic to the phone.
