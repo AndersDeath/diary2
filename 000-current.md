@@ -108,4 +108,4 @@ today I recorded another public view for youtube. I'm not sure that I will have 
 
 # 21 October - Friday - Bodrub - ündoğan - 22 day of immigration
 
-Today I was in Bodrum city. I got my haircut and did nice lunch.
+Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool castle in Bodrum.
