@@ -108,4 +108,4 @@ today I recorded another public view for youtube. I'm not sure that I will have 
 
 # 21 October - Friday - Bodrub - ündoğan - 22 day of immigration
 
-Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool castle in Bodrum. It's no typiccal eastern bulding because it was built by crusiders in 15th century.
+Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool castle in Bodrum. It's no typiccal eastern bulding because it was built by crusiders in 15th century. This place is in awesome conditino and has not only artifacts from middlevil years,but from ancient greece as well.
