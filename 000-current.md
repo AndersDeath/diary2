@@ -102,12 +102,12 @@ I've recorded nother video today. It was about flora of area shere I live now. A
 
 Also I will work more on programming tomorrow. I want to proceed working on some reactjs stuff that I consider as my programmer's future. It's true I need to thing as a manager but I also want to be still an engineer. It's an important part of my life and I can't remove it. Also I deided to think more in English. What I mean? I mean that when I work on something I need to thing about this using English words and forms. It's absolutely like I am doing now. I am writing a text without a thought in Russian. It's tremendous important thing. I need to keep doing it. By the way I've just remembered that tomorrow I wil work on new agule process that I want to introduce in my team. It's not about programming. It's about managing teams.
 
-# 21 October - Friday - Gündoğan - 21 day of immigration
+# 21 October - Friday - Gündoğan - 22 day of immigration
 
 today I recorded another public view for youtube. I'm not sure that I will have time to edit it today. I also investigated immigration questions. Actully it's a topic in my video. Also I read a bit about programming today. Yesterday we started watichng twin peaks series in English. It's simple I would say. It's not so hard as I thought. I aslo recorded pppodcast. Unfortunately the previous one was recorded with problem and audio is empty. I made a mistake with plug in mic to the phone. At the same time I felt bad this morning. I was annoyed for unclear reasons. But I found a way and concentrated successfully.
 
-# 22 October - Saturday - Bodrum - Gündoğan - 22 day of immigration
+# 22 October - Saturday - Bodrum - Gündoğan - 23 day of immigration
 
 Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool castle in Bodrum. It's no typiccal eastern bulding because it was built by crusiders in 15th century. This place is in awesome conditino and has not only artifacts from middlevil years,but from ancient greece as well. After that we found a local bus and went to shopping mall and walked there. Then we decided to find local bus and went back home in Gundogan. After 1 hour of waiting we finally reached out bus station and bus that could drive us to our city. It was not so easy and we exhausted. But at the same time the day was nice. I made around 22000 steps today. It's very good for my health. Tomorrow we are going to another bay. It's time to invesigate new things. Also I am goind to publish an important video tomorrow that I recorded yesterday. Unfortunately I didn't have time to do it today.
 
-# 22 October - Saturday - Bodrum - Gündoğan - 23 day of immigration
+# 22 October - Saturday - Bodrum - Gündoğan - 24 day of immigration
