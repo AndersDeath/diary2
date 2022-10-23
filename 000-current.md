@@ -110,4 +110,4 @@ today I recorded another public view for youtube. I'm not sure that I will have 
 
 Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool castle in Bodrum. It's no typiccal eastern bulding because it was built by crusiders in 15th century. This place is in awesome conditino and has not only artifacts from middlevil years,but from ancient greece as well. After that we found a local bus and went to shopping mall and walked there. Then we decided to find local bus and went back home in Gundogan. After 1 hour of waiting we finally reached out bus station and bus that could drive us to our city. It was not so easy and we exhausted. But at the same time the day was nice. I made around 22000 steps today. It's very good for my health. Tomorrow we are going to another bay. It's time to invesigate new things. Also I am goind to publish an important video tomorrow that I recorded yesterday. Unfortunately I didn't have time to do it today.
 
-# 22 October - Saturday - Bodrum - Gündoğan - 24 day of immigration
+# 23 October - Saturday - Bodrum - Gündoğan - 24 day of immigration
