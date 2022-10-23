@@ -25,7 +25,7 @@ Today i had a full day of meetings. because of it I didn't have enough time for 
 
 I've done a lot of things today. It was really cool. In the evening we went to exibitoin of one local artist. It was quite interesting. At the same time we faced with a problem of payments from Ineco to russia. We spent evening in attempts to find way to resolve it. Tomorrow we will proceed. Also today is te final dau in istanbul when we can just walk. Tomorrow we will flight to Egypt and then we will go to Bodrum.
 
-# 06 October - Thursday - Istanbul - 6 day of immigration
+# 06 October - Thursday - Istanbul - 7 day of immigration
 
 Today is the last day in istanbul. i've packed all my stuff to suitcases and backpacks. The hole day i spent of programming. We found an instruction how to sned money to russia from ineco. Probably it will work. We need some time for testing this approach. Now I am goint to cook a dinner and then we will got to the airport. This night we will be in Egypt. It will be my first visit there. I hope I will spend good time there. So, they flight was quite well. Unfortunately the drunk guy sat near us and did wierd things. He was from Germany, but was born in Turkmen SSR and then he immigrated to Germany. He is Armenian by the way and huge Putins fan. It was interesting case to talk to him, bacause all that he knows about Russia are from TV shows. Survey he has different view on the situaction.
 
