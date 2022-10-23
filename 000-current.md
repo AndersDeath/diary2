@@ -112,4 +112,4 @@ Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool
 
 # 23 October - Saturday - Yalıkavak - Gündoğan - 24 day of immigration
 
-Today we were in Yalıkavak city. It's about 20 minutes from our home.
+Today we were in Yalıkavak city. It's about 20 minutes from our home. Also we've understood how buses work here. There is a schedule on a bus station and buses come in time. I've just took a photo of them and will use it futher.
