@@ -115,3 +115,5 @@ Today I was in Bodrum city. I got my haircut and did nice lunch. There is a cool
 Today we were in Yalıkavak city. It's about 20 minutes from our home. Also we've understood how buses work here. There is a schedule on a bus station and buses come in time. I've just took a photo of them and will use it futher. I've published my second video today. It's about immigration prcess. I am happpy that I've done it because it the next step of my fiting with myself. I want to fix some fears. at the same time we watche nother 4 episodes of twit peaks series. I am a huge fan of it, honestly. At the same time tomorrow will be my first working day for DR SMILE after vacation. I don't waant to work, but I have to and I will do it. So, now I'm going to brush my teeth and go to sleep. It will be hard day tomorrow probably. I will have to do a lot of stuff.
 
 # 24 October - Monday  - Gündoğan - 25 day of immigration
+
+As I sad yesterday it's my first working day after the last vacastion. It's sad, because I really don't want to work.
