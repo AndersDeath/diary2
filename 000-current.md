@@ -116,4 +116,4 @@ Today we were in Yalıkavak city. It's about 20 minutes from our home. Also we'v
 
 # 24 October - Monday  - Gündoğan - 25 day of immigration
 
-As I sad yesterday it's my first working day after the last vacastion. It's sad, because I really don't want to work.
+As I sad yesterday it's my first working day after the last vacastion. It's sad, because I really don't want to work. However I've updated and refactored survey engine.
