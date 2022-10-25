@@ -120,4 +120,4 @@ As I sad yesterday it's my first working day after the last vacastion. It's sad,
 
 # 25 October - Tuesday  - Gündoğan - 26 day of immigration
 
-I've had a lot of meetings today, including very interesting one with Anatolii who is my QA engineer.
+I've had a lot of meetings today, including very interesting one with Anatolii who is my QA engineer. I hope I will help him with education.
