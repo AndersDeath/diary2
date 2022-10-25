@@ -120,4 +120,4 @@ As I sad yesterday it's my first working day after the last vacastion. It's sad,
 
 # 25 October - Tuesday  - Gündoğan - 26 day of immigration
 
-I've had a lot of meetings today, including very interesting one with Anatolii who is my QA engineer. I hope I will help him with education. At the same time I texted to Chris show is CEO of the DR SMILE company about rhetoric course and he offered me a course from the company and to make all hands meeting in fron of the full company. It's really scary thing for me, but I have to break this ice. At the same time I did a lot of non-coding stuff today, which is nice.
+I've had a lot of meetings today, including very interesting one with Anatolii who is my QA engineer. I hope I will help him with education. At the same time I texted to Chris show is CEO of the DR SMILE company about rhetoric course and he offered me a course from the company and to make all hands meeting in fron of the full company. It's really scary thing for me, but I have to break this ice. At the same time I did a lot of non-coding stuff today, which is nice. Now I am goning to cook. Today I decided to help and to do it for my Ksusha.
