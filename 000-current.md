@@ -124,4 +124,4 @@ I've had a lot of meetings today, including very interesting one with Anatolii w
 
 # 26 October - Tuesday  - Gündoğan - 27 day of immigration
 
-Today I did a lot of code.
+Today I did a lot of code. Mostly I was working on survey engine which is quite exiting project.
