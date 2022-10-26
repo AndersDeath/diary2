@@ -124,4 +124,4 @@ I've had a lot of meetings today, including very interesting one with Anatolii w
 
 # 26 October - Tuesday  - Gündoğan - 27 day of immigration
 
-Today I did a lot of code. Mostly I was working on survey engine which is quite exiting project. I will do a free library after this stuff. Beside that I learned a lot of interesting stuff including product thinking, english and rhetoric. Honestly after finishing of the vacation I don't have a lot of events, becouse I am home mostly. what I can say more? I do not know. Maybe only that Zigar is a gey.
+Today I did a lot of code. Mostly I was working on survey engine which is quite exiting project. I will do a free library after this stuff. Beside that I learned a lot of interesting stuff including product thinking, english and rhetoric. Honestly after finishing of the vacation I don't have a lot of events, becouse I am home mostly. what I can say more? I do not know. Maybe only that Zigar is a homosexual person. He is my favourite journalist and his coming out was a huge suprprise for me.
