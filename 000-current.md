@@ -128,4 +128,4 @@ Today I did a lot of code. Mostly I was working on survey engine which is quite 
 
 # 27 October - Tuesday  - Gündoğan - 28 day of immigration
 
-I'm really tiered becouase of news and I just stopped reading then. Now I am fully concentrated on my own business. Today I woke ip in time and did a lot of important things. I did maths and a bit management stuff. Also I gathered information for my brother. He wants to try himself in tester position.
+I'm really tiered becouase of news and I just stopped reading then. Now I am fully concentrated on my own business. Today I woke ip in time and did a lot of important things. I did maths and a bit management stuff. Also I gathered information for my brother. He wants to try himself in tester position. I assume it will be good thing for him.
