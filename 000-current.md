@@ -128,4 +128,4 @@ Today I did a lot of code. Mostly I was working on survey engine which is quite 
 
 # 27 October - Tuesday  - Gündoğan - 28 day of immigration
 
-I'm really tiered becouase of news and I just stopped reading then. 
+I'm really tiered becouase of news and I just stopped reading then. Now I am fully concentrated on my own business.
