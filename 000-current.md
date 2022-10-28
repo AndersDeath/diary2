@@ -132,4 +132,4 @@ I'm really tiered becouase of news and I just stopped reading then. Now I am ful
 
 # 28 October - Tuesday  - Gündoğan - 29 day of immigration
 
-Fridays are always awesome. It's so cool to think about weekend. Today I had a lot of meetings as usual on fridays. On one of them I talked to Damian who is a my coleege and we've been working together for the last two years.
+Fridays are always awesome. It's so cool to think about weekend. Today I had a lot of meetings as usual on fridays. On one of them I talked to Damian who is a my coleege and we've been working together for the last two years. The accouthition of DRSMILE by Shtraumann will be finished next june or july. It means that I should be ready for it in quite short period for time.
