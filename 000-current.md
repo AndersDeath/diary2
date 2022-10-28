@@ -132,4 +132,4 @@ I'm really tiered becouase of news and I just stopped reading then. Now I am ful
 
 # 28 October - Tuesday  - Gündoğan - 29 day of immigration
 
-Fridays are always awesome. It's so cool to think about weekend.
+Fridays are always awesome. It's so cool to think about weekend. Today I had a lot of meetings as usual on fridays.
