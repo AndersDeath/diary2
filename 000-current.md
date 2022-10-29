@@ -136,4 +136,4 @@ Fridays are always awesome. It's so cool to think about weekend. Today I had a l
 
 # 29 October - Tuesday  - Gündoğan - 30 day of immigration
 
-Today is day of Turkey. Ataturk and red flags are everywhere. It looks like a kult of personality. I thought about the same thing in USSR.
+Today is day of Turkey. Ataturk and red flags are everywhere. It looks like a kult of personality. I thought about the same thing in USSR. Atmosphere is very similar.
