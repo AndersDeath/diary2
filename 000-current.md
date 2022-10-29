@@ -136,4 +136,4 @@ Fridays are always awesome. It's so cool to think about weekend. Today I had a l
 
 # 29 October - Tuesday  - Gündoğan - 30 day of immigration
 
-Today is day of Turkey
+Today is day of Turkey. Ataturk and red flags are everywhere.
