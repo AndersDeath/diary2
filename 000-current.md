@@ -140,4 +140,4 @@ Today is day of Turkey. Ataturk and red flags are everywhere. It looks like a ku
 
 # 30 October - Tuesday  - Gündoğan - Turgutreis - 31 day of immigration
 
-We were in Trougutreis today. It's a city in one hour by bus from our one. We just walked there, worked a bit from starbucks and spent a good time. Next saturday we are going for short yaht trip. We bought it on airnbn.
+We were in Trougutreis today. It's a city in one hour by bus from our one. We just walked there, worked a bit from starbucks and spent a good time. Next saturday we are going for short yaht trip. We bought it on airnbn. It's cool because I really wanted it. Even before covid I wanted to get capitan lincese.
