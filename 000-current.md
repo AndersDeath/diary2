@@ -144,4 +144,4 @@ We were in Trougutreis today. It's a city in one hour by bus from our one. We ju
 
 # 31 October - Monday  - Gündoğan - 31 day of immigration
 
-I was talking to people for whole day.
+I was talking to people for whole day. It is insane. I finished with all planned things.
