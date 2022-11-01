@@ -1,3 +1,3 @@
-# 01 September - Tuesday  - Gündoğan - 33 day of immigration
+# 01 September - Tuesday - Gündoğan - 33 day of immigration
 
-I decided to count immigration days 
+I decided to count immigration days a month ago. I think it's important to remember the time of the new life. I consider that my previouse life has been end. And not only my life, but many people from Russia, Belarus and Ukrain had to change everything. The couse is obviouse - the war. I will call it the war despite the fact that it's prohibited in Russia. I also remembered that yesterday Ksusha found chamelion on roof terrace.
