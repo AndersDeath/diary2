@@ -145,3 +145,5 @@ We were in Trougutreis today. It's a city in one hour by bus from our one. We ju
 # 31 October - Monday  - Gündoğan - 32 day of immigration
 
 I was talking to people for whole day. It is insane. I finished with all planned things. I significantly improved survey engine. Anyway I will wrire new version of it with all fixes and ideas that I developed during this work. Honestly the result is much different. Anyway It's the only blocker for my future articles and projects. Also I did a lot of maths today's morning. It's cool and nice by the way. I also started working on profiles. I want to create a profile of each person I work with. I am extrimely tieded and dont' know what I can add today. I will cook shortly and eat my dinner.
+
+# 01 September - Tuesday  - Gündoğan - 33 day of immigration
