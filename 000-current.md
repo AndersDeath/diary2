@@ -4,4 +4,4 @@ I decided to count immigration days a month ago. I think it's important to remem
 
 # 02 November - Wednesday - Gündoğan - 34 day of immigration
 
-Today I was working mostly on educatin and programming stuff. I finished with a lot of things. I woke up in time and immidiently started learing things. Also I published third video on my youtube channgel. I was speaking about internal immigration. I like to record videos it's just fun. 
+Today I was working mostly on educatin and programming stuff. I finished with a lot of things. I woke up in time and immidiently started learing things. Also I published third video on my youtube channgel. I was speaking about internal immigration. I like to record videos it's just fun. I am trying to make myself better evey day. Luckily today I feel better than yesterday. I slept well.
