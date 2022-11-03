@@ -8,4 +8,4 @@ Today I was working mostly on educatin and programming stuff. I finished with a 
 
 # 03 November - Thursday - Gündoğan - 35 day of immigration
 
-I made a small bot helper which will help me with prtuguese learning. The clue is that this bot sends words every 5 minutes. I can just read messages and repeat words.
+I made a small bot helper which will help me with prtuguese learning. The clue is that this bot sends words every 5 minutes. I can just read messages and repeat words. also I finished with validation of required fields in survey engine.
