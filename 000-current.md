@@ -8,4 +8,4 @@ Today I was working mostly on educatin and programming stuff. I finished with a 
 
 # 03 November - Thursday - Gündoğan - 35 day of immigration
 
-I made a small bot helper which will help me with prtuguese learning. The clue is that this bot sends words every 5 minutes. I can just read messages and repeat words. also I finished with validation of required fields in survey engine. Tommorow is the public holiday in Russia. We are going to walk in another city that is near ours one. I also trained math and management today.
+I made a small bot helper which will help me with prtuguese learning. The clue is that this bot sends words every 5 minutes. I can just read messages and repeat words. also I finished with validation of required fields in survey engine. Tommorow is the public holiday in Russia. We are going to walk in another city that is near ours one. I also trained math and management today. TOday I feel that I am tiered.
