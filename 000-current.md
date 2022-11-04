@@ -12,4 +12,4 @@ I made a small bot helper which will help me with prtuguese learning. The clue i
 
 # 04 November - Thursday - Gündoğan - GÜMÜŞLÜK - 36 day of immigration
 
-We visited gumusluk today. It's a small town in 30 minutes from home. We spent about 2 hours there and then came back to gundogan. Today I've built workable version of my telegram bot that can help me to remember portuguese words.
+We visited gumusluk today. It's a small town in 30 minutes from home. We spent about 2 hours there and then came back to gundogan. Today I've built workable version of my telegram bot that can help me to remember portuguese words. I prepeared a image generator and now the bot sends not just strings but images with a word and a translation.
