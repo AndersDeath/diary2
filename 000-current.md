@@ -16,4 +16,4 @@ We visited gumusluk today. It's a small town in 30 minutes from home. We spent a
 
 # 05 November - Saturday - Gündoğan - Turgutreis - 27 day of immigration
 
-Yesterday I imporove bot assistend which will help me with learning Portuguese language. it's really nice.
+Yesterday I imporove bot assistend which will help me with learning Portuguese language. it's really nice. So, Today we ride a yaht.
