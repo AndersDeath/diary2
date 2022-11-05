@@ -10,6 +10,8 @@ Today I was working mostly on educatin and programming stuff. I finished with a 
 
 I made a small bot helper which will help me with prtuguese learning. The clue is that this bot sends words every 5 minutes. I can just read messages and repeat words. also I finished with validation of required fields in survey engine. Tommorow is the public holiday in Russia. We are going to walk in another city that is near ours one. I also trained math and management today. TOday I feel that I am tiered. It's interesting that I don't know what to write, because not so many events happened. Honestly it's cool. I thing that makes me calm. The only thing that worries me now. I don't have cool and comfortable chair. It will be the first thing that I will buy after getting home.
 
-# 04 November - Thursday - Gündoğan - GÜMÜŞLÜK - 36 day of immigration
+# 04 November - Firday - Gündoğan - GÜMÜŞLÜK - 36 day of immigration
 
 We visited gumusluk today. It's a small town in 30 minutes from home. We spent about 2 hours there and then came back to gundogan. Today I've built workable version of my telegram bot that can help me to remember portuguese words. I prepeared a image generator and now the bot sends not just strings but images with a word and a translation. It looks better as well. Tomorrow we are going to trip on a boat in turgutreis. I realy exatied about it. Unfortunately it means that I need to weak up erlier than I usually do in on saturdays. But it's the only way. If you think about other business then I did nothing today. At the same time I eat a beautiful desert in gumusluk. Also It was last time when I visited that place. It's really nothing to do in this place. So. Now I will go to prepare myself to sleep. Thank you.
+
+# 05 November - 
