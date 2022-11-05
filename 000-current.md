@@ -20,4 +20,4 @@ Yesterday I imporove bot assistend which will help me with learning Portuguese l
 
 I also had a long call with Oleg today. We discussed visa quesiton and our lives in general. he is a smart guy, but sometimes I see how it's hard for him to analyze the situation. It's a part of his personality. I know him gor a whole life and our friendshipt matters a lot for me. I wish him all the best. He is like a brother for me. honestly I miss him very much.
 
-Yesterday there was a earthquake in Izmir. Today Is the same near Rodos island that is very close to me. It's fun but I feel how our house is shaking a bit. Firstly I thought that I just drunk to much wine today on the boat, but it's not. It's the first time in my life when i feel earchquake things. 
+Yesterday there was a earthquake in Izmir. Today Is the same near Rodos island that is very close to me. It's fun but I feel how our house is shaking a bit. Firstly I thought that I just drunk to much wine today on the boat, but it's not. It's the first time in my life when i feel earthquake things. 
