@@ -14,10 +14,12 @@ I made a small bot helper which will help me with prtuguese learning. The clue i
 
 We visited gumusluk today. It's a small town in 30 minutes from home. We spent about 2 hours there and then came back to gundogan. Today I've built workable version of my telegram bot that can help me to remember portuguese words. I prepeared a image generator and now the bot sends not just strings but images with a word and a translation. It looks better as well. Tomorrow we are going to trip on a boat in turgutreis. I realy exatied about it. Unfortunately it means that I need to weak up erlier than I usually do in on saturdays. But it's the only way. If you think about other business then I did nothing today. At the same time I eat a beautiful desert in gumusluk. Also It was last time when I visited that place. It's really nothing to do in this place. So. Now I will go to prepare myself to sleep. Thank you.
 
-# 05 November - Saturday - Gündoğan - Turgutreis - 27 day of immigration
+# 05 November - Saturday - Gündoğan - Turgutreis - 37 day of immigration
 
 Yesterday I imporove bot assistend which will help me with learning Portuguese language. it's really nice. So, Today we ride a yaht. It was airbnb expierence. It was the first time when we bought it. Kapitan was very nice person. Luckly he knows english very well and we didn't have communication problems with him. We rent it for 3 hour but in fact our trip was about 4 ones. It's really cool. We discussed politics, economy, and how to drive yaht. I even tried to rule it. In the middle of the trip capitan Rizo cooked a lunch for us. It was simple.but cool. I rally want to buy this kind of boat to ,yself. It looks like a dream.
 
 I also had a long call with Oleg today. We discussed visa quesiton and our lives in general. he is a smart guy, but sometimes I see how it's hard for him to analyze the situation. It's a part of his personality. I know him gor a whole life and our friendshipt matters a lot for me. I wish him all the best. He is like a brother for me. honestly I miss him very much.
 
 Yesterday there was a earthquake in Izmir. Today Is the same near Rodos island that is very close to me. It's fun but I feel how our house is shaking a bit. Firstly I thought that I just drunk to much wine today on the boat, but it's not. It's the first time in my life when i feel earthquake things. Far enough, now I will go to watch a series. 
+
+# 06 November - Saturday - Gündoğan - 38 day of immigration
