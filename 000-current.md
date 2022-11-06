@@ -23,3 +23,5 @@ I also had a long call with Oleg today. We discussed visa quesiton and our lives
 Yesterday there was a earthquake in Izmir. Today Is the same near Rodos island that is very close to me. It's fun but I feel how our house is shaking a bit. Firstly I thought that I just drunk to much wine today on the boat, but it's not. It's the first time in my life when i feel earthquake things. Far enough, now I will go to watch a series. 
 
 # 06 November - Saturday - Gündoğan - 38 day of immigration
+
+Today is a storm outside. It's been being here for whole day and I don't know when it stops.
