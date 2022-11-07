@@ -32,3 +32,4 @@ What I did today:
 1. Updated my survey solution to angular 14
 2. Made a prototype of camera component
 3. Walked a lot around my house.
+4. The local photographer taken a photo for Green Card
