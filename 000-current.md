@@ -37,4 +37,5 @@ What I did today:
 6. Did some maths and other things.
 7. Learned management a bit. Unfortunately I didn't have enough time for it today.
 8. I found an interesting youtube channel which helps with with writing skills. I will use it.
-9. 
+
+At the same time I feel that I am tiered of all this situation and want to go back home.
