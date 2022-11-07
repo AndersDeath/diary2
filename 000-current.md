@@ -22,6 +22,8 @@ I also had a long call with Oleg today. We discussed visa quesiton and our lives
 
 Yesterday there was a earthquake in Izmir. Today Is the same near Rodos island that is very close to me. It's fun but I feel how our house is shaking a bit. Firstly I thought that I just drunk to much wine today on the boat, but it's not. It's the first time in my life when i feel earthquake things. Far enough, now I will go to watch a series. 
 
-# 06 November - Saturday - Gündoğan - 38 day of immigration
+# 06 November - Sunday - Gündoğan - 38 day of immigration
 
 Today is a storm outside. It's been being here for whole day and I don't know when it stops. I did not a lot of things. Mostly I was working on cleaning my laptop's harddrive and installing updates. I updated ios and macos as well. I saw in apple presentation that now I shold have a possiblity to use iphones camera as web one, but it doesn't work. Probably it's something tricky here. As usualy it doesn't work from the box. It's bullshit. I really have waited this funcitnality, but it's apple it couldn't work fine. Also I've tried to do something with autocad licence for Ksusha. When I was reinstalling the application system was crushed. I've hardly found a way how it recover everying. Luckily I found a way and now it works fine. At the same time I had a plan to record a video today. Unfortunately I didn't do it because of hurricane and storm. It's interesting to see thunder in Noveber. Please understand me correctly, November is a winter month in Russia and it's impossible to see thinder in that time. Tomotrrow the new worling week will start. I will dive deep into coding again. It will be also cool if thunder will stop. But the way I had a greate call with Olger yesterday, with my mother today, and a few messages from Andrei Odintsov. He fled to Montenegro as he wanted to do. So, that is probably it for today.
+
+# 07 November - Saturday - Gündoğan - 39 day of immigration
