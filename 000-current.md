@@ -38,4 +38,4 @@ What I did today:
 7. Learned management a bit. Unfortunately I didn't have enough time for it today.
 8. I found an interesting youtube channel which helps with with writing skills. I will use it.
 
-At the same time I feel that I am tiered of all this situation and want to go back home. It's so sad that I cannot do it. I wish all the worst to Putin. This fucking murderer and maniac shooted my life and ruined thousand of others ones. So, I still cannot stop think about it.
+At the same time I feel that I am tiered of all this situation and want to go back home. It's so sad that I cannot do it. I wish all the worst to Putin. This fucking murderer and maniac shooted my life and ruined thousand of others ones. So, I still cannot stop think about it. I know that I will not forgive Putin and others fuckin morons that are near him.
