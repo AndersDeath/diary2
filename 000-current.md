@@ -29,4 +29,4 @@ Today is a storm outside. It's been being here for whole day and I don't know wh
 # 07 November - Monday - Gündoğan - 39 day of immigration
 
 What I did today:
-1. 
+1. Updated my survey solution to angular 14
