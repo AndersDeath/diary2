@@ -35,3 +35,4 @@ What I did today:
 4. The local photographer taken a photo for Green Card
 5. Ksusha helped me and applyed for Green Card lottery
 6. Did some maths and other things.
+7. Learned management a bit. Unfortunately I didn't have enough time for it today.
