@@ -31,3 +31,4 @@ Today is a storm outside. It's been being here for whole day and I don't know wh
 What I did today:
 1. Updated my survey solution to angular 14
 2. Made a prototype of camera component
+3. Walked a lot around my house.
