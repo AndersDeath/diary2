@@ -41,3 +41,5 @@ What I did today:
 At the same time I feel that I am tiered of all this situation and want to go back home. It's so sad that I cannot do it. I wish all the worst to Putin. This fucking murderer and maniac shooted my life and ruined thousand of others ones. So, I still cannot stop think about it. I know that I will not forgive Putin and others fuckin morons that are near him.
 
 # 08 November - Tuesday - Gündoğan - 40 day of immigration
+
+Today I mostly was working on programming stuff.
