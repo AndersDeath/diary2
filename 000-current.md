@@ -42,4 +42,4 @@ At the same time I feel that I am tiered of all this situation and want to go ba
 
 # 08 November - Tuesday - Gündoğan - 40 day of immigration
 
-Today I mostly was working on programming stuff.
+Today I mostly was working on programming stuff. I'm really tiered due to early wake up.
