@@ -48,4 +48,4 @@ Today I mostly was working on programming stuff. I'm really tiered due to early 
 2. I improved portuguese helper
 3. I also wrote down some lines
 
-Today I slept well, but not enough. I am trying to concentrate, but it's hard. Buy the way we finished watching secons season of Twin Peaks. Today I will start watching the third one.
+Today I slept well, but not enough. I am trying to concentrate, but it's hard. Buy the way we finished watching secons season of Twin Peaks. Today I will start watching the third one. I really like this piece of art.
