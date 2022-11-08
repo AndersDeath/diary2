@@ -46,4 +46,4 @@ Today I mostly was working on programming stuff. I'm really tiered due to early 
 
 1. I improved survey engine and added taken photo
 2. I improved portuguese helper
-3. 
+3. I also wrote down some lines
