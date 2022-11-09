@@ -52,4 +52,4 @@ Today I slept well, but not enough. I am trying to concentrate, but it's hard. B
 
 # 09 November - Wednesday - Gündoğan - 41 day of immigration
 
-One the most important things for me is to be in conscious state of mind. That's exictly why I practice meditation and try to be fit. I cannot say that I'm always in this mode. I try to work on it. About this day. I did a lot of product things today. I dived deeper into topic of idea quality understanding. At the same time I watche english language lessons.
+One the most important things for me is to be in conscious state of mind. That's exictly why I practice meditation and try to be fit. I cannot say that I'm always in this mode. I try to work on it. About this day. I did a lot of product things today. I dived deeper into topic of idea quality understanding. At the same time I watche english language lessons. It's so cool to lear content for students despite the fact of my real age.
