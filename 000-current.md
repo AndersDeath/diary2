@@ -51,3 +51,5 @@ Today I mostly was working on programming stuff. I'm really tiered due to early 
 Today I slept well, but not enough. I am trying to concentrate, but it's hard. Buy the way we finished watching secons season of Twin Peaks. Today I will start watching the third one. I really like this piece of art. Now i will go and eat some food.
 
 # 09 November - Wednesday - Gündoğan - 41 day of immigration
+
+One the most important things for me is to be in conscious state of mind.
