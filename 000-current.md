@@ -53,3 +53,5 @@ Today I slept well, but not enough. I am trying to concentrate, but it's hard. B
 # 09 November - Wednesday - Gündoğan - 41 day of immigration
 
 One the most important things for me is to be in conscious state of mind. That's exictly why I practice meditation and try to be fit. I cannot say that I'm always in this mode. I try to work on it. About this day. I did a lot of product things today. I dived deeper into topic of idea quality understanding. At the same time I watche english language lessons. It's so cool to lear content for students despite the fact of my real age. But it's helpful for me, and as result it's enough for me. I also significantly improved layout for DRSMILE. Also there is one sad piece of news. On of the guys with whom I played music many years ago became a z-patriot. I know him. It's just because he thinks that it is right. It thinks that He will save russian culture using this approach. Francly, It's really painfull for me. I need to reflect it later. I hope he will go back alive.
+
+# 10 November - Thursday - Gündoğan - 42 day of immigration
