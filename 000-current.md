@@ -56,4 +56,4 @@ One the most important things for me is to be in conscious state of mind. That's
 
 # 10 November - Thursday - Gündoğan - 42 day of immigration
 
-I've finally got a rhetoric course from DRSMILE. Chris by himself sent me a link to it. It's really cool becase as I understood our HRs lost a licence to udemy.
+I've finally got a rhetoric course from DRSMILE. Chris by himself sent me a link to it. It's really cool becase as I understood our HRs lost a licence to udemy. It's absolute shit.
