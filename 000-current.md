@@ -60,4 +60,4 @@ I've finally got a rhetoric course from DRSMILE. Chris by himself sent me a link
 
 # 11 November - Friday - Gündoğan - 43 day of immigration
 
-Today I've done with some imporovements for portuguese words helper. It's nice. I adde quiz supporting.
+Today I've done with some imporovements for portuguese words helper. It's nice. I adde quiz supporting. Now I should work better. After that I got more cool information from the book about prduct maagement. I've got more information about how to structure new team or a company.
