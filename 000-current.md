@@ -64,4 +64,4 @@ Today I've done with some imporovements for portuguese words helper. It's nice. 
 
 # 12 November - Saturday - Gündoğan - Turgutreis - Bodrum - 44 day of immigration
 
-Today we had a cheatmeal! I like this day type. I eat a lot of junk food and I am happy. I got cookies, burger, coffee, and fahitas.
+Today we had a cheatmeal! I like this day type. I eat a lot of junk food and I am happy. I got cookies, burger, coffee, and fahitas. It's georgious!
