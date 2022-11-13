@@ -68,4 +68,4 @@ Today we had a cheatmeal! I like this day type. I eat a lot of junk food and I a
 
 # 13 November - Sunday - Gündoğan - 45 day of immigration
 
-Today is the 45th day of emigration. It's hard to realize. It's not so much, I agree. The massive exploision happened on Istiklal, which is the main tourist street in Istanbul. I saw a video with bodies. Ksusha helped me with editing new note that I'm going to pulish to Medium tomorrow. The vido #4 is also ready and prerendered. I will publish it tomorrow or the day after tomorrow.
+Today is the 45th day of emigration. It's hard to realize. It's not so much, I agree. The massive exploision happened on Istiklal, which is the main tourist street in Istanbul. I saw a video with bodies. Ksusha helped me with editing new note that I'm going to pulish to Medium tomorrow. The vido #4 is also ready and prerendered. I will publish it tomorrow or the day after tomorrow. The whole first part of the day I spent of fixing problems with 3dmax and autocad.
