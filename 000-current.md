@@ -65,3 +65,6 @@ Today I've done with some imporovements for portuguese words helper. It's nice. 
 # 12 November - Saturday - Gündoğan - Turgutreis - Bodrum - 44 day of immigration
 
 Today we had a cheatmeal! I like this day type. I eat a lot of junk food and I am happy. I got cookies, burger, coffee, and fahitas. It's georgious! I also recorded another video I'm going to edit it tomorrow. So, My plan for tomorrow is to publish new article to medium and edit the new video. I made 20000 steps today. I also starded moving all my telegram bo setup to typescript. It also good step. Me and Ksusha have written down timeline fo immigratin. It's also good. Now we have the plan that we will manage the next several months. Today the interesting thing happened. Turkey authorities sent a special earth quake message. It was a test and it was a new expierence for me. At the same time I see that I need to learn more english words and phrases. Maybe because of fatigue I speak english worse that before. I need to fix it. I get stuck on some patterns, like 'Also', 'At the same time', 'Hovewer', etc. It's bullshit. Nevermind, It's time to watch another episode of Twin Peaks. Let's go!
+
+# 13 November - Sunday - Gündoğan - 45 day of immigration
+
