@@ -68,4 +68,4 @@ Today we had a cheatmeal! I like this day type. I eat a lot of junk food and I a
 
 # 13 November - Sunday - Gündoğan - 45 day of immigration
 
-Today is the 45th day of emigration.
+Today is the 45th day of emigration. It's hard to realize. It's not so much, I agree.
