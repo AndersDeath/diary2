@@ -72,4 +72,4 @@ Today is the 45th day of emigration. It's hard to realize. It's not so much, I a
 
 # 14 November - Monday - Gündoğan - 46 day of immigration
 
-I published  a new article to medium today. I did it for imporving my english writing skill which I work on. I did meditation today and some sport. After that I trained my speaking skill by reading Orwell's essay about tea. It's one the most favourite piece of literature for me.
+I published  a new article to medium today. I did it for imporving my english writing skill which I work on. I did meditation today and some sport. After that I trained my speaking skill by reading Orwell's essay about tea. It's one the most favourite piece of literature for me. My back is still hurt. I feel pain in my back mussles.
