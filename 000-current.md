@@ -79,3 +79,5 @@ I published  a new article to medium today. I did it for imporving my english wr
 Today I did not some much, I trained english pronunciation again. I also got rhetoric lesson. I significantly improved drsmile's layout for surveys. The youtube video was published by me today's morning. The rest of the day was quite boring. Some unexpectible problems with water happened in the house. There is hot water and I cannot run washing machine because of no pressure in pipes. It's ridiculous and it hinders me. I think I will text to the apartments owner. I think he should be aware of the situation. I event cannot go to bathroom and take a shit, there is nothing to flush the shit. It's not good and ruins my mood. Anyway I hope the situation will be resolved soon.
 
 # 16 November - Wednesday - Gündoğan - 48 day of immigration
+
+Today I learned English and had product thinking lessons.
