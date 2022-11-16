@@ -80,4 +80,4 @@ Today I did not some much, I trained english pronunciation again. I also got rhe
 
 # 16 November - Wednesday - Gündoğan - 48 day of immigration
 
-Today I learned English and had product thinking lessons.
+Today I learned English and had product thinking lessons. I decided to cut number of maths lessons and switched to algorithms. It's more important thing now.
