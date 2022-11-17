@@ -84,4 +84,4 @@ Today I learned English and had product thinking lessons. I decided to cut numbe
 
 # 17 November - Tuesday - Gündoğan - 49 day of immigration
 
-I had 2 interview and sevaral meeeting today.
+I had 2 interview and sevaral meeeting today. It was interesting and I found new things for me.
