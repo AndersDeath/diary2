@@ -88,4 +88,4 @@ I had 2 interview and sevaral meeeting today. It was interesting and I found new
 
 # 18 November - Friday - Gündoğan - 40 day of immigration
 
-Today I did a lot of things. I've presented the project in from of DRSMILE. It was internal project that are related to survey engine I am working on.
+Today I did a lot of things. I've presented the project in from of DRSMILE. It was internal project that are related to survey engine I am working on. I also had a lot of meetings.
