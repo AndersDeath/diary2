@@ -92,4 +92,4 @@ Today I did a lot of things. I've presented the project in from of DRSMILE. It w
 
 # 19 November - Saturday - Gündoğan - Bodrum - 41 day of immigration
 
-I am sitting in Bodurm now. I've started writing new article. This time I decided to use knowlage that I got from rhetoric lessons. It's a standard pattern of aultery. In the beginning I was young boy, then I became adult.
+I am sitting in Bodurm now. I've started writing new article. This time I decided to use knowlage that I got from rhetoric lessons. It's a standard pattern of aultery. In the beginning I was young boy, then I became adult. The article is just abuout my life, not more.
