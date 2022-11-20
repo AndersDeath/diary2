@@ -96,4 +96,4 @@ I am sitting in Bodurm now. I've started writing new article. This time I decide
 
 # 20 November - Sunday - Gündoğan - Yalikavak - 52 day of immigration
 
-I am in Yalikavak now. It's not so ofter when I am writing these lines not from an apartment. os, Today is a free day. I walked a bit, studied rhetorics and did another nice things. The weather is not good and it's the reasong why I didn't record a new video.
+I am in Yalikavak now. It's not so ofter when I am writing these lines not from an apartment. os, Today is a free day. I walked a bit, studied rhetorics and did another nice things. The weather is not good and it's the reasong why I didn't record a new video. 
