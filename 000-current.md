@@ -100,4 +100,4 @@ I am in Yalikavak now. It's not so ofter when I am writing these lines not from 
 
 # 21 November - Sunday - Gündoğan - 53 day of immigration
 
-Today I feel much better. Even I don't have hade acke. it's interesting how to write word "головная боль" correctly. I learned english today and dived into management topic. The other part of the day I was programming.
+Today I feel much better. Even I don't have hade acke. it's interesting how to write word "головная боль" correctly. I learned english today and dived into management topic. The other part of the day I was programming. I also listen to Tartak today.
