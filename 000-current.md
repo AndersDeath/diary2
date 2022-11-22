@@ -107,3 +107,4 @@ Today I feel much better. Even I don't have hade acke. it's interesting how to w
 I was working  on DRS tasks mostly today. But I fortunately found some time for algorithms and other important things. I also found several books that I need to read. They are about rhetorics and achitypes.
 
 1. I faced to Android issue again. Firebase and target versions dont's work.
+2. Gathered information about CTO interview
