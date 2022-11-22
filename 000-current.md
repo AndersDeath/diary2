@@ -104,4 +104,4 @@ Today I feel much better. Even I don't have hade acke. it's interesting how to w
 
 # 22 November - Sunday - Gündoğan - 54 day of immigration
 
-I was working mostly on DRS tasks today. But I fortunately found some time for algorithms and other important things. I also found several books that I need to read. They are about rhetorics and achitypes.
+I was working  on DRS tasks mostly today. But I fortunately found some time for algorithms and other important things. I also found several books that I need to read. They are about rhetorics and achitypes.
