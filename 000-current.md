@@ -110,4 +110,5 @@ I was working  on DRS tasks mostly today. But I fortunately found some time for 
 2. Gathered information about CTO interview
 3. Wrote a code
 4. Had a long call with Narayan
+5. Learned Portuguese.
 Unfortunately I slept bad today. Because of it I feel no good. I hate moscitous. Mosquitoes prevent me from sleeping. from another side I still cannot start learning important phrases in Englihs. Probably because I am lazy. I need to focus. I need to be better. I need to finish all stuff and do great things. Tomorrow I will code for whole day. I also have only thirsday for finishing some coding. I am going to run another telegram bot for learning english phazes.
