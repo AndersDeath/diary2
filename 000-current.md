@@ -101,3 +101,5 @@ I am in Yalikavak now. It's not so ofter when I am writing these lines not from 
 # 21 November - Sunday - Gündoğan - 53 day of immigration
 
 Today I feel much better. Even I don't have hade acke. it's interesting how to write word "головная боль" correctly. I learned english today and dived into management topic. The other part of the day I was programming. I also listen to Tartak today. I try not to forget about reading alowd training. it's important. Also I improved words bot significantly. The main thing is to remove deps from some word's base. Now all languages, paths to data file are stored as parameters. It's extrimely convinient. Not I am going to have a dinner and then after coming back home we will watch the latest two episodes of Twin Peaks.
+
+# 22 November - Sunday - Gündoğan - 54 day of immigration
