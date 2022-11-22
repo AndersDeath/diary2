@@ -110,4 +110,4 @@ I was working  on DRS tasks mostly today. But I fortunately found some time for 
 2. Gathered information about CTO interview
 3. Wrote a code
 4. Had a long call with Narayan
-5. .
+Unfortunately I slept bad today. Because of it I feel no good.
