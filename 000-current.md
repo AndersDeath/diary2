@@ -109,4 +109,4 @@ I was working  on DRS tasks mostly today. But I fortunately found some time for 
 1. I faced to Android issue again. Firebase and target versions dont's work.
 2. Gathered information about CTO interview
 3. Wrote a code
-4. 
+4. Had a long call with Narayan
