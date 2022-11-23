@@ -115,3 +115,5 @@ Unfortunately I slept bad today. Because of it I feel no good. I hate moscitous.
 
 
 # 23 November - Tuesday - Gündoğan - 55 day of immigration
+
+I've rcorded another video today.
