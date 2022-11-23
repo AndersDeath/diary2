@@ -114,6 +114,6 @@ I was working  on DRS tasks mostly today. But I fortunately found some time for 
 Unfortunately I slept bad today. Because of it I feel no good. I hate moscitous. Mosquitoes prevent me from sleeping. from another side I still cannot start learning important phrases in Englihs. Probably because I am lazy. I need to focus. I need to be better. I need to finish all stuff and do great things. Tomorrow I will code for whole day. I also have only thirsday for finishing some coding. I am going to run another telegram bot for learning english phazes.
 
 
-# 23 November - Tuesday - Gündoğan - 55 day of immigration
+# 23 November - Tuesday - Gündoğan - Bodrum - 55 day of immigration
 
 I've rcorded another video today. Unfortunately it's bad weather today and local internet doesn't work well. It's why I couldn't edit the video and publish it. At the same time I did a lot of code for DR SMILE today. I improved layout and some another things. Media markt send a message today that our order is ready. We went to Bodrum today and got it.
