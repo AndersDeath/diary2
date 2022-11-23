@@ -116,4 +116,4 @@ Unfortunately I slept bad today. Because of it I feel no good. I hate moscitous.
 
 # 23 November - Tuesday - Gündoğan - 55 day of immigration
 
-I've rcorded another video today. Unfortunately it's bad weather today and local internet doesn't work well. It's why I couldn't edit the video and publish it. At the same time I did a lot of code for DR SMILE today.
+I've rcorded another video today. Unfortunately it's bad weather today and local internet doesn't work well. It's why I couldn't edit the video and publish it. At the same time I did a lot of code for DR SMILE today. I improved layout.
