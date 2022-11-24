@@ -119,3 +119,4 @@ I've rcorded another video today. Unfortunately it's bad weather today and local
 
 # 24 November - Wednesday - Gündoğan - 56 day of immigration
 
+I woke up about na hour ago. The internet doesn't work. Another sad thing that we bought an additional internet package yesterday.
