@@ -123,4 +123,4 @@ I woke up about na hour ago. The internet doesn't work. Another sad thing that w
 
 # 25 November - Friday - Gündoğan - 57 day of immigration
 
-Today I finished with integration on DR SMiLE side. It's great. I feel relief. Also I improved the bot for enlish learning. Several workds about my personal life.
+Today I finished with integration on DR SMiLE side. It's great. I feel relief. Also I improved the bot for enlish learning. Several workds about my personal life. I am tiered of this place. definetly it's a village. I need more activities.
