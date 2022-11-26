@@ -127,4 +127,4 @@ Today I finished with integration on DR SMiLE side. It's great. I feel relief. A
 
 # 26 November - Saturday - Gündoğan - 58 day of immigration
 
-Today I got a haircut in Bodrum. It's good. Me and Ksusha had a discussion about CTO, we have a draft from my future steps for uptaining this role. I also had a nice conversation with colleegs in linkedin. I really think a lot about my personal brand. This way is the most iteresting for me. it's very hight bar that I want to achive.
+Today I got a haircut in Bodrum. It's good. Me and Ksusha had a discussion about CTO, we have a draft from my future steps for uptaining this role. I also had a nice conversation with colleegs in linkedin. I really think a lot about my personal brand. This way is the most iteresting for me. it's very hight bar that I want to achive. I don't have a lot of words and ideas. 
