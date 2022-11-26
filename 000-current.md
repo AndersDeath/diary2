@@ -127,4 +127,4 @@ Today I finished with integration on DR SMiLE side. It's great. I feel relief. A
 
 # 26 November - Saturday - Gündoğan - 58 day of immigration
 
-Today I got a haircut in Bodrum.
+Today I got a haircut in Bodrum. It's good. 
