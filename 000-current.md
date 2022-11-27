@@ -131,4 +131,4 @@ Today I got a haircut in Bodrum. It's good. Me and Ksusha had a discussion about
 
 # 27 November - Sunday - Gündoğan - Bodrum - 59 day of immigration
 
-It's really cold today.
+It's really cold today. I've decided to try typefully application today. I scheduled the firt tweet.
