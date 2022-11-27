@@ -131,4 +131,4 @@ Today I got a haircut in Bodrum. It's good. Me and Ksusha had a discussion about
 
 # 27 November - Sunday - Gündoğan - Bodrum - 59 day of immigration
 
-It's really cold today. I've decided to try typefully application today. I scheduled the firt tweet. (several hours later). This sevice is a shit. They want 8 bucks per month for shcduling more that one tweet. It's useless. we went ot Bodrum in order to find new jacket. So, we found one for me.
+It's really cold today. I've decided to try typefully application today. I scheduled the firt tweet. (several hours later). This sevice is a shit. They want 8 bucks per month for shcduling more that one tweet. It's useless. we went ot Bodrum in order to find new jacket. So, we found one for me. Ksusha ordeded another one for her on the internet. Probably we will got to Turgutreis in order to get this thing.
