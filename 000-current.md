@@ -137,4 +137,4 @@ It's really cold today. I've decided to try typefully application today. I sched
 
 Today is mostly orgaizational day. I did a lot of manegerial tasks. Tomorrow I will start with coding again. also I want to groom my current project and got some insights. I did a lot of stuff for the last year and it's a good time to underline it. Unfortunately I don't have time for everything that I want to do. I am not a magician. I fon something in the twitter. It's very strange, because I even don't remember what I exactly will get. I've sent my email address, probably someone will text to me. 
 
-Yesterday I bought a jacket and this is good, because the wherther today is aweful. 
+Yesterday I bought a jacket and this is good, because the wherther today is aweful. I went to a shop this morning and this thing was very usefull. It's just rains for whole days.
