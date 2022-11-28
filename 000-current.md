@@ -141,4 +141,4 @@ Also I started linkein thext grooming and investigation of how to change my cv a
 
 Yesterday I bought a jacket and this is good, because the wherther today is aweful. I went to a shop this morning and this thing was very usefull. It's just rains for whole days.
 
-I again forget and editing the latest blog. I will add this to my todolist.
+I again forget and editing the latest blog. I will add this to my todolist. It's the only way to remember about it.
