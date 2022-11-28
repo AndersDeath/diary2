@@ -140,3 +140,5 @@ Today is mostly orgaizational day. I did a lot of manegerial tasks. Tomorrow I w
 Also I started linkein thext grooming and investigation of how to change my cv and make it more attractive for CTO position.
 
 Yesterday I bought a jacket and this is good, because the wherther today is aweful. I went to a shop this morning and this thing was very usefull. It's just rains for whole days.
+
+I again forget and editing the latest blog. I will add this to my todolist.
