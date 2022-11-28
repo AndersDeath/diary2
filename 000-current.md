@@ -135,4 +135,4 @@ It's really cold today. I've decided to try typefully application today. I sched
 
 # 28 November - Monday - Gündoğan - 60 day of immigration
 
-Today is mostly orgaizational day. I did a lot of manegerial tasks.
+Today is mostly orgaizational day. I did a lot of manegerial tasks. Tomorrow I will start with coding again.
