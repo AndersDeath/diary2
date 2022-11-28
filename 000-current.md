@@ -132,3 +132,6 @@ Today I got a haircut in Bodrum. It's good. Me and Ksusha had a discussion about
 # 27 November - Sunday - Gündoğan - Bodrum - 59 day of immigration
 
 It's really cold today. I've decided to try typefully application today. I scheduled the firt tweet. (several hours later). This sevice is a shit. They want 8 bucks per month for shcduling more that one tweet. It's useless. we went ot Bodrum in order to find new jacket. So, we found one for me. Ksusha ordeded another one for her on the internet. Probably we will got to Turgutreis in order to get this thing. Now I am sitting in local library in Bodrum. I finally fixed problem with Telegram bot for learning words. I am happy that I did it. Sometimes I can use it. I still don't have time for finishing all business that I planned. It's sad. I also have a huge list of things tha I need to finish today. Today's is a mother's day. I texted to my mom some good words. I miss her. It would be so cool to see her and just talk. I need to call to my aunt as well and organiza whatsapp call with my grandmother. I miss them all. It's really hard to live and understand that I will not see them for a very long time. My desire to be alive is stronger.
+
+# 28 November - Monday - Gündoğan - 60 day of immigration
+
