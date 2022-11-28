@@ -135,4 +135,4 @@ It's really cold today. I've decided to try typefully application today. I sched
 
 # 28 November - Monday - Gündoğan - 60 day of immigration
 
-Today is mostly orgaizational day. I did a lot of manegerial tasks. Tomorrow I will start with coding again. also I want to groom my current project and got some insights. I did a lot of stuff for the last year and it's a good time to underline it. Unfortunately I don't have time for everything that I want to do. I am not a magician.
+Today is mostly orgaizational day. I did a lot of manegerial tasks. Tomorrow I will start with coding again. also I want to groom my current project and got some insights. I did a lot of stuff for the last year and it's a good time to underline it. Unfortunately I don't have time for everything that I want to do. I am not a magician. I fon something in the twitter. It's very strange, because I even don't remember what I exactly will get.
