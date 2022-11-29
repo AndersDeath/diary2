@@ -147,4 +147,4 @@ In the end: this day is good.
 
 # 29 November - Tuesday - Gündoğan - 61 day of immigration
 
-Today I have bad mood. I even argued with IT team because they still cannot update workflow in jira for me. Also I fixed issue with the mobile application.
+Today I have bad mood. I even argued with IT team because they still cannot update workflow in jira for me. Also I fixed issue with the mobile application. I trained a bit algorythm, rhetorics, and another thigns.
