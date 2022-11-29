@@ -144,3 +144,6 @@ Yesterday I bought a jacket and this is good, because the wherther today is awef
 I again forget and editing the latest blog. I will add this to my todolist. It's the only way to remember about it.
 
 In the end: this day is good.
+
+# 29 November - Tuesday - Gündoğan - 61 day of immigration
+
