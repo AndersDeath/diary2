@@ -151,3 +151,4 @@ Today I have bad mood. I even argued with IT team because they still cannot upda
 
 # 30 November - Wednesday - Gündoğan - 62 day of immigration
 
+today I was fighting with Android again.
