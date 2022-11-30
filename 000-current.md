@@ -151,4 +151,4 @@ Today I have bad mood. I even argued with IT team because they still cannot upda
 
 # 30 November - Wednesday - Gündoğan - 62 day of immigration
 
-today I was fighting with Android again. I don't like this type of tasks when I need to fix some building process. It's shit. I also was investigating the workflow that I would like to apply with my team. Also I had a payment's problem with Ineco this morning.
+today I was fighting with Android again. I don't like this type of tasks when I need to fix some building process. It's shit. I also was investigating the workflow that I would like to apply with my team. Also I had a payment's problem with Ineco this morning. fortunately the issue was resolves by god afternoon. I 
