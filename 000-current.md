@@ -10,4 +10,4 @@ Only one thing exists - everything will be ok. I believe in it.
 
 # 02 December - Friday - Gündoğan - Turgutreis - 64 day of immigration
 
-It's really cool that we got new jaket for Ksusha today. The thing we had going to Turgutreis for it. But this is no a problem. The problem is absence of jaket.
+It's really cool that we got new jaket for Ksusha today. The thing we had going to Turgutreis for it. But this is no a problem. The problem is absence of jaket. The Turgutreis bus was filled by young studenst of local Gundogan school. Surprisingy the behaived well.
