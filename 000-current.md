@@ -9,3 +9,5 @@ Sometimes I even think about going back to Russia and trying to find job there. 
 Only one thing exists - everything will be ok. I believe in it.
 
 # 02 December - Friday - Gündoğan - Turgutreis - 64 day of immigration
+
+It's really cool that we got new jaket for Ksusha today. The thing we had going to Turgutreis for it. But this is no a problem. The problem is absence of jaket.
