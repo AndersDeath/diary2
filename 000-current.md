@@ -7,3 +7,5 @@ Despite the my mood I try to do things in time. I go through my todolist, don't 
 Sometimes I even think about going back to Russia and trying to find job there. Only fear of death holds me from it. I think I need to come up with some strategy for future asap. In other case I will go crazy. 
 
 Only one thing exists - everything will be ok. I believe in it.
+
+# 02 December - Friday - Gündoğan - Turgutreis - 64 day of immigration
