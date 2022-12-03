@@ -14,4 +14,4 @@ It's really cool that we got new jaket for Ksusha today. The thing we had going 
 
 # 03 December - Saturday - Gündoğan - Bodrum - 65 day of immigration
 
-The very last weekend in Bodrum has been started. We are going back to Istanbul in the next wednesday.
+The very last weekend in Bodrum has been started. We are going back to Istanbul in the next wednesday. We said good buy to Bodrum today and to Turgutreis yesterday. 
