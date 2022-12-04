@@ -18,4 +18,4 @@ The very last weekend in Bodrum has been started. We are going back to Istanbul 
 
 # 04 December - Saturday - Gündoğan - Bodrum - 66 day of immigration
 
-The very last weekend in Gundogan has been finished.
+The very last weekend in Gundogan has been finished. The day after tomorrow we will flight to Istanbul, where we will be for two days and then go back to Yerevan.
