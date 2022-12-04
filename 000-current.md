@@ -15,3 +15,7 @@ It's really cool that we got new jaket for Ksusha today. The thing we had going 
 # 03 December - Saturday - Gündoğan - Bodrum - 65 day of immigration
 
 The very last weekend in Bodrum has been started. We are going back to Istanbul in the next wednesday. We said good buy to Bodrum today and to Turgutreis yesterday. Tomorrow I will try to record the last video here in Gundogan. Newermind. Today we discussed my new CV. There is something for working. I will change several lines there on the next week. In general today I had a free day. I did something, but mostly not so important. I decided to groom my guthup repositories, but I have a lot of them. I started putting all this stuff to a notion table, but i was tiered of this and decided to make a script. so, now I have 117 repositories, it's too much. tomorrow I will try to proceed working on it. yeap. Returning to the original topic, I'm glad I'm leaving. It's quite a village. I'm tired of this place
+
+# 04 December - Saturday - Gündoğan - Bodrum - 66 day of immigration
+
+
