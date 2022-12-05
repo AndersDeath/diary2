@@ -22,4 +22,4 @@ The very last weekend in Gundogan has been finished. The day after tomorrow we w
 
 # 05 December - Monday - Gündoğan - 67 day of immigration
 
-Today I wasn't be able to do a lot of things. the whole day was dedicated to call and meetings. It wasn't so good, but I had no choice. Today's noght is last here. tommorow we are going to flight to Istanbul. I learned some management, english and Ukranian today. Please don't ask me why I learned the last one. It's just beacuse I had a good mood.
+Today I wasn't be able to do a lot of things. the whole day was dedicated to call and meetings. It wasn't so good, but I had no choice. Today's noght is last here. tommorow we are going to flight to Istanbul. I learned some management, english and Ukranian today. Please don't ask me why I learned the last one. It's just beacuse I had a good mood. Also I brought a Ksushas jaket to a tailor. He fixed is and now it's well.
