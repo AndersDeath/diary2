@@ -29,3 +29,5 @@ Today I wasn't be able to do a lot of things. the whole day was dedicated to cal
 So, We checked out from the house. Now I am sitting in Bodrum's airport and waiting for boarding. Baaiacally I studied some cool things today and the rest of the time was dedicated to packing things in luggage. honestly I am glad to leave this place but ath the same time I fell lazyness. I just don't wanto to do anything. today I whatched important videos about how to understand storytelling muli act system. It was very interesting and I event dounloaded script of Alien movie for analysis. I don't want to be professional in these area but It woould be cool to adapt some interesting things for my future video. currently they don't have neither structure nor sense. I really want to fix it. 
 
 # 07 December - Wednesday - Istanbul - 69 day of immigration
+
+Tpday we visited museum of Gaza here.
