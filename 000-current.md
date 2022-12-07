@@ -30,4 +30,4 @@ So, We checked out from the house. Now I am sitting in Bodrum's airport and wait
 
 # 07 December - Wednesday - Istanbul - 69 day of immigration
 
-Tpday we visited museum of Gaza here. It's quite interesting place and ex-coal electic station.
+Tpday we visited museum of Gaza here. It's quite interesting place and ex-coal electic station. Almost all exibitions were close exept the main one that is about climate changes.
