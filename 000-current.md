@@ -34,4 +34,4 @@ Tpday we visited museum of Gaza here. It's quite interesting place and ex-coal e
 
 # 08 December - Thursday - Istanbul - Yerevan - 70 day of immigration
 
-Today I am gonig to Yerevan. I cannot say that something significant happened today. I just was working on important things. For example I did some improvements for DR SMILE. also I proceded preparation for future job seeking.
+Today I am gonig to Yerevan. I cannot say that something significant happened today. I just was working on important things. For example I did some improvements for DR SMILE. also I proceded preparation for future job seeking. I was working on cleaning of code. I finally will get new apple headphones today which is amazing.
