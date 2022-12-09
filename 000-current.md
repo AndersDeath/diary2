@@ -38,4 +38,4 @@ Today I am gonig to Yerevan. I cannot say that something significant happened to
 
 # 09 December - Friday - Yerevan - 71 day of immigration
 
-I am in Yerevan.
+I am in Yerevan. Fortunately, The flight was nice and not so long.
