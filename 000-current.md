@@ -38,4 +38,4 @@ Today I am gonig to Yerevan. I cannot say that something significant happened to
 
 # 09 December - Friday - Yerevan - 71 day of immigration
 
-I am in Yerevan. Fortunately, The flight was nice and not so long. Typical problem here is that houses in Yerevan are extrimely cold. It's really hard to be even in Apartments without bad feeling. however it's a heater and it helps to be in relative norm. Three hours time shift with Berlin interferes yet. I wasnt in good condition for all day. It was very debilitating day. By the way, I started using ipods pro and this is amaizing thing.
+I am in Yerevan. Fortunately, The flight was nice and not so long. Typical problem here is that houses in Yerevan are extrimely cold. It's really hard to be even in Apartments without bad feeling. however it's a heater and it helps to be in relative norm. Three hours time shift with Berlin interferes yet. I wasnt in good condition for all day. It was very debilitating day. By the way, I started using ipods pro and this is amaizing thing. The quality of sound is quite good and anti-noize mode is amazing,
