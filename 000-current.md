@@ -42,4 +42,4 @@ I am in Yerevan. Fortunately, The flight was nice and not so long. Typical probl
 
 # 10 December - Saturday - Yerevan - 72 day of immigration
 
-I slept quite well and it was good. in the first part of the day I met Oleg and it was amazing because I evet thought that will not see each other for very long time. Let me remind you that he was supposed to immigrate to Canada, but due to problems on their side, the process slowed down.
+I slept quite well and it was good. in the first part of the day I met Oleg and it was amazing because I evet thought that will not see each other for very long time. Let me remind you that he was supposed to immigrate to Canada, but due to problems on their side, the process slowed down. So, I see that all things that western countries say are just a bullshit.
