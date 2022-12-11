@@ -45,3 +45,5 @@ I am in Yerevan. Fortunately, The flight was nice and not so long. Typical probl
 I slept quite well and it was good. in the first part of the day I met Oleg and it was amazing because I evet thought that will not see each other for very long time. Let me remind you that he was supposed to immigrate to Canada, but due to problems on their side, the process slowed down. So, I see that all things that western countries say are just a bullshit. I bought parfume and warm socks. Now I am sitting and trying to write down someting interesting.
 
 ## 11 December - Sunday - Yerevan - 73 day of immigration
+
+Today I woke up at 8 am in good mood.
