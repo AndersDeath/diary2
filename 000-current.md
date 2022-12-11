@@ -46,4 +46,4 @@ I slept quite well and it was good. in the first part of the day I met Oleg and 
 
 ## 11 December - Sunday - Yerevan - 73 day of immigration
 
-Today I woke up at 8 am in good mood. I did a lot of things in the morinig. I finally finished with the latest video from Turkey. Crrently it's uploading to youtube. i will publish it tomorrow. Yesterday we were in the cinema. Artpokaz 
+Today I woke up at 8 am in good mood. I did a lot of things in the morinig. I finally finished with the latest video from Turkey. Crrently it's uploading to youtube. i will publish it tomorrow. Yesterday we were in the cinema. Artpokaz showed Pulp Fiction by Tarantino.
