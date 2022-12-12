@@ -50,4 +50,4 @@ Today I woke up at 8 am in good mood. I did a lot of things in the morinig. I fi
 
 ## 12 December - Monday - Yerevan - 74 day of immigration
 
-Today I did a lot of things. Unfortunately it's again to hard to make a notarial power of attorney. 
+Today I did a lot of things. Unfortunately it's again to hard to make a notarial power of attorney. I improved some code for my own goals and for drsmile. The most part of the day I was coding.
