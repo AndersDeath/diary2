@@ -54,4 +54,4 @@ Today I did a lot of things. Unfortunately it's again to hard to make a notarial
 
 # 13 December - Tuesday - Yerevan - 75 day of immigration
 
-I ran out for whole day. Firstly I visited podolog and she prescribed some shots into musles. I want heal my nails on feet. After that I was in translater office and she will prepare some things for me and it's amizing. Very soon I will apply for social card here. I need it for getting temporary residency here.
+I ran out for whole day. Firstly I visited podolog and she prescribed some shots into musles. I want heal my nails on feet. After that I was in translater office and she will prepare some things for me and it's amizing. Very soon I will apply for social card here. I need it for getting temporary residency here. Also I had several calls including interview with Product designer.
