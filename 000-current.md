@@ -54,4 +54,4 @@ Today I did a lot of things. Unfortunately it's again to hard to make a notarial
 
 # 13 December - Tuesday - Yerevan - 75 day of immigration
 
-I ran out for whole day. Firstly I visited podolog and she prescribed some shots into musles. I want treat my nails.
+I ran out for whole day. Firstly I visited podolog and she prescribed some shots into musles. I want heal my nails fon feet.
