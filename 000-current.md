@@ -58,4 +58,4 @@ I ran out for whole day. Firstly I visited podolog and she prescribed some shots
 
 # 14 December - Wednesday - Yerevan - 76 day of immigration
 
-Today I got a translation of the passport and tomorrow I will ask for social card. If the translation of notary statement is ready I will go to Notary office and do things. It everything is ok, all these documents will be in Russia next week. That's awesome. The rest of the time I was working in DR sMiLE tasks and also I imprivede github-notion script. Ksusha will go to Russia very soon and I will do all things during her absens.
+Today I got a translation of the passport and tomorrow I will ask for social card. If the translation of notary statement is ready I will go to Notary office and do things. It everything is ok, all these documents will be in Russia next week. That's awesome. The rest of the time I was working in DR sMiLE tasks and also I imprivede github-notion script. Ksusha will go to Russia very soon and I will do all things during her absens. The host came todat to us and fixed door to bathroom.
