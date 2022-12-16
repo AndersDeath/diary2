@@ -63,3 +63,5 @@ Today I got a translation of the passport and tomorrow I will ask for social car
 # 15 December - Thursday - Yerevan - 77 day of immigration
 
 I went to OVIR this morning and asked for social card. Tomorrow I will get it. In 30 minutes I will go to notary office in order to get new docuemts that I want sending to Russia. It's very important thing. Also I finally got a notary applyed documents and everything is ready for Ksushas trip ti russia. She is going Russia the day after tomorrow.
+
+# 16 December - Thursday - Yerevan - 78 day of immigration
