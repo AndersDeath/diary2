@@ -68,4 +68,4 @@ I went to OVIR this morning and asked for social card. Tomorrow I will get it. I
 
 I got a social card today which is awesome. I also had a lot of meetings today including an interview with a candidate. Also we are going to Avatar today. this is awesome. I like this day. It's the first time for the last week when I feel calm and good.
 
-# 17 December - Saturday - Yerevan - 78 day of immigration
+# 17 December - Saturday - Yerevan - 79 day of immigration
