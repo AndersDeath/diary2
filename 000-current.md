@@ -70,4 +70,4 @@ I got a social card today which is awesome. I also had a lot of meetings today i
 
 # 17 December - Saturday - Yerevan - 79 day of immigration
 
-Ksusha has been flew to Russia today. It's the fisrt time in our lives when we will deparated for a week.
+Ksusha has been flew to Russia today. It's the fisrt time in our lives when we will deparated for a week. Honestly I feel bad because of it.
