@@ -73,4 +73,4 @@ I got a social card today which is awesome. I also had a lot of meetings today i
 Ksusha has been flew to Russia today. It's the fisrt time in our lives when we will deparated for a week. Honestly I feel bad because of it. We spent a great day. We had a nice luch with pizze in Syrovarya. We walked a lot today. Currently shee is somewhere above Russia in an airplane. I feel bad, need to say it one more time. I fixed not a lot of thoughts here for the last several days. It's because I don't have mood for it. But I need to write down several things.
 
 1. We had to be on the cinema yestarday. Unfortunately there happened a bad thing. We wanted to enter to the hall with food and staff stopped us. tickets were very expencive and we decided not to go there and wrote a statemet for refund. I think if you pay so much money you need to have possibility to enter with everything that we want.
-2. We leave our apartments in the city center.
+2. We leave our apartments in the city center. Moving was successfull and I am sitting in other one now.
