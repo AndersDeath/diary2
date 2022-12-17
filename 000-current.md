@@ -74,3 +74,4 @@ Ksusha has been flew to Russia today. It's the fisrt time in our lives when we w
 
 1. We had to be on the cinema yestarday. Unfortunately there happened a bad thing. We wanted to enter to the hall with food and staff stopped us. tickets were very expencive and we decided not to go there and wrote a statemet for refund. I think if you pay so much money you need to have possibility to enter with everything that we want.
 2. We leave our apartments in the city center. Moving was successfull and I am sitting in other one now.
+3. I got all documents for getting temporary residency.
