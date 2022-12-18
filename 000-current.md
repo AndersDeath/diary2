@@ -77,3 +77,4 @@ Ksusha has been flew to Russia today. It's the fisrt time in our lives when we w
 3. I got all documents for getting temporary residency. It's amazing. 
 4. Also I will wait for Ksushas landing today.
 
+# 18 December - Saturday - Yerevan - 80 day of immigration
