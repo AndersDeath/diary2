@@ -78,3 +78,5 @@ Ksusha has been flew to Russia today. It's the fisrt time in our lives when we w
 4. Also I will wait for Ksushas landing today.
 
 # 18 December - Sunday - Yerevan - 80 day of immigration
+
+TToday was not a bad day. i feel empty because of Ksusha's absence.
