@@ -76,3 +76,4 @@ Ksusha has been flew to Russia today. It's the fisrt time in our lives when we w
 2. We leave our apartments in the city center. Moving was successfull and I am sitting in other one now.
 3. I got all documents for getting temporary residency. It's amazing. 
 4. Also I will wait for Ksushas landing today.
+
