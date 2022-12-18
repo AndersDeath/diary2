@@ -79,4 +79,4 @@ Ksusha has been flew to Russia today. It's the fisrt time in our lives when we w
 
 # 18 December - Sunday - Yerevan - 80 day of immigration
 
-TToday was not a bad day. i feel empty because of Ksusha's absence. I woke up and wend to SAS food cord. I got some food there. The I did noting and just had a rest.
+TToday was not a bad day. i feel empty because of Ksusha's absence. I woke up and wend to SAS food cord. I got some food there. The I did noting and just had a rest. Afternoon I met Oleg and had a great conversation with him.
