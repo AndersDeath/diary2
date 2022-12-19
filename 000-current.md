@@ -83,4 +83,4 @@ TToday was not a bad day. i feel empty because of Ksusha's absence. I woke up an
 
 # 19 December - Monday - Yerevan - 81 day of immigration
 
-I did almost nothing today.
+I did almost nothing today. The reason is simple. It's really depressive for me to be without Ksusha.
