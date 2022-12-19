@@ -83,4 +83,4 @@ TToday was not a bad day. i feel empty because of Ksusha's absence. I woke up an
 
 # 19 December - Monday - Yerevan - 81 day of immigration
 
-I did almost nothing today. The reason is simple. It's really depressive for me to be without Ksusha. I didn't have a water today. It was pretty annoying. It couldn't flush the toilet.
+I did almost nothing today. The reason is simple. It's really depressive for me to be without Ksusha. I didn't have a water today. It was pretty annoying. It couldn't flush the toilet. I textd to my host and she told me that there was a problem in the house. So, I went to buy some water.
