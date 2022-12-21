@@ -87,5 +87,7 @@ I did almost nothing today. The reason is simple. It's really depressive for me 
 
 # 20 December - Tuesday - Yerevan - 82 day of immigration
 
+I met Oleg and we walked in the city center.
+
 # 21 December - Wednesday - Yerevan - 83 day of immigration
 
