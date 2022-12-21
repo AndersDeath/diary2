@@ -84,3 +84,7 @@ TToday was not a bad day. i feel empty because of Ksusha's absence. I woke up an
 # 19 December - Monday - Yerevan - 81 day of immigration
 
 I did almost nothing today. The reason is simple. It's really depressive for me to be without Ksusha. I didn't have a water today. It was pretty annoying. It couldn't flush the toilet. I textd to my host and she told me that there was a problem in the house. So, I went to buy some water. Sadly all drinkig water was bought by locals and I had to go to a far away supermarket. While I was goint to the shop the problem with liquid in the apartment was fixed. Due to this I have a lot of drinking water now. Also I decided to stop wantching and reading everything in Russian. I know that it's not the first time when I decided to do this, but today I blocked some websites on my comuter in order to achive this goal. It's interesting how things will to be going tomorrow. I still try to achive challare 365 day's of git commits. this day is actuall is 355th. It's good thing because after that I want to achive 500 days. It's absolutely doesn't make sense, but it's just fun for me. I also going to record another video tomorrow. I like to do it and now when I am alone it's good therapy. I hate to be alone and easily loose concentration and motivation. So, I am going to sleep shortly. Have a good night fellows. See you tomorrow.
+
+# 20 December - Tuesday - Yerevan - 82 day of immigration
+
+
