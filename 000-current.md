@@ -91,4 +91,4 @@ I met Oleg and we walked in the city center. All other day I dedicated to the wo
 
 # 21 December - Wednesday - Yerevan - 83 day of immigration
 
-I woke up at 6am start working. 
+I woke up at 6am and start working. After short sprint I went to the doctor and now I need to make a KT
