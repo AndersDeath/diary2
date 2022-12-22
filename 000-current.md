@@ -95,4 +95,4 @@ I woke up at 6am and start working. After short sprint I went to the doctor and 
 
 # 22 December - Thursday - Yerevan - 84 day of immigration
 
-Jira didn't work today. It's crusial thing for DR SMiLE
+Jira didn't work today. It's crusial thing for DR SMiLE. It's a bullshit that they didn't pay for it.
