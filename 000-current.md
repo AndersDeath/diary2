@@ -99,3 +99,4 @@ Jira didn't work today. It's crusial thing for DR SMiLE. It's a bullshit that th
 
 # 23 December - Friday - Yerevan - 85 day of immigration
 
+I met Oleg today and it was extrimely important because I don't know when I will see him next time.
