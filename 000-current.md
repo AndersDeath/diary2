@@ -99,4 +99,4 @@ Jira didn't work today. It's crusial thing for DR SMiLE. It's a bullshit that th
 
 # 23 December - Friday - Yerevan - 85 day of immigration
 
-I met Oleg today and it was extrimely important because I don't know when I will see him next time. Moreover I saw his mother because she went to Yerevan in order to meet him. That's amazing. Also from the second try I got a KT. it's also good because I can go to a doctor with it. This is very important for my future efforts to fix teeth. From another side I did a lot of programming stuff today.
+I met Oleg today and it was extrimely important because I don't know when I will see him next time. Moreover I saw his mother because she went to Yerevan in order to meet him. That's amazing. Also from the second try I got a KT. it's also good because I can go to a doctor with it. This is very important for my future efforts to fix teeth. From another side I did a lot of programming stuff today. The special prototype of telegram bot that will help me to learn armenian alphabet is also done.
