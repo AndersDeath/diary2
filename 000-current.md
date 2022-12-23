@@ -98,3 +98,4 @@ I woke up at 6am and start working. After short sprint I went to the doctor and 
 Jira didn't work today. It's crusial thing for DR SMiLE. It's a bullshit that they didn't pay for it. At the same time I code a lot today. I didn't have time for recording new video unfortunately. I hope that tomorrow I will do it. Also I will to KT tomorrow morning. 
 
 # 23 December - Friday - Yerevan - 85 day of immigration
+
