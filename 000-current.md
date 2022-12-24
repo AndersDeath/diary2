@@ -103,4 +103,4 @@ I met Oleg today and it was extrimely important because I don't know when I will
 
 # 24 December - Saturday - Yerevan - 86 day of immigration
 
-Today I walked a bit and ate a lot. it was a good day. I published HEIC to jpeg converter in github. I am going to use this stuff for a while. Also this saturday is the final day without Ksusha. she is going coming back to Yerevan. It was a calm and empty week without her. I will meet her at airport tomorrow at 8pm approximetly. After that we will go to some restaraunt and have a dinner. Also I started writing script for the next video. I am going to finish it tomorrow morning.
+Today I walked a bit and ate a lot. it was a good day. I published HEIC to jpeg converter in github. I am going to use this stuff for a while. Also this saturday is the final day without Ksusha. she is going coming back to Yerevan. It was a calm and empty week without her. I will meet her at airport tomorrow at 8pm approximetly. After that we will go to some restaraunt and have a dinner. Also I started writing script for the next video. I am going to finish it tomorrow morning and maybe rerecord the video.
