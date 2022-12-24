@@ -103,4 +103,4 @@ I met Oleg today and it was extrimely important because I don't know when I will
 
 # 24 December - Saturday - Yerevan - 86 day of immigration
 
-Today I walked a bit and ate a lot.
+Today I walked a bit and ate a lot. it was a good day.
