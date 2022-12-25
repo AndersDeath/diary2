@@ -107,4 +107,4 @@ Today I walked a bit and ate a lot. it was a good day. I published HEIC to jpeg 
 
 # 25 December - Sunday - Yerevan - 87 day of immigration
 
-I woke up in time tiday I had a good rest.
+I woke up in time tiday I had a good rest. After that I went to the city center for a walk and had good lunch in Sarriso.
