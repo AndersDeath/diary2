@@ -107,4 +107,4 @@ Today I walked a bit and ate a lot. it was a good day. I published HEIC to jpeg 
 
 # 25 December - Sunday - Yerevan - 87 day of immigration
 
-I woke up in time tiday I had a good rest. After that I went to the city center for a walk and had good lunch in Sarriso. Just after that went home and was working on the new video. I will probably finish with it during the week. I need to finish with the text and then record the video. I captured some material today, but it's not good, I think, but maybe I will cut it and make good stuff. Ksusha came back from Russia and I met her at the airport. We ahd a dinner and then went home.
+I woke up in time tiday I had a good rest. After that I went to the city center for a walk and had good lunch in Sarriso. Just after that went home and was working on the new video. I will probably finish with it during the week. I need to finish with the text and then record the video. I captured some material today, but it's not good, I think, but maybe I will cut it and make good stuff. Ksusha came back from Russia and I met her at the airport. We ahd a dinner and then went home. It's really better to be with her.
