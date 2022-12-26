@@ -111,4 +111,4 @@ I woke up in time tiday I had a good rest. After that I went to the city center 
 
 # 26 December - Monday - Yerevan - 88 day of immigration
 
-Today I did a lot of important stuff.
+Today I did a lot of important stuff. I've sent an application for temporary residency.
