@@ -111,4 +111,4 @@ I woke up in time tiday I had a good rest. After that I went to the city center 
 
 # 26 December - Monday - Yerevan - 88 day of immigration
 
-Today I did a lot of important stuff. I've sent an application for temporary residency. It's cool by the way. Also I gave my russian passport to lawer in order to get prooved copy by notary.
+Today I did a lot of important stuff. I've sent an application for temporary residency. It's cool by the way. Also I gave my russian passport to lawer in order to get prooved copy by notariest.
