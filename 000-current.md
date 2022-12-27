@@ -115,4 +115,4 @@ Today I did a lot of important stuff. I've sent an application for temporary res
 
 # 27 December - Tuesday - Yerevan - 89 day of immigration
 
-I've got good news from Surgerian. I don't have restrictions for the setting 5 protesises to my jaws. It's extrimely cool and I will do it in January. It will be the final long wait it my surgery epose. I suffer from it for many years and finally I am on finish line. At the same time the mood is not so good. I definetly have depression. This year was very hard and i just feel bad.
+I've got good news from Surgerian. I don't have restrictions for the setting 5 protesises to my jaws. It's extrimely cool and I will do it in January. It will be the final long wait it my surgery epose. I suffer from it for many years and finally I am on finish line. At the same time the mood is not so good. I definetly have depression. This year was very hard and i just feel bad. I hope I will be ok very soon, but now it's not so good.
