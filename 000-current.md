@@ -112,3 +112,5 @@ I woke up in time tiday I had a good rest. After that I went to the city center 
 # 26 December - Monday - Yerevan - 88 day of immigration
 
 Today I did a lot of important stuff. I've sent an application for temporary residency. It's cool by the way. Also I gave my russian passport to lawer in order to get prooved copy by notariest. Also I updated some things for DRSMILE and worked a bit on front-end investigation. I updated heic converter a bit.  Also I am going to start training devops things. I don't know anything about it, but It's crusial to fix that shit. That's it. 
+
+# 27 December - Tuesday - Yerevan - 89 day of immigration
