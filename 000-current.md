@@ -119,4 +119,4 @@ I've got good news from Surgerian. I don't have restrictions for the setting 5 p
 
 # 28 December - Wednesday - Yerevan - 90 day of immigration
 
-Today I finally published another video of immigation diary. That's good because it's important for me. Also I was working on github algorythm that fetches all languages that I used for the last 10 years. the model is not so good. It looks like I work mostly with javascript but it fact I've been
+Today I finally published another video of immigation diary. That's good because it's important for me. Also I was working on github algorythm that fetches all languages that I used for the last 10 years. the model is not so good. It looks like I work mostly with javascript but it fact I've been working on typescipt for the last several years.
