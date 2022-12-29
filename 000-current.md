@@ -123,4 +123,4 @@ Today I finally published another video of immigation diary. That's good because
 
 # 29 December - Thursday - Yerevan - Tbilisi- 91 day of immigration
 
-I woke up in Yerevan very early in the morning. After short breakfast we sat into the car and went to Armenian-Georgian border. Usually the border crossing process in simple but no this time.
+I woke up in Yerevan very early in the morning. After short breakfast we sat into the car and went to Armenian-Georgian border. Usually the border crossing process in simple but no this time. Inspector asked me about what I do for living.
