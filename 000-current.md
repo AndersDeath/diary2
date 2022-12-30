@@ -127,3 +127,4 @@ I woke up in Yerevan very early in the morning. After short breakfast we sat int
 
 # 30 December - Friday - Tbilisi- 92 day of immigration
 
+The year is alsmost done. I try to feel myself better, but now I am not good. I think I am tiered again of everything.
