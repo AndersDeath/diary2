@@ -130,3 +130,5 @@ I woke up in Yerevan very early in the morning. After short breakfast we sat int
 The year is almost done. I try to feel myself better, but now I am not good. I think I am tired again for everything. The day was not so good and boring. I just was working and that's it.
 
 # 31 December - Saturday - Tbilisi - 93 day of immigration
+
+Today is the latest day of 2022.
