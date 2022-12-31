@@ -131,4 +131,4 @@ The year is almost done. I try to feel myself better, but now I am not good. I t
 
 # 31 December - Saturday - Tbilisi - 93 day of immigration
 
-Today is the latest day of 2022. A lot of good and bad things happened this year. The war, immigration and other hard things happened. At the same time i did many good things.
+Today is the latest day of 2022. A lot of good and bad things happened this year. The war, immigration and other hard things happened. At the same time i did many good things. Today we walked good for Tbilisi.
