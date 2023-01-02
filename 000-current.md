@@ -4,4 +4,4 @@
 
 # 02 January - Monday - Tbilisi - 95 day of immigration
 
-Today I moved another several repositories from bitbucket to github. We walked a bit around and found that prices are extrimely expensive here. It's something abnormal. It's out of normal. Nevermind. Tomorrow I'm going to try record a video in English. I hope this will be ok and I will publish it.
+Today I moved another several repositories from bitbucket to github. We walked a bit around and found that prices are extrimely expensive here. It's something abnormal. It's out of normal. Nevermind. Tomorrow I'm going to try record a video in English. I hope this will be ok and I will publish it.But at least I will record a video in Russian. I will do it tomorrow mornig while Ksusha is on lesson with tutor.
