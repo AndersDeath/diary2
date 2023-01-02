@@ -4,4 +4,4 @@
 
 # 02 January - Monday - Tbilisi - 95 day of immigration
 
-Today I moved another several repositories from bitbucket to github.
+Today I moved another several repositories from bitbucket to github. We walked a bit around and found that prices are extrimely expensive here.
