@@ -3,3 +3,5 @@
 2023 has been started. I don't like to use this nice numbers for tarting doing something, but I think that 2023 is a good year for starting a new life. Surely It's not the first time when I start a new life, but being and living is not something sustainable, it's constatly changing thing. I already have a plan for those changes. Firts of all mind and body should be main things for me. I'm not in good condition really. I need to focus. I need to change this bad approach. 2022 was a year of mind growing. 2023 should be not only about studying, but also about physical perfection. I cannot be super healthy bodybuilder kind man, but at least I need to fix some health problems like my small belly having and just small musles. It's a good goal, that I need to achive.
 
 # 02 January - Monday - Tbilisi - 95 day of immigration
+
+Today I moved another several repositories from bitbucket to github.
