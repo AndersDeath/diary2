@@ -8,4 +8,4 @@ Today I moved another several repositories from bitbucket to github. We walked a
 
 # 03 January - Tuesday - Tbilisi - 96 day of immigration
 
-I've recrded sources for the next video. Probably today I will finish it and publish on youtube. I like this practice because it's more interesting that recording audio pppodcast.
+I've recrded sources for the next video. Probably today I will finish it and publish on youtube. I like this practice because it's more interesting that recording audio pppodcast. It looks like era of pppodcasts has been finished.
