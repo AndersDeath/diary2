@@ -12,4 +12,4 @@ I've recrded sources for the next video. Probably today I will finish it and pub
 
 # 04 January - Wednesday - Tbilisi - 97 day of immigration
 
-Today I was working for the most part of the day.
+Today I was working for the most part of the day. Very soon I will go for a walk, but now I want to write down some thoughts.
