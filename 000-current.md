@@ -9,3 +9,5 @@ Today I moved another several repositories from bitbucket to github. We walked a
 # 03 January - Tuesday - Tbilisi - 96 day of immigration
 
 I've recrded sources for the next video. Probably today I will finish it and publish on youtube. I like this practice because it's more interesting that recording audio pppodcast. It looks like era of pppodcasts has been finished. Also Ksusha has sport today, during this moment I am going to record english video. It will be my first effort to record normal video using foreign language. I finally finished with Rhetoric of Story and got simple certificate. It's funny. So, I finished with almost full list of my deals that I needed to finish. That's good. I feel much better when I can finish something important and interesting. However I need to do much more for finishing all things. From tomorrow I will start recalling basic algorythms. I already started doing it on coursera, but I really don't remember anything. I think I need to reshape the information and memorize it this way.
+
+# 04 January - Wednesday - Tbilisi - 97 day of immigration
