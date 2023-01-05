@@ -16,4 +16,4 @@ Today I was working for the most part of the day. Very soon I will go for a walk
 
 # 05 January - Wednesday - Thursday - 98 day of immigration
 
-I red a lot of vacancies today and I would say that I'm not so good. I need to change focus. I need to record videos faster and constantly.
+I red a lot of vacancies today and I would say that I'm not so good. I need to change focus. I need to record videos faster and constantly. also it looks like if I want to be relocated to US I probably need to try looking for team lead position.
