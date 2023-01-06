@@ -17,3 +17,5 @@ Today I was working for the most part of the day. Very soon I will go for a walk
 # 05 January - Wednesday - Thursday - 98 day of immigration
 
 I red a lot of vacancies today and I would say that I'm not so good. I need to change focus. I need to record videos faster and constantly. also it looks like if I want to be relocated to US I probably need to try looking for team lead position. Surely it depends on salary, but anyway. I studied a lot today work on rhetoric and algorithms. Also we went to Georgia expo. It's a bunch of buldings that were buit in USSR and now it reshaped to restaraunts and buisinesses. So I also set up adobe premiere and tomorrow I will finish with new video. Returning to vacancies, despide the problem with this topic I applyed to several variants.
+
+# 06 January - Wednesday - Friday - 99 day of immigration
