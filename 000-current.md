@@ -20,4 +20,4 @@ I red a lot of vacancies today and I would say that I'm not so good. I need to c
 
 # 06 January - Wednesday - Friday - 99 day of immigration
 
-Today we walked a bit. We finally visitet local stronghold and botanic garden. That are quite nice places. Afte rthat we had a good dinner in balkony 12 restaraunt, which is also very nice. Also I investigated topic of cover letters. I 
+Today we walked a bit. We finally visitet local stronghold and botanic garden. That are quite nice places. Afte rthat we had a good dinner in balkony 12 restaraunt, which is also very nice. Also I investigated topic of cover letters. I already have one, but I need to update it. defenetly I will do it tomorrow.
