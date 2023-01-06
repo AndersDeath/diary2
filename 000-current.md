@@ -20,4 +20,4 @@ I red a lot of vacancies today and I would say that I'm not so good. I need to c
 
 # 06 January - Wednesday - Friday - 99 day of immigration
 
-Today we walked a bit. We finally visitet local stronghold and botanic garden.
+Today we walked a bit. We finally visitet local stronghold and botanic garden. That are quite nice places.
