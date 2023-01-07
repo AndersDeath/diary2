@@ -14,12 +14,13 @@ I've recrded sources for the next video. Probably today I will finish it and pub
 
 Today I was working for the most part of the day. Very soon I will go for a walk, but now I want to write down some thoughts. First of all I finally continued learning process and this is amaizing. I studied English today and some product thinking stuff. Also I registered in Mastadon which is a web3 twitter analogue. I still doesn't know how it exactly works but it's interesting. Significant part of the day was in fight with final cut pro as result Iremoved this shit and downloaded and installed adobe premiere. Tomorrow I will try to do something using this tool. I waste a lot of time and didn't record a video in English which is shame and I dind't look for vacancies. I need to find time for fixing it. Also I need to mention that service in Georgia is still aweful. Today Glovo brought someone's else order. It is a shame because every day something goes wrong with local delivieres. It was the last time when I tried it. I don't want to use it anymore. Food delivieres in Yerevan work significantly better. Also I need to mention that prices here are incredible hight. Abnormally hight I would say.
 
-# 05 January - Thursday - Thursday - 98 day of immigration
+# 05 January - Thursday - Tbilisi - 98 day of immigration
 
 I red a lot of vacancies today and I would say that I'm not so good. I need to change focus. I need to record videos faster and constantly. also it looks like if I want to be relocated to US I probably need to try looking for team lead position. Surely it depends on salary, but anyway. I studied a lot today work on rhetoric and algorithms. Also we went to Georgia expo. It's a bunch of buldings that were buit in USSR and now it reshaped to restaraunts and buisinesses. So I also set up adobe premiere and tomorrow I will finish with new video. Returning to vacancies, despide the problem with this topic I applyed to several variants.
 
-# 06 January - Friday - Friday - 99 day of immigration
+# 06 January - Friday - Tbilisi - 99 day of immigration
 
 Today we walked a bit. We finally visitet local stronghold and botanic garden. That are quite nice places. Afte rthat we had a good dinner in balkony 12 restaraunt, which is also very nice. Also I investigated topic of cover letters. I already have one, but I need to update it. defenetly I will do it tomorrow. I also significantly improved editing of my new video that I'm gonig to publish very soon. Adobe premiere doesn't surprise in accinetal moment like final cut does. Everything works correct and fine. I will finish with editing tomorrow. Another problem that I started understand songs that I loved when I was a kid. It sucks. By the way, tomorrow will be the latest full day in Tbilisi for me. I dont's want to come back here again soon. Armenia seems more prefferable country for me.
 
-# 07 January - Saturday - Friday - 100 day of immigration
+# 07 January - Saturday - Tbilisi - 100 day of immigration
+
