@@ -24,3 +24,4 @@ Today we walked a bit. We finally visitet local stronghold and botanic garden. T
 
 # 07 January - Saturday - Tbilisi - 100 day of immigration
 
+It was the last full day in Tbilisi for us. We had a gool walk and rode of funukuler.
