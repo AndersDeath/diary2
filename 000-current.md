@@ -18,8 +18,8 @@ Today I was working for the most part of the day. Very soon I will go for a walk
 
 I red a lot of vacancies today and I would say that I'm not so good. I need to change focus. I need to record videos faster and constantly. also it looks like if I want to be relocated to US I probably need to try looking for team lead position. Surely it depends on salary, but anyway. I studied a lot today work on rhetoric and algorithms. Also we went to Georgia expo. It's a bunch of buldings that were buit in USSR and now it reshaped to restaraunts and buisinesses. So I also set up adobe premiere and tomorrow I will finish with new video. Returning to vacancies, despide the problem with this topic I applyed to several variants.
 
-# 06 January - Wednesday - Friday - 99 day of immigration
+# 06 January - Friday - Friday - 99 day of immigration
 
 Today we walked a bit. We finally visitet local stronghold and botanic garden. That are quite nice places. Afte rthat we had a good dinner in balkony 12 restaraunt, which is also very nice. Also I investigated topic of cover letters. I already have one, but I need to update it. defenetly I will do it tomorrow. I also significantly improved editing of my new video that I'm gonig to publish very soon. Adobe premiere doesn't surprise in accinetal moment like final cut does. Everything works correct and fine. I will finish with editing tomorrow. Another problem that I started understand songs that I loved when I was a kid. It sucks. By the way, tomorrow will be the latest full day in Tbilisi for me. I dont's want to come back here again soon. Armenia seems more prefferable country for me.
 
-# 07 January - Wednesday - Friday - 100 day of immigration
+# 07 January - Saturday - Friday - 100 day of immigration
