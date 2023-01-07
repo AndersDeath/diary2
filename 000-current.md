@@ -24,4 +24,4 @@ Today we walked a bit. We finally visitet local stronghold and botanic garden. T
 
 # 07 January - Saturday - Tbilisi - 100 day of immigration
 
-It was the last full day in Tbilisi for us. We had a gool walk and rode of funukuler. I've wrote it in Russian transcription because I don't know how do it in Eglish correctly.
+It was the last full day in Tbilisi for us. We had a gool walk and rode of funukuler. I've wrote it in Russian transcription because I don't know how do it in Eglish correctly. Nevermind, we walked a lot and also visitet not only the highest point in Tbilisi but also Rustaveli street and Balcony 12 restaraunt.
