@@ -28,4 +28,4 @@ It was the last full day in Tbilisi for us. We had a gool walk and rode of funuk
 
 # 08 January - Sunday - Tbilisi - Yerevan - 101 day of immigration
 
-The driver was late. He was half an hour late. He told us than he didn't sleep at night because of another client. So, He found another drive that moved to Yerevan. This time Armenian officer asked a lot of questions. Their attention to us changed. It's sometihng new. Anyway I crossed the border successfully. Now I am in Yerevan. The apartments looks good.
+The driver was late. He was half an hour late. He told us than he didn't sleep at night because of another client. So, He found another drive that moved to Yerevan. This time Armenian officer asked a lot of questions. Their attention to us changed. It's sometihng new. Anyway I crossed the border successfully. Now I am in Yerevan. The apartments looks good. the weather is quite cold undfortunately.
