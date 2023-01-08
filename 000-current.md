@@ -28,3 +28,4 @@ It was the last full day in Tbilisi for us. We had a gool walk and rode of funuk
 
 # 08 January - Sunday - Tbilisi - Yerevan - 101 day of immigration
 
+The driver was late.
