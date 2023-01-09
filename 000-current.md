@@ -32,3 +32,4 @@ The driver was late. He was half an hour late. He told us than he didn't sleep a
 
 # 09 January - Monday - Yerevan - 102 day of immigration
 
+Today I almost done with everything I planned. 
