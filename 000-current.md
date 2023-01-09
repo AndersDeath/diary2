@@ -32,4 +32,4 @@ The driver was late. He was half an hour late. He told us than he didn't sleep a
 
 # 09 January - Monday - Yerevan - 102 day of immigration
 
-Today I almost done with everything I planned. IT's very cool. Also I scheduled surgeey. It will be in thursday. I am happy because I really wanted to do it as soon as possible. It mean that maybe in 6 months I will have new teeth which is amazing. I also came back to full working days. I try do as much as I can.
+Today I almost done with everything I planned. IT's very cool. Also I scheduled surgeey. It will be in thursday. I am happy because I really wanted to do it as soon as possible. It mean that maybe in 6 months I will have new teeth which is amazing. I also came back to full working days. I try do as much as I can. I didn't have time to finish only one thing - video.
