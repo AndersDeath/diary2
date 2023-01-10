@@ -36,4 +36,4 @@ Today I almost done with everything I planned. IT's very cool. Also I scheduled 
 
 # 10 January - Tuesday - Yerevan - 103 day of immigration
 
-Today I had a much more power for work which is amazing. I did a lot of stuff including bug fixed and som new features. Usually I spend a lot fo time on studying and this day wasn't an exeption. I studyied rhetorics again, agrogithms and wrote a bit an article.
+Today I had a much more power for work which is amazing. I did a lot of stuff including bug fixed and som new features. Usually I spend a lot fo time on studying and this day wasn't an exeption. I studyied rhetorics again, agrogithms and wrote a bit an article. Also I finally published a vide about new year celebration in Georgia.
