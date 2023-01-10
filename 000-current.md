@@ -36,4 +36,4 @@ Today I almost done with everything I planned. IT's very cool. Also I scheduled 
 
 # 10 January - Tuesday - Yerevan - 103 day of immigration
 
-Today I had a much more power for work which is amazing.
+Today I had a much more power for work which is amazing. I did a lot of stuff including bug fixed and som new features.
