@@ -40,4 +40,4 @@ Today I had a much more power for work which is amazing. I did a lot of stuff in
 
 # 11 January - Wednesday - Yerevan - 104 day of immigration
 
-I've fixed a lot of stuff on NNEC project. Also, I watched couple of videos related to English. I also did some research in front-end area, worked on scenario and on another writing things. Tomorrow is a big day. I'm going to get surgery. The surger wil screw in 5 teeth. It will be amazing. I'm happy. Also today was the last day when I had to shot my ass. I mean cikloferon of course. It's cool, because it's not so fun to have pain in the ass. In general, mymood is quite calm today, this is cool, i think.
+I've fixed a lot of stuff on NNEC project. Also, I watched couple of videos related to English. I also did some research in front-end area, worked on scenario and on another writing things. Tomorrow is a big day. I'm going to get surgery. The surger wil screw in 5 teeth. It will be amazing. I'm happy. Also today was the last day when I had to shot my ass. I mean cikloferon of course. It's cool, because it's not so fun to have pain in the ass. In general, mymood is quite calm today, this is cool, I think. 
