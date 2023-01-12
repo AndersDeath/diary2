@@ -44,4 +44,4 @@ I've fixed a lot of stuff on NNEC project. Also, I watched couple of videos rela
 
 # 12 January - Thursday - Yerevan - 105 day of immigration
 
-I'm going to Surgeon in 10 minutes.
+I'm going to Surgeon in 10 minutes. I'm really scared today. I don't know what happened with me.
