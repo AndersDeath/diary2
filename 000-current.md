@@ -48,4 +48,4 @@ I'm going to Surgeon in 10 minutes. I'm really scared today. I don't know what h
 
 # 13 January - Friday - Yerevan - 106 day of immigration
 
-Today I felt good. Fortunately I am not old guy and recovery process is fast for me. I also had a full day of meeting and it was very painful. Also I was investigating things fro quick creation of projects.
+Today I felt good. Fortunately I am not old guy and recovery process is fast for me. I also had a full day of meeting and it was very painful. Also I was investigating things fro quick creation of projects. I think that I now have a backend solution for building quick prototypes of things.
