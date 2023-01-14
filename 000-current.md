@@ -51,3 +51,5 @@ I'm going to Surgeon in 10 minutes. I'm really scared today. I don't know what h
 Today I felt good. Fortunately I am not old guy and recovery process is fast for me. I also had a full day of meeting and it was very painful. Also I was investigating things fro quick creation of projects. I think that I now have a backend solution for building quick prototypes of things. Also I didn't record pppodcast for a very long time. I have a plan to record it very soon this weekend. It's important to keep habits, especially if they are useful. Today I also was writing article. I became much more fluent in writing. I am happy that my skills improved. Unfotunately VSCode doesn't have spelling plugin. Because of it I still cannot fix mistakes in this texts.
 
 # 14 January - Saturday - Yerevan - 107 day of immigration
+
+Today I was  a chat meal.
