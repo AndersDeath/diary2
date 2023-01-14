@@ -52,4 +52,4 @@ Today I felt good. Fortunately I am not old guy and recovery process is fast for
 
 # 14 January - Saturday - Yerevan - 107 day of immigration
 
-Today I was  a cheat meal. We walked around Yerevan's city center.
+Today I was  a cheat meal. We walked around Yerevan's city center. We visited a new restaurant, I don't remember the name of it, unfortunately.
