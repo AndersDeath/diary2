@@ -52,4 +52,4 @@ Today I felt good. Fortunately I am not old guy and recovery process is fast for
 
 # 14 January - Saturday - Yerevan - 107 day of immigration
 
-Today I was  a chat meal.
+Today I was  a cheat meal.
