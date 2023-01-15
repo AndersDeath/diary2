@@ -56,4 +56,4 @@ Today I was  a cheat meal. We walked around Yerevan's city center. We visited a 
 
 # 15 January - Sunday - Yerevan - 108 day of immigration
 
-today I also was working on my things. I filled a report for my accountant. Also I was working on my new article. It's really long process for me because I decided ignoring Russian and write directly in English.
+today I also was working on my things. I filled a report for my accountant. Also I was working on my new article. It's really long process for me because I decided ignoring Russian and write directly in English. It's absolutely weighted decision.
