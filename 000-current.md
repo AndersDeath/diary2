@@ -60,4 +60,4 @@ today I also was working on my things. I filled a report for my accountant. Also
 
 # 15 January - Monday - Yerevan - 109 day of immigration
 
-I improved today the readme prototype. It looks better, but still not suitable for production. I prepared plan minimum for the project. I finished with 3 fields, but even now I see that It needs to start using state management system
+I improved today the readme prototype. It looks better, but still not suitable for production. I prepared plan minimum for the project. I finished with 3 fields, but even now I see that It needs to start using state management system. It will be definitely redux.
