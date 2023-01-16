@@ -59,3 +59,5 @@ Today I was  a cheat meal. We walked around Yerevan's city center. We visited a 
 today I also was working on my things. I filled a report for my accountant. Also I was working on my new article. It's really long process for me because I decided ignoring Russian and write directly in English. It's absolutely weighted decision. I don't see any future in that part of the world. So, I also was working on Reactjs investigation. I tried Hugo project. It's another static website generator. I will maybe use in in the future. I didn't make a decision about it. Today I got feeling of pleasure when I was working on article. It's new feeling for me. I want to proceed working on it, because it's cool. I also finally sent documents to Nastya. CDEK still works.
 
 # 15 January - Monday - Yerevan - 109 day of immigration
+
+I improved today the readme prototype. It looks better, but still not suitable for production.
