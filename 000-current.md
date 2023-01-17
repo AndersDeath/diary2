@@ -64,4 +64,4 @@ I improved today the readme prototype. It looks better, but still not suitable f
 
 # 17 January - Tuesday - Yerevan - 110 day of immigration
 
-Today I was working on DRSMILE release. Interesting that I feel myself broken. Today I had a lot of meetings and discussed a lot of things. I tried to write several lines of Java code. I don't like this language, but I see that I need to know it. A lot of vacancies have this language in the requirenments list. Also I feel that speak English worse.
+Today I was working on DRSMILE release. Interesting that I feel myself broken. Today I had a lot of meetings and discussed a lot of things. I tried to write several lines of Java code. I don't like this language, but I see that I need to know it. A lot of vacancies have this language in the requirenments list. Also I feel that speak English worse. I need to start training tomorrow again.
