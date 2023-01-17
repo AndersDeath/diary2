@@ -64,4 +64,4 @@ I improved today the readme prototype. It looks better, but still not suitable f
 
 # 17 January - Tuesday - Yerevan - 110 day of immigration
 
-Today I was working on DRSMILE release.
+Today I was working on DRSMILE release. Interesting that I feel myself broken.
