@@ -68,4 +68,4 @@ Today I was working on DRSMILE release. Interesting that I feel myself broken. T
 
 # 18 January - Wednesday - Yerevan - 111 day of immigration
 
-As usual I was coding for the most part of the day.
+As usual I was coding for the most part of the day. We are very close to the crusial release that should be in the last year.
