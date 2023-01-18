@@ -68,4 +68,4 @@ Today I was working on DRSMILE release. Interesting that I feel myself broken. T
 
 # 18 January - Wednesday - Yerevan - 111 day of immigration
 
-As usual I was coding for the most part of the day. We are very close to the crucial release that should be in the last year. this is good. Also I was on the All Hands Meeting, which is basically the 
+As usual I was coding for the most part of the day. We are very close to the crucial release that should be in the last year. this is good. Also I was on the All Hands Meeting, which is basically the meeting where c level management gives an information about company's health.
