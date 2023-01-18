@@ -67,3 +67,5 @@ I improved today the readme prototype. It looks better, but still not suitable f
 Today I was working on DRSMILE release. Interesting that I feel myself broken. Today I had a lot of meetings and discussed a lot of things. I tried to write several lines of Java code. I don't like this language, but I see that I need to know it. A lot of vacancies have this language in the requirements list. Also I feel that speak English worse. I need to start training tomorrow again. It's bad. Also I didn't have time to proceed working on articles. I didn't have time for recording new vide as well. I suppose that I fill record another diary tomorrow. By the way it's interesting that github thinks that this repository is "SHELL". it's fun, because practically all lines are markdown. Tomorrow I will try to be better.
 
 # 18 January - Wednesday - Yerevan - 111 day of immigration
+
+As usual I was coding for the most part of the day.
