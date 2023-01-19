@@ -72,4 +72,4 @@ As usual I was coding for the most part of the day. We are very close to the cru
 
 # 19 January - Thursday - Yerevan - 112 day of immigration
 
-I finally released big project within DRSMILE. This is amazing and I feel relief. Because of that I will have more time for my personal project.
+I finally released big project within DRSMILE. This is amazing and I feel relief. Because of that I will have more time for my personal project. Unfortunately I didn't have enough time for other things.
