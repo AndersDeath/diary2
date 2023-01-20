@@ -76,4 +76,4 @@ I finally released big project within DRSMILE. This is amazing and I feel relief
 
 # 20 January - Friday - Yerevan - 113 day of immigration
 
-Yesterdays DRSMILE release caused an issue. 1200 wrong notifications were sent to people. It's not so much and we found how to resolve them.  iwas working a bit on writing. Aslo I've understood that I need to create a deadline for my articles. Without it I will do it forever without positive result. So, from tomorrow I will do everything this way.
+Yesterdays DRSMILE release caused an issue. 1200 wrong notifications were sent to people. It's not so much and we found how to resolve them.  iwas working a bit on writing. Also I've understood that I need to create a deadline for my articles. Without it I will do it forever without positive result. So, from tomorrow I will do everything this way.
