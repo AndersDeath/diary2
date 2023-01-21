@@ -80,4 +80,4 @@ Yesterdays DR SMILE release caused an issue. 1200 wrong notifications were sent 
 
 # 21 January - Saturday - Yerevan - 114 day of immigration
 
-I was doing good today. I wrote several lines of text and published short notes in TG. I also tried to edit video, but source of it was awful. I just recorded another one which I'm going to edit tomorrow. We walked a lot today. We did about 15000 steps which is good.
+I was doing good today. I wrote several lines of text and published short notes in TG. I also tried to edit video, but source of it was awful. I just recorded another one which I'm going to edit tomorrow. We walked a lot today. We did about 15000 steps which is good. Cheat meal is another topic. It was amazing.
