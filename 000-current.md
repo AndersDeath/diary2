@@ -84,4 +84,4 @@ I was doing good today. I wrote several lines of text and published short notes 
 
 # 22 January - Sunday - Yerevan - 115 day of immigration
 
-Today I was watching videos about management and leadership. I have to finish some courses faster. I think that I dedicate my time wrong way sometimes. Additionally I finished with editing of the new video. Tomorrow I will check it, render, and publish. I finished writing ine small article that I will publish on Tuesday.
+Today I was watching videos about management and leadership. I have to finish some courses faster. I think that I dedicate my time wrong way sometimes. Additionally I finished with editing of the new video. Tomorrow I will check it, render, and publish. I finished writing ine small article that I will publish on Tuesday. After that I can be more focused on english video script.
