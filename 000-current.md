@@ -88,4 +88,4 @@ Today I was watching videos about management and leadership. I have to finish so
 
 # 23 January - Monday - Yerevan - 116 day of immigration
 
-I had a full day of meeting. It's not a surprise by the way. It's very common thing. However I found time for publishing a video. Tomorrow I will publish my fist small little tiny article in English. there is nothing worth, but It will be significant for me personally.
+I had a full day of meeting. It's not a surprise by the way. It's very common thing. However I found time for publishing a video. Tomorrow I will publish my fist small little tiny article in English. there is nothing worth, but It will be significant for me personally. Also I got an invitation from Booking com.
