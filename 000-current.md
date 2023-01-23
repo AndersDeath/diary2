@@ -88,4 +88,4 @@ Today I was watching videos about management and leadership. I have to finish so
 
 # 23 January - Monday - Yerevan - 116 day of immigration
 
-I had a full day of meeting.
+I had a full day of meeting. It's not a surprise by the way.
