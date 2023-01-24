@@ -92,4 +92,4 @@ I had a full day of meeting. It's not a surprise by the way. It's very common th
 
 # 24 January - Tuesday - Yerevan - 117 day of immigration
 
-Today I again had a full day of meeting. I again found 5 vacancies and sent cv. I finally paid attention on Apple, Uber, Netflix, etc. I sent resume to them.
+Today I again had a full day of meeting. I again found 5 vacancies and sent cv. I finally paid attention on Apple, Uber, Netflix, etc. I sent resume to them. I prepared my new article for publication. I will do it tomorrow's morning.
