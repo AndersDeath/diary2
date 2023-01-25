@@ -96,4 +96,4 @@ Today I again had a full day of meeting. I again found 5 vacancies and sent cv. 
 
 # 25 January - Wednesday - Yerevan - 118 day of immigration
 
-Today I god all creds to Mostmag project. I
+Today I god all creds to Mostmag project. I'll not change something, but It'll be more convenient.
