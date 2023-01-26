@@ -99,4 +99,4 @@ Today I again had a full day of meeting. I again found 5 vacancies and sent cv. 
 Today I god all creds to Mostmag project. I'll not change something, but It'll be more convenient. Also I had a screening interview with Booking, which is interesting. Probably The will send some interesting links to me. I have doubts that I will pass tests, but I will try doing it well. By the way, yesterday I was on webinar by University of London. It looks lke I have a chance to get oline degree. I returned to doing programming tasks every day. I need to improve my mind in this case. So, In general the day was good. 
 
 # 26 January - Thursday - Yerevan - 119 day of immigration
-I was on podolog today. It looks like my feet became better. The rest of the day I was working on DR SMILE's tasks. Tomorrow I am going to start working 
+I was on podolog today. It looks like my feet became better. The rest of the day I was working on DR SMILE's tasks. Tomorrow I am going to start working english scenario.
