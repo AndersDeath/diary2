@@ -100,3 +100,5 @@ Today I god all creds to Mostmag project. I'll not change something, but It'll b
 
 # 26 January - Thursday - Yerevan - 119 day of immigration
 I was on podolog today. It looks like my feet became better. The rest of the day I was working on DR SMILE's tasks. Tomorrow I am going to start working english scenario. I sent new article to the review. I hope it will happen soon and I will have the first publication. Let's see. In general I didn't do the full list of things that I usually can. the problem is that I went to sleep too late yesterday. I will break this shit tomorrow. I need to groom my schedule. I planned much more that I can do. I try to be everywhere. Sadly It's impossible. By the way, I will not publish the article I will do it on Medium. I didn't have time to try GitHub pages. I had to do it, but again. I really want to immigrate from Yerevan soon. It's not a place where I want to live. I planned to much. As I mentioned I'm going to groom my schedule tomorrow. It's the most important task.
+
+# 27 January - Friday - Yerevan - 120 day of immigration
