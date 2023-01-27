@@ -103,4 +103,4 @@ I was on podolog today. It looks like my feet became better. The rest of the day
 
 # 27 January - Friday - Yerevan - 120 day of immigration
 
-My first article in English was approved on HackerNoon. I am happy about and I will share this on LinkedIn very soon. basically it's the fist article in such series that I want to publish.
+My first article in English was approved on HackerNoon. I am happy about and I will share this on LinkedIn very soon. basically it's the fist article in such series that I want to publish. then I tryed docker with php. Unfortunately it didn't work.
