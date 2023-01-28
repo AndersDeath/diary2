@@ -107,4 +107,4 @@ My first article in English was approved on HackerNoon. I am happy about and I w
 
 # 28 January - Saturday - Yerevan - 121 day of immigration
 
-I did nothing today and this is amazing. I just posted a couple words about my first publication of HackerNoon. we walked a lot today.
+I did nothing today and this is amazing. I just posted a couple words about my first publication of HackerNoon. we walked a lot today. I feel a bit better than yesterday.
