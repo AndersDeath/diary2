@@ -107,4 +107,4 @@ My first article in English was approved on HackerNoon. I am happy about and I w
 
 # 28 January - Saturday - Yerevan - 121 day of immigration
 
-I did nothing today and this is amazing. I just posted a couple words about my first publication of HackerNoon. we walked a lot today. I feel a bit better than yesterday. It's cool by the way. tomorrow I am going to record another video. I have something to say. Also I am going to watch studying videos. I hope that I will finish some courses finally. It consumes a lot of time but I need some free one. It snows in Yerevan. It's very rare event.
+I did nothing today and this is amazing. I just posted a couple words about my first publication of HackerNoon. we walked a lot today. I feel a bit better than yesterday. It's cool by the way. tomorrow I am going to record another video. I have something to say. Also I am going to watch studying videos. I hope that I will finish some courses finally. It consumes a lot of time but I need some free one. It snows in Yerevan. It's very rare event. Usually there is extremely dry air.
