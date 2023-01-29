@@ -111,3 +111,4 @@ I did nothing today and this is amazing. I just posted a couple words about my f
 
 # 29 January - Sunday - Yerevan - 122 day of immigration
 
+You people, the world is now fair. The life is not fair. I am tired from these struggles that I always face on my way.
