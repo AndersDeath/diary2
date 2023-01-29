@@ -111,4 +111,4 @@ I did nothing today and this is amazing. I just posted a couple words about my f
 
 # 29 January - Sunday - Yerevan - 122 day of immigration
 
-You people, the world is now fair. The life is not fair. I am tired from these struggles that I always face on my way. yesterday I realized that instruction that I used for sending docs to temporary residency permit was outdated. It means that I wasted one more month. I really don't want to be here. I am extremely tiered of the situation itself. I don't give up, but it became painful.
+You people, the world is now fair. The life is not fair. I am tired from these struggles that I always face on my way. yesterday I realized that instruction that I used for sending docs to temporary residency permit was outdated. It means that I wasted one more month. I really don't want to be here. I am extremely tiered of the situation itself. I don't give up, but it became painful. So, I need to meet one women that can help me with obtaining of the documents.
