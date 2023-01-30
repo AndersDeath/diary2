@@ -115,4 +115,4 @@ You people, the world is now fair. The life is not fair. I am tired from these s
 
 # 30 January - Monday - Yerevan - 123 day of immigration
 
-I published the first note about Holy Theory project. I suppose it's good time to do everything openly.
+I published the first note about Holy Theory project. I suppose it's good time to do everything openly. I have a very bad habit to do everything in shade. I'm not a public guy, but I have to be such person.
