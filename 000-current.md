@@ -119,4 +119,4 @@ I published the first note about Holy Theory project. I suppose it's good time t
 
 # 31 January - Tuesday - Yerevan - 124 day of immigration
 
-Today I had a interview with Uber.
+Today I had a interview with Uber. It was just introduction.
