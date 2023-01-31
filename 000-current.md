@@ -119,4 +119,4 @@ I published the first note about Holy Theory project. I suppose it's good time t
 
 # 31 January - Tuesday - Yerevan - 124 day of immigration
 
-Today I had a interview with Uber. It was just introduction. I wasn't perfect. They want to get staff engineer which is a shitty position.
+Today I had a interview with Uber. It was just introduction. I wasn't perfect. They want to get staff engineer which is a shitty position. It will be good for escaping from Yerevan, but not so good in general.
