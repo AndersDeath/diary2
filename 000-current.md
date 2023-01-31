@@ -119,4 +119,4 @@ I published the first note about Holy Theory project. I suppose it's good time t
 
 # 31 January - Tuesday - Yerevan - 124 day of immigration
 
-Today I had a interview with Uber. It was just introduction. I wasn't perfect. They want to get staff engineer which is a shitty position. It will be good for escaping from Yerevan, but not so good in general. I lost time and did not pay enough attention to technical training. Also we went to the bank this morning and sent money to London. Ksushas trainer asked her for it.
+Today I had a interview with Uber. It was just introduction. I wasn't perfect. They want to get staff engineer which is a shitty position. It will be good for escaping from Yerevan, but not so good in general. I lost time and did not pay enough attention to technical training. Also we went to the bank this morning and sent money to London. Ksushas trainer asked her for it. So. I published yesterday a note about holy theory. It's essentially a book that I started composing last year. 
