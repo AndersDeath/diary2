@@ -4,4 +4,4 @@ Today I recorded a video. When I have time I will edit it and publish. It will b
 
 # 02 February - Thursday - Yerevan - 126 day of immigration
 
-Today I finished with the first test from Booking. I hope that I did well and everything is good. Also the new backend developer started working with us, which is amazing thing. I did several exercises. I've been preparing myself for potential layoffs. It will be very sad if happens.
+Today I finished with the first test from Booking. I hope that I did well and everything is good. Also the new backend developer started working with us, which is amazing thing. I did several exercises. I've been preparing myself for potential layoffs. It will be very sad if happens. At the same time I do everything for compensation of all this things.
