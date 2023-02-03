@@ -8,4 +8,4 @@ Today I finished with the first test from Booking. I hope that I did well and ev
 
 # 03 February - Friday - Yerevan - 127 day of immigration
 
-Today I got a health certificate in the hospital. It's necessary for getting residency. Basically this process ate the whole day. However I did something and improved some things in my projects. Ksusha went to the manicure master and I am alone here. She also bought tickets to Russian. She's going to Saint-P and Rzhev in March probably.
+Today I got a health certificate in the hospital. It's necessary for getting residency. Basically this process ate the whole day. However I did something and improved some things in my projects. Ksusha went to the manicure master and I am alone here. She also bought tickets to Russian. She's going to Saint-P and Rzhev in March probably. I really want to go back home.
