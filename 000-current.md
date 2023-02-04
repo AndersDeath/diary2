@@ -12,4 +12,4 @@ Today I got a health certificate in the hospital. It's necessary for getting res
 
 # 04 February - Saturday - Yerevan - 128 day of immigration
 
-Today I have a full day off. This is amazing. 
+Today I have a full day off. This is amazing. I decided that having at lest one day off is amazing idea.
