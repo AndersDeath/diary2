@@ -16,4 +16,4 @@ Today I have a full day off. This is amazing. I decided that having at lest one 
 
 # 05 February - Sunday - Yerevan - 129 day of immigration
 
-The last day of weekend was also cool. It was quite calm and without anything significant. I bought a new hoody which is nice. ow, Yesterday we were on the big lebowski movie.
+The last day of weekend was also cool. It was quite calm and without anything significant. I bought a new hoody which is nice. ow, Yesterday we were on the big lebowski movie. It was quite nice and interesting. I live this film and was happy yo watch it once again.
