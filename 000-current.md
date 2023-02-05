@@ -16,3 +16,4 @@ Today I have a full day off. This is amazing. I decided that having at lest one 
 
 # 05 February - Sunday - Yerevan - 129 day of immigration
 
+The last day of weekend was also cool.
