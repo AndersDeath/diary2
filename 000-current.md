@@ -20,4 +20,4 @@ The last day of weekend was also cool. It was quite calm and without anything si
 
 # 06 February - Monday - Yerevan - 130 day of immigration
 
-I did great thing 
+I did great thing I met my Lower she will bring my documents to OVIR tomorrow.
