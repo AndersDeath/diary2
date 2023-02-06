@@ -20,4 +20,4 @@ The last day of weekend was also cool. It was quite calm and without anything si
 
 # 06 February - Monday - Yerevan - 130 day of immigration
 
-I did great thing I met my Lower she will bring my documents to OVIR tomorrow. This is very good. Also I fixed Ksushas boots. The master was cheap and it's good. A sad thing also happened. My beloved Pixel 3xl has a blown battery 
+I did great thing I met my Lower she will bring my documents to OVIR tomorrow. This is very good. Also I fixed Ksushas boots. The master was cheap and it's good. A sad thing also happened. My beloved Pixel 3xl has a blown battery.
