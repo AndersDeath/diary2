@@ -24,4 +24,4 @@ I did great thing I met my Lower she will bring my documents to OVIR tomorrow. T
 
 # 07 February - Tuesday - Yerevan - 131 day of immigration
 
-The lawyer carried my documents to OVIR. So, the timer has been started. In 45 days i will have local documents.
+The lawyer carried my documents to OVIR. So, the timer has been started. In 45 days i will have local documents. this is amazing things because after that I will be more free.
