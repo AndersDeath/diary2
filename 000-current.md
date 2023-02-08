@@ -28,4 +28,4 @@ The lawyer carried my documents to OVIR. So, the timer has been started. In 45 d
 
 # 08 February - Wednesday - Yerevan - 132 day of immigration
 
-I feel not so good today. This night was so cold and I am under the weather unfortunately. Despite this fact I am still in the middle of preparations to Uber interview.
+I feel not so good today. This night was so cold and I am under the weather unfortunately. Despite this fact I am still in the middle of preparations to Uber interview. It'll be hard I suppose, but this preparations will be very useful for future looking for a job.
