@@ -28,4 +28,4 @@ The lawyer carried my documents to OVIR. So, the timer has been started. In 45 d
 
 # 08 February - Wednesday - Yerevan - 132 day of immigration
 
-I feel not so good today.
+I feel not so good today. This night was so cold and I am under the weather unfortunately.
