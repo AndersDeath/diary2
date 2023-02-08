@@ -25,3 +25,5 @@ I did great thing I met my Lower she will bring my documents to OVIR tomorrow. T
 # 07 February - Tuesday - Yerevan - 131 day of immigration
 
 The lawyer carried my documents to OVIR. So, the timer has been started. In 45 days i will have local documents. this is amazing things because after that I will have more freedom. Also I studied as well as programmed today. I try to be in track in my preparations to the next interview. I signed for hackerrank quick study plan, that will help me to be more prepared to the interview. I don't expect anything, but I am sure that I will be better in computer science. I improved readme project which is not only the first project that I will make in public, but also great practice in reactjs. I learned about this stuff today as well. Very soon I need to recall how to manage state management system with trunks. It's crusial thing in reactjs ecosystem I would say. So, yea, this day was extremely hard, but I satisfied by it. Everything goes by my plan right now. I know that event tomorrow it might be changed, but I decided to be comfort with what I have.
+
+# 08 February - Wednesday - Yerevan - 132 day of immigration
