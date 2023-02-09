@@ -31,3 +31,5 @@ The lawyer carried my documents to OVIR. So, the timer has been started. In 45 d
 I feel not so good today. This night was so cold and I am under the weather unfortunately. Despite this fact I am still in the middle of preparations to Uber interview. It'll be hard I suppose, but this preparations will be very useful for future looking for a job. I again feel bother of Yerevan. This is a great city, but It's definitely not the place of my dream. I will do everything for living in another place. I know that It will be hard to move myself to US for example. I consider myself as a warrior. My life is some kind of war where I fight with myself and others. So, today I again read a lot of useful things and tried to finish as much as I can.
 
 # 09 February - Thursday - Yerevan - 133 day of immigration
+
+So, Today I got a day off. 
