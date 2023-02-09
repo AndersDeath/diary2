@@ -32,4 +32,4 @@ I feel not so good today. This night was so cold and I am under the weather unfo
 
 # 09 February - Thursday - Yerevan - 133 day of immigration
 
-So, Today I got a day off.  I don't feel good. I'm a bit under the weather. I did not so much. I refactored readme project which is is cool. It's another example how I misestimate things. I do it every time.
+So, Today I got a day off.  I don't feel good. I'm a bit under the weather. I did not so much. I refactored readme project which is is cool. It's another example how I misestimate things. I do it every time. Hoverer it might be a problem with my focus.
