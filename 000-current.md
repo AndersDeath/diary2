@@ -35,3 +35,5 @@ I feel not so good today. This night was so cold and I am under the weather unfo
 So, Today I got a day off.  I don't feel good. I'm a bit under the weather. I did not so much. I refactored readme project which is is cool. It's another example how I misestimate things. I do it every time. Hoverer it might be a problem with my focus. I don't know exactly how to understand it. But if we talk about other things I made a lot of them.
 
 # 10 February - Friday - Yerevan - 134 day of immigration
+
+Today I had a full day of meeting, which was hard.
