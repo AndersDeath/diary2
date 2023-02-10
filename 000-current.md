@@ -36,4 +36,4 @@ So, Today I got a day off.  I don't feel good. I'm a bit under the weather. I di
 
 # 10 February - Friday - Yerevan - 134 day of immigration
 
-Today I had a full day of meeting, which was hard.
+Today I had a full day of meeting, which was hard. I presented some features in front of all DR SMiLE. It was awful. 
