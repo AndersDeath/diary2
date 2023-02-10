@@ -36,4 +36,4 @@ So, Today I got a day off.  I don't feel good. I'm a bit under the weather. I di
 
 # 10 February - Friday - Yerevan - 134 day of immigration
 
-Today I had a full day of meeting, which was hard. I presented some features in front of all DR SMiLE. It was awful. I am a bad performer. I still didn't find time for videos in English. I will change it soon. I promise it. It's really hard way for me. Just start to talk English in front of hundreds people is always hard. I cannot fight my anxiety. At the same time I feel better today.
+Today I had a full day of meeting, which was hard. I presented some features in front of all DR SMiLE. It was awful. I am a bad performer. I still didn't find time for videos in English. I will change it soon. I promise it. It's really hard way for me. Just start to talk English in front of hundreds people is always hard. I cannot fight my anxiety. At the same time I feel better today. I don't feel so powerless.
