@@ -40,4 +40,4 @@ Today I had a full day of meeting, which was hard. I presented some features in 
 
 # 11 February - Saturday - Yerevan - 135 day of immigration
 
-Saturday is transitionally the off day. We was walking for whole day. It was perfect I believe. I feel much better today.
+Saturday is transitionally the off day. We was walking for whole day. It was perfect I believe. I feel much better today. We visited Barev cafe.
