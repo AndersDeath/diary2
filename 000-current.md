@@ -44,4 +44,4 @@ Saturday is transitionally the off day. We was walking for whole day. It was per
 
 # 12 February - Sunday - Yerevan - 136 day immigration
 
-We were in two new places today. The first one is ground zero cafe. It's something like co-working space. The second place is DOC. 
+We were in two new places today. The first one is ground zero cafe. It's something like co-working space. The second place is DOC. It's really awful restaurant-bar.
