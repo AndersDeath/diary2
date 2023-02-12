@@ -44,4 +44,4 @@ Saturday is transitionally the off day. We was walking for whole day. It was per
 
 # 12 February - Sunday - Yerevan - 136 day immigration
 
-We were in two new places today. The first one is ground zero cafe. It's something like co-working space. The second place is DOC. It's really awful restaurant-bar. It's hard imagine so bad food for such price. Really, SAS food court is much better.
+We were in two new places today. The first one is ground zero cafe. It's something like co-working space. The second place is DOC. It's really awful restaurant-bar. It's hard imagine so bad food for such price. Really, SAS food court is much better. I spent a couple hours with algorithms today. It
