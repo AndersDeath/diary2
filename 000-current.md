@@ -43,3 +43,5 @@ Today I had a full day of meeting, which was hard. I presented some features in 
 Saturday is transitionally the off day. We was walking for whole day. It was perfect I believe. I feel much better today. We visited Barev cafe. It's a project of russian immigrants. Food there is cool, the mood is awful. If they don't change decoration of room, nobody goes there. We were in Tumo studio. It's nice art place where were a temporary exhibition of a Armenian art student. I got a lot of nice things in Wilberries. It's also cool. I feel good physically but brain doesn't work. I really need to work more on my English speaking skills. It's so hard for me to start doing it.
 
 # 12 February - Sunday - Yerevan - 136 day immigration
+
+We were in two new places today.
