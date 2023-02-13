@@ -48,4 +48,4 @@ We were in two new places today. The first one is ground zero cafe. It's somethi
 
 # 13 February - Monday - Yerevan - 137 day immigration
 
-Today I faced with Inecobank stupidness again.
+Today I faced with Inecobank stupidness again. I went there for 6 statements about bank transactions.
