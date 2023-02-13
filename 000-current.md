@@ -48,4 +48,4 @@ We were in two new places today. The first one is ground zero cafe. It's somethi
 
 # 13 February - Monday - Yerevan - 137 day immigration
 
-Today I faced with Inecobank stupidness again. I went there for 6 statements about my bank transactions. So, these people forgot to change my passport number in the system. As a result I took those statements came back home and realized that the number is wrong.
+Today I faced with Inecobank stupidness again. I went there for 6 statements about my bank transactions. So, these people forgot to change my passport number in the system. As a result I took those statements came back home and realized that the number is wrong. I had to go back and ask them to fix it.
