@@ -46,4 +46,4 @@ Saturday is transitionally the off day. We was walking for whole day. It was per
 
 We were in two new places today. The first one is ground zero cafe. It's something like co-working space. The second place is DOC. It's really awful restaurant-bar. It's hard imagine so bad food for such price. Really, SAS food court is much better. I spent a couple hours with algorithms today. It was productive thing. I had a good rest this weekend. I am happy about that. I'll have the first normal interview in two days. I don't remember what company will be it, but it doesn't matter. Monday will be also another release day for holy theory. I hope I will push this project and do something interesting with it.
 
-# 13 February 
+# 13 February - Monday - Yerevan - 137 day immigration
