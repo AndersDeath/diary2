@@ -52,3 +52,4 @@ Today I faced with Inecobank stupidness again. I went there for 6 statements abo
 
 # 14 February - Tuesday - Yerevan - 138 day of immigration
 
+Today I finally was at home for whole day.
