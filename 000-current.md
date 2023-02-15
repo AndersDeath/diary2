@@ -56,4 +56,4 @@ Today I finally was at home for whole day. I did a lot of things and that's amaz
 
 # 15 February - Wednesday - Yerevan - 139 day of immigration
 
-I printed all needed documents for visa. Probably tomorrow we are going to the visa center.
+I printed all needed documents for visa. Probably tomorrow we are going to the visa center. I got another interview invitation, which is really cool.
