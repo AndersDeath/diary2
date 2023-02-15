@@ -56,4 +56,4 @@ Today I finally was at home for whole day. I did a lot of things and that's amaz
 
 # 15 February - Wednesday - Yerevan - 139 day of immigration
 
-I printed all needed documents for visa. Probably tomorrow we are going to the visa center. I got another interview invitation, which is really cool. The another cool thing is that Booking guys sent me good news about passing me to the next interview. This is amazing thing. I also was working on different problems for whole day.
+I printed all needed documents for visa. Probably tomorrow we are going to the visa center. I got another interview invitation, which is really cool. The another cool thing is that Booking guys sent me good news about passing me to the next interview. This is amazing thing. I also was working on different problems for whole day. I finished with may things and finally started recalling trees.
