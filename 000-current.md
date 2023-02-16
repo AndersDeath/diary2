@@ -57,3 +57,5 @@ Today I finally was at home for whole day. I did a lot of things and that's amaz
 # 15 February - Wednesday - Yerevan - 139 day of immigration
 
 I printed all needed documents for visa. Probably tomorrow we are going to the visa center. I got another interview invitation, which is really cool. The another cool thing is that Booking guys sent me good news about passing me to the next interview. This is amazing thing. I also was working on different problems for whole day. I finished with may things and finally started recalling trees. It's important to remember this kind of data structures. Also I need to recall basics of functional programming. I don't remember all things but I really try to do it. I am really not sure that I will pass the Uber interview, because it will be the first serious technical challenge. Usually it's hard to pass thins stuff after my type of preparations.
+
+# 16 February - Thursday - Yerevan - 140 day of immigration
