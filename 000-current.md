@@ -60,4 +60,4 @@ I printed all needed documents for visa. Probably tomorrow we are going to the v
 
 # 16 February - Thursday - Yerevan - 140 day of immigration
 
-Today I submitted documents for Spain Visa.
+Today I submitted documents for Spain Visa. I was sitting there fow about 3 hours.
