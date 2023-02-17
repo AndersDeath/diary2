@@ -64,4 +64,4 @@ Today I submitted documents for Spain Visa. I was sitting there fow about 3 hour
 
 # 17 February - Wednesday - Yerevan - 141 day of immigration
 
-Today I had a local surgery on my heal. It looks like the final step of feet treatment. I need to do some procedures with my heal. I hope it'll be ok. Also I got a call from lawyer today. An inspector called hr and asked about my case.
+Today I had a local surgery on my heal. It looks like the final step of feet treatment. I need to do some procedures with my heal. I hope it'll be ok. Also I got a call from lawyer today. An inspector called hr and asked about my case. I hope everything will be ok and I'll get that important document.
