@@ -68,4 +68,4 @@ Today I had a local surgery on my heal. It looks like the final step of feet tre
 
 # 18 February - Saturday - Yerevan - 142 day of immigration
 
-I think that this day was quite calm. We visited the city center and had a nice lunch. We ate a pizza. Other two earrings came to me by Wildberries. It's nice and now I have four of them. I also coded a bit today. The topic was tree traversials. Those algorithms are extrimely important despite the fact that they are simple. Usually people don't like it.
+I think that this day was quite calm. We visited the city center and had a nice lunch. We ate a pizza. Other two earrings came to me by Wildberries. It's nice and now I have four of them. I also coded a bit today. The topic was tree traversials. Those algorithms are extremely important despite the fact that they are simple. Usually people don't like it.
