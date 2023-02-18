@@ -68,4 +68,4 @@ Today I had a local surgery on my heal. It looks like the final step of feet tre
 
 # 18 February - Saturday - Yerevan - 142 day of immigration
 
-I think that this day was quite calm.
+I think that this day was quite calm. We visited the city center and had a nice lunch.
