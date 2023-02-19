@@ -72,4 +72,4 @@ I think that this day was quite calm. We visited the city center and had a nice 
 
 # 19 February - Sunday - Yerevan - 143 day of immigration
 
-Today was also normal holiday. I did almost nothing. We was walking in botanical garden of Yerevan. We also was exploring apartments in Barcelona. It's critically expensive city. It's something wired. I never saw this type of prices.
+Today was also normal holiday. I did almost nothing. We was walking in botanical garden of Yerevan. We also was exploring apartments in Barcelona. It's critically expensive city. It's something wired. I never saw this type of prices. Even UAE are cheaper.
