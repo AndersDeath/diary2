@@ -76,4 +76,4 @@ Today was also normal holiday. I did almost nothing. We was walking in botanical
 
 # 20 February - Monday - Yerevan - 143 day of immigration
 
-Honestly I don't think that this diary is interesting for reading. I mostly add some events and notes that are not so significant. Maybe in the future all these files will be useful for writing some kind of authobioraphy. Unfortunately for this purpose I will need to listen to all my pppodcasts. By the way I need to start doing them again. I don't do it every week like it was before. I was a bit tiered of the format, but now I feel differently. about today.
+Honestly I don't think that this diary is interesting for reading. I mostly add some events and notes that are not so significant. Maybe in the future all these files will be useful for writing some kind of authobioraphy. Unfortunately for this purpose I will need to listen to all my pppodcasts. By the way I need to start doing them again. I don't do it every week like it was before. I was a bit tiered of the format, but now I feel differently. about today. I published 0.0.5 version of holy theory.
