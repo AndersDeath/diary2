@@ -76,4 +76,4 @@ Today was also normal holiday. I did almost nothing. We was walking in botanical
 
 # 20 February - Monday - Yerevan - 143 day of immigration
 
-Honestly I don't think that this diary is interesting for reading. I mostly add some events and n
+Honestly I don't think that this diary is interesting for reading. I mostly add some events and notes that are not so significant../
