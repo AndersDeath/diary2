@@ -73,3 +73,5 @@ I think that this day was quite calm. We visited the city center and had a nice 
 # 19 February - Sunday - Yerevan - 143 day of immigration
 
 Today was also normal holiday. I did almost nothing. We was walking in botanical garden of Yerevan. We also was exploring apartments in Barcelona. It's critically expensive city. It's something wired. I never saw this type of prices. Even UAE are cheaper. I was investigating some computer science that is also cool. Another thing is that I recorded some preroll for the new episode of emigrant diary. It will be probably 7th video of this series.  Right now we are sitting in the cafe in Yerevans city center. It's nice and new place. It's called Sweet coast. We never been here before. Tomorrow I am going to wake up at 7am. I want to try changing my schedule because I almost don't have time for finishing the job. I am preparing to interviews but at the same time I need to finish all DRsMILEs tasks. So, yes. It's the goal.
+
+# 20 February - Monday - Yerevan - 143 day of immigration
