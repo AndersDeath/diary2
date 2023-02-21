@@ -80,4 +80,4 @@ Honestly I don't think that this diary is interesting for reading. I mostly add 
 
 # 21 February - Tuesday - Yerevan - 145 day of immigration
 
-So, Finally I had the first interview with Uber.
+So, Finally I had the first interview with Uber. it was nice but difficult. Woman didn't ask anything about data structures, algorithms, etc.
