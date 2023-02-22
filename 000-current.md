@@ -84,4 +84,4 @@ So, Finally I had the first interview with Uber. it was nice but difficult. Woma
 
 # 22 February - Wednesday - Yerevan - 146 day of immigration
 
-Today I had a short interview with one company. 
+Today I had a short interview with one company. It was creative fabrica - huge website that sells visual assets.
