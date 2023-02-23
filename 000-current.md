@@ -88,4 +88,4 @@ Today I had a short interview with one company. It was creative fabrica - huge w
 
 # 23 February - Thursday - Yerevan - 147 day of immigration
 
-Today is a free day. This is quite cool, by the way. The weather changed completely. Just in one week temperature changed from -10 at night and 0 at day to 0 at night and +10 at day. This is amazing because it's something like normal Spring. I like it.
+Today is a free day. This is quite cool, by the way. The weather changed completely. Just in one week temperature changed from -10 at night and 0 at day to 0 at night and +10 at day. This is amazing because it's something like normal Spring. I like it. I had to have a booking interview today, but because of some failures on their side it cancelled.
