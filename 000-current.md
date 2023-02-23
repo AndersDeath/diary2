@@ -88,4 +88,4 @@ Today I had a short interview with one company. It was creative fabrica - huge w
 
 # 23 February - Thursday - Yerevan - 147 day of immigration
 
-Today is a free day. This is quite cool, by the way. The weather changed complitely.
+Today is a free day. This is quite cool, by the way. The weather changed completely.
