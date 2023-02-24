@@ -92,4 +92,4 @@ Today is a free day. This is quite cool, by the way. The weather changed complet
 
 # 24 February - Friday - Yerevan - 148 day  of immigration
 
-Today I got rejection from Uber.
+Today I got rejection from Uber. Unfortunately I couldn't take it easy.
