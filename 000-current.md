@@ -92,4 +92,4 @@ Today is a free day. This is quite cool, by the way. The weather changed complet
 
 # 24 February - Friday - Yerevan - 148 day  of immigration
 
-Today I got rejection from Uber. Unfortunately I couldn't take it easy. From one side it's just another effort, but anyway it's hard. I had another interview with wierd company catawiki, which is not so interesting. Let's see, now I cannot understand if I will have further interview with them.
+Today I got rejection from Uber. Unfortunately I couldn't take it easy. From one side it's just another effort, but anyway it's hard. I had another interview with wierd company catawiki, which is not so interesting. Let's see, now I cannot understand if I will have further interview with them. This day I dedicated to system design. It's not the only thing that I have to learn, but also critical.
