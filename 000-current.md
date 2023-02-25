@@ -96,3 +96,4 @@ Today I got rejection from Uber. Unfortunately I couldn't take it easy. From one
 
 # 25 February - Saturday - Yerevan - 149 day of immigration
 
+Today I again spent some time with system design.
