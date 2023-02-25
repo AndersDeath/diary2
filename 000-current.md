@@ -96,4 +96,4 @@ Today I got rejection from Uber. Unfortunately I couldn't take it easy. From one
 
 # 25 February - Saturday - Yerevan - 149 day of immigration
 
-Today I again spent some time with system design. We went for a walk today as well.
+Today I again spent some time with system design. We went for a walk today as well. We visited a pizza ria restaurant. It's
