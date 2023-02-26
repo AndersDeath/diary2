@@ -100,4 +100,4 @@ Today I again spent some time with system design. We went for a walk today as we
 
 # 26 February - Sunday - Yerevan - 150 day of immigration
 
-Today I was working on System design questions. I also tried to resolve some algorithmic questions. But I'm not in good mood. I did some sport today and meditation. It doesn't help me. I complain of mood constantly. I don't know what is happening to me.
+Today I was working on System design questions. I also tried to resolve some algorithmic questions. But I'm not in good mood. I did some sport today and meditation. It doesn't help me. I complain of mood constantly. I don't know what is happening to me. I cannot find zen. I think that the cause of it is fear.
