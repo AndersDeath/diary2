@@ -99,3 +99,5 @@ Today I got rejection from Uber. Unfortunately I couldn't take it easy. From one
 Today I again spent some time with system design. We went for a walk today as well. We visited a pizza ria restaurant. It's nice place on Saryana street. I mostly had a rest today. It's nice day, really. I am happy. I feel better today. Mood is better. I also coded readme project. I would like to finish the main part as soon as possible. I barely drink wine, but today is the day.
 
 # 26 February - Sunday - Yerevan - 150 day of immigration
+
+Today I was working on System design questions. I also tried to
