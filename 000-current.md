@@ -103,3 +103,5 @@ Today I again spent some time with system design. We went for a walk today as we
 Today I was working on System design questions. I also tried to resolve some algorithmic questions. But I'm not in good mood. I did some sport today and meditation. It doesn't help me. I complain of mood constantly. I don't know what is happening to me. I cannot find zen. I think that the cause of it is fear. I really afraid of my future. Each ejection on interview, huge uncertainty and insecurity make me insane. I cannot control myself because I constantly nervous. It's terrible because I interfere with others. And again I cannot control it. One stupid thing can destroy the whole day. Today is a absolutely typical example. I am insane.
 
 # 27 February - Monday - Yerevan - 151 day of immigration
+
+This day was really hard for me.
