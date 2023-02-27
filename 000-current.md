@@ -104,4 +104,4 @@ Today I was working on System design questions. I also tried to resolve some alg
 
 # 27 February - Monday - Yerevan - 151 day of immigration
 
-This day was really hard for me. I accidentally made a mistake and scheduled one of the interviews of the wrong slot. However catawiki company wants to talk to me about programming. It might be nice. Booking rescheduled my interviews again. It's strange thing. I don't like it but cannot do anything with it. I also dived deeper into meditation topic.
+This day was really hard for me. I accidentally made a mistake and scheduled one of the interviews of the wrong slot. However catawiki company wants to talk to me about programming. It might be nice. Booking rescheduled my interviews again. It's strange thing. I don't like it but cannot do anything with it. I also dived deeper into meditation topic. I've been trying to gather myself into one bunch.
