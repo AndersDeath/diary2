@@ -108,4 +108,4 @@ This day was really hard for me. I accidentally made a mistake and scheduled one
 
 # 28 February - Thursday - Yerevan - 152 day of immigration
 
-The last day of February is outside. I felt extremely bad for the last several day. It was something like a sequence of panic attacks. Today I feel really better and can do things. Depression is not here, I would say. I was working on system design and algorithms a bit today. I had a call with Recharge company today.
+The last day of February is outside. I felt extremely bad for the last several day. It was something like a sequence of panic attacks. Today I feel really better and can do things. Depression is not here, I would say. I was working on system design and algorithms a bit today. I had a call with Recharge company today. I still have a hope to find the job.
