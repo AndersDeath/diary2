@@ -108,4 +108,4 @@ This day was really hard for me. I accidentally made a mistake and scheduled one
 
 # 28 February - Thursday - Yerevan - 152 day of immigration
 
-The last day of February is outside. I felt extremely bad for the last several day. It was something like a sequence of panic attacks.
+The last day of February is outside. I felt extremely bad for the last several day. It was something like a sequence of panic attacks. Today I feel really better and can do things.
