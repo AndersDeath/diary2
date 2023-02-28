@@ -108,4 +108,4 @@ This day was really hard for me. I accidentally made a mistake and scheduled one
 
 # 28 February - Thursday - Yerevan - 152 day of immigration
 
-The last day of Febrary is outside.
+The last day of February is outside. I felt extrimely bad for the last several day.
