@@ -4,4 +4,4 @@ Today I was working for whole day on DR SMILE projects. My local Angular setup h
 
 # 02 March - Thursday - Yerevan - 154 day of immigration
 
-I was in Podolog office today. I need to treat heel for about two weeks more.
+I was in Podolog office today. I need to treat heel for about two weeks more. I visited Ineco office and they finally moved me to basic tariff which is much better.
