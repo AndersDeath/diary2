@@ -4,4 +4,4 @@ Today I was working for whole day on DR SMILE projects. My local Angular setup h
 
 # 02 March - Thursday - Yerevan - 154 day of immigration
 
-I was in Podolog office today. I need to treat heel for about two weeks more. I visited Ineco office and they finally moved me to basic tariff which is much better. I have much more convenient conditions now. Besides that I finished three leetcode challenges. I've still been working on readme project. I am going to finish with this version very soon.
+I was in Podolog office today. I need to treat heel for about two weeks more. I visited Ineco office and they finally moved me to basic tariff which is much better. I have much more convenient conditions now. Besides that I finished three leetcode challenges. I've still been working on readme project. I am going to finish with this version very soon. Right now I added almost all that I wanted to add.
