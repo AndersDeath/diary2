@@ -6,3 +6,4 @@ Today I was working for whole day on DR SMILE projects. My local Angular setup h
 
 I was in Podolog office today. I need to treat heel for about two weeks more. I visited Ineco office and they finally moved me to basic tariff which is much better. I have much more convenient conditions now. Besides that I finished three leetcode challenges. I've still been working on readme project. I am going to finish with this version very soon. Right now I added almost all that I wanted to add. Interesting topic will be gathering of information and monitoring. This is for the future. At the same time I feel myself better today. I've started using of mood tracker. I'm worried about possible bi-polar disorder. I cannot understand why my mood can be so different. It's hard. I know that I have ADHD. I never checked it, but I have all evidences of it. Maybe it the future I will go to specialists and they will help me.
 
+# 03 March - Wednesday - Yerevan - 155 day of immigration
