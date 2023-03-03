@@ -8,4 +8,4 @@ I was in Podolog office today. I need to treat heel for about two weeks more. I 
 
 # 03 March - Wednesday - Yerevan - 155 day of immigration
 
-Today I again spent time on learning. I really enjoy it. 
+Today I again spent time on learning. I really enjoy it. It also cool that this day is Friday.
