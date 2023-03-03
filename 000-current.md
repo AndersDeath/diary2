@@ -8,4 +8,4 @@ I was in Podolog office today. I need to treat heel for about two weeks more. I 
 
 # 03 March - Wednesday - Yerevan - 155 day of immigration
 
-Today I again spent time on learning. I really enjoy it. It also cool that this day is Friday. It's the last Friday in tis apartments by the way. WE are going to leave this place very soon. I feel good today, which is amazing. You know how often it changes.
+Today I again spent time on learning. I really enjoy it. It also cool that this day is Friday. It's the last Friday in tis apartments by the way. WE are going to leave this place very soon. I feel good today, which is amazing. You know how often it changes. I was writing code today, enjoyed my meal and other things.
