@@ -11,3 +11,4 @@ I was in Podolog office today. I need to treat heel for about two weeks more. I 
 Today I again spent time on learning. I really enjoy it. It also cool that this day is Friday. It's the last Friday in tis apartments by the way. WE are going to leave this place very soon. I feel good today, which is amazing. You know how often it changes. I was writing code today, enjoyed my meal and other things. I practiced meditation today. I like it really helps me. I think that it changes my problem to better conditions. Anywa. The nesxt week will be had. I am going to be on two technical interviews. This weekend is my lastest change to do some preparations. And I will do them.
 
 # 04 March - Saturday - 156 day of immigration
+
