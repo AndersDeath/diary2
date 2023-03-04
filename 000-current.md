@@ -12,4 +12,4 @@ Today I again spent time on learning. I really enjoy it. It also cool that this 
 
 # 04 March - Saturday - 156 day of immigration
 
-Today I had a classic day off. We were in National Gallery of Armenia. It's a museum in the city center. it's quite old soviet building that was designed as museum. there are huge and nice halls with temporary exhibitions and permanent things. I was surprised because some things were really interesting. At the same time we tasted a pizza in one place which name I don't 
+Today I had a classic day off. We were in National Gallery of Armenia. It's a museum in the city center. it's quite old soviet building that was designed as museum. there are huge and nice halls with temporary exhibitions and permanent things. I was surprised because some things were really interesting. At the same time we tasted a pizza in one place which name I don't remember.
