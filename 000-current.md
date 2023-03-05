@@ -16,4 +16,4 @@ Today I had a classic day off. We were in National Gallery of Armenia. It's a mu
 
 # 05 March - Saturday - 157 day of immigration
 
-Today we were on movie Капитан Волконогов бежал. It's a Russian filme about NKVD guy who didn't want to kill innocent people and stole a folder with files of executed people and tried to find forgiveness in order to be on Heaven after his death.
+Today we were on movie Капитан Волконогов бежал. It's a Russian filme about NKVD guy who didn't want to kill innocent people and stole a folder with files of executed people and tried to find forgiveness in order to be on Heaven after his death. It was a very hard movie for me. It was made in Saint-Petersburg whick
