@@ -14,4 +14,4 @@ Today I again spent time on learning. I really enjoy it. It also cool that this 
 
 Today I had a classic day off. We were in National Gallery of Armenia. It's a museum in the city center. it's quite old soviet building that was designed as museum. there are huge and nice halls with temporary exhibitions and permanent things. I was surprised because some things were really interesting. At the same time we tasted a pizza in one place which name I don't remember. It wasn't so good. After that we visited Dalma garden mall that is maybe the biggest shopping center in Yerevan. I bought some clothes there. in the evening we just ordered burgers. I was thinking a lot about my future. Sometimes I don't feel power for fight with the life. It's hard to see all this bullshit. Sometimes I really want to be just a programmer. It's simpler and more understandable. When I look around I think that It's to much pressure from outside on me. The war and my career it's hard. My again. I feel those feeling but don't give up.
 
-# 05 March
+# 05 March - Saturday - 157 day of immigration
