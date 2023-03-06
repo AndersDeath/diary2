@@ -20,4 +20,4 @@ Today we were on movie Капитан Волконогов бежал. It's a Ru
 
 # 06 March - Monday - 158 day of immigration
 
-Today I had a full day of meetings. I am exhausted. It feels like I lost all energy. Really hard things. There is also some weather changes in Yerevan. At the same time I will have an important interview tomorrow and the day after tomorrow. Tomorrows one will be not so crucial, but I will try to do my best. The next one will be for Booking. I still have a hope to get the job in Booking company. But I don't want to make myself confident in it.
+Today I had a full day of meetings. I am exhausted. It feels like I lost all energy. Really hard things. There is also some weather changes in Yerevan. At the same time I will have an important interview tomorrow and the day after tomorrow. Tomorrows one will be not so crucial, but I will try to do my best. The next one will be for Booking. I still have a hope to get the job in Booking company. But I don't want to make myself confident in it. I don't do that because I don't want to feel place in case of faliure.
