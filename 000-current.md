@@ -20,4 +20,4 @@ Today we were on movie Капитан Волконогов бежал. It's a Ru
 
 # 06 March - Monday - 158 day of immigration
 
-Today I had a full day of meetings. I am exhausted.
+Today I had a full day of meetings. I am exhausted. It feels like I lost all energy.
