@@ -24,3 +24,4 @@ Today I had a full day of meetings. I am exhausted. It feels like I lost all ene
 
 # 07 March - Tuesday - 159 day of immigration
 
+Today I had a call with Catawiki.
