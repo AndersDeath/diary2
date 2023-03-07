@@ -24,4 +24,4 @@ Today I had a full day of meetings. I am exhausted. It feels like I lost all ene
 
 # 07 March - Tuesday - 159 day of immigration
 
-Today I had a call with Catawiki. It was a simple coding interview. It was cool. I am not sure that it is successful, but interesting. Also I had a internal TJ demo. It was interesting and cool as well.
+Today I had a call with Catawiki. It was a simple coding interview. It was cool. I am not sure that it is successful, but interesting. Also I had a internal TJ demo. It was interesting and cool as well. I had a kinda conflict with head of engineering.
