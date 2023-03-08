@@ -25,3 +25,5 @@ Today I had a full day of meetings. I am exhausted. It feels like I lost all ene
 # 07 March - Tuesday - 159 day of immigration
 
 Today I had a call with Catawiki. It was a simple coding interview. It was cool. I am not sure that it is successful, but interesting. Also I had a internal TJ demo. It was interesting and cool as well. I had a kinda conflict with head of engineering, but I enjoyed it. Another cool piece of news is that We got Spain visas for 30 day. It means that we will be flying to Rome and Barcelona! I like it. Tomorrow I will have a call with Booking. I hope it will be good. Let's see, now it's absolutely unclear. This night is also the last on Shararnery 31. It's sad but we have to leave this apartments. It's sad. I would like to eat in SAS food court. Unfortunately it's impossible.  Let's see. At the same time good news about visa increase my mood significantly. It's sad that it's only for 30 days and 3 entries, but It's better that nothing. Next time I hope they will give it for more time. Ok. Now I need to go have a dinner and then clean an apartments. It's the latest day here. 
+
+# 08 March - Wednesday - 160 of immigration
