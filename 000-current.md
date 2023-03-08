@@ -28,3 +28,4 @@ Today I had a call with Catawiki. It was a simple coding interview. It was cool.
 
 # 08 March - Wednesday - 160 of immigration
 
+We moved to other apartments today.
