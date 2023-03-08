@@ -28,4 +28,4 @@ Today I had a call with Catawiki. It was a simple coding interview. It was cool.
 
 # 08 March - Wednesday - 160 of immigration
 
-We moved to other apartments today. This place is much bigger I would say. I will have normal place for programming. This is amazing. Unfortunately all kind of privacy ruined because the working table stays in the place where everybody could see the screen. I really hate this kind of set up. At hte same time it's quite sad to be too far from SAS food court. Another bad thing is that Booking postponed the interview again. It's something incredible.
+We moved to other apartments today. This place is much bigger I would say. I will have normal place for programming. This is amazing. Unfortunately all kind of privacy ruined because the working table stays in the place where everybody could see the screen. I really hate this kind of set up. At hte same time it's quite sad to be too far from SAS food court. Another bad thing is that Booking postponed the interview again. It's something incredible. If those people cannot organize just a call it means that thet
