@@ -32,4 +32,4 @@ We moved to other apartments today. This place is much bigger I would say. I wil
 
 # 09 March - Thursday - 161 of immigration
 
-This day was extremely hard.s
+This day was extremely hard. Depression is covering me again.
