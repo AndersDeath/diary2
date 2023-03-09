@@ -32,4 +32,4 @@ We moved to other apartments today. This place is much bigger I would say. I wil
 
 # 09 March - Thursday - 161 of immigration
 
-This day was extremely hard. Depression is covering me again. It looks like I really have bi-polar disorder. Maybe it is just a reflection of situation of my job. I still don't have interest in DR SMILE's project. It still looks like a shit. Management is awful.
+This day was extremely hard. Depression is covering me again. It looks like I really have bi-polar disorder. Maybe it is just a reflection of situation of my job. I still don't have interest in DR SMILE's project. It still looks like a shit. Management is awful. I cannot wait a moment when I join to another company.
