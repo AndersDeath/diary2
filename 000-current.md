@@ -36,4 +36,4 @@ This day was extremely hard. Depression is covering me again. It looks like I re
 
 # 10 March - Friday - 162 day of immigration
 
-This day was better than yesterday. First of all I put myself together and found power to be better. I had a great conversation with Fedor about programming and other stuff. I also cleaned up a bit code in DR SMILE.
+This day was better than yesterday. First of all I put myself together and found power to be better. I had a great conversation with Fedor about programming and other stuff. I also cleaned up a bit code in DR SMILE. Catawiki company rejected me.
