@@ -40,4 +40,4 @@ This day was better than yesterday. First of all I put myself together and found
 
 # 11 March - Saturday - 163 day of immigration
 
-This Saturday is nice. I like it.
+This Saturday is nice. I like it. This apartments is much closer to the city center and it is huge benefit.
