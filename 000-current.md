@@ -44,4 +44,4 @@ This Saturday is nice. I like it. This apartments is much closer to the city cen
 
 # 12 March - Sunday - 164 day of immigration
 
-I've been fighting with myself for whole day. Initially I didn't feel well. I was extrimely nerveous this morning. I did meditation and some sport. It made my condition better. Then I moved outside and recorded the next episode of emigration diary.
+I've been fighting with myself for whole day. Initially I didn't feel well. I was extrimely nerveous this morning. I did meditation and some sport. It made my condition better. Then I moved outside and recorded the next episode of emigration diary. It's very cool.
