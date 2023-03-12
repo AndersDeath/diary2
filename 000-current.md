@@ -43,3 +43,5 @@ This day was better than yesterday. First of all I put myself together and found
 This Saturday is nice. I like it. This apartments is much closer to the city center and it is huge benefit. We went for a walk and it was much better that near the previous place. It's sad that there is no food court. It's the only huge cons here. I improved a bit holy theory project. I like it. Today I surprisingly  feel good. My mood is also much bette today. I think that this day is good. I am going to record another episode of emigrant diary tomorrow. I also will start working on English instagram account. Maybe it will help me with speaking. Another thing I want to increase my confidence level. It will be nice. I really need it now. Oh, by the way I changed my google drive tariff today. Now I have 200 gb.
 
 # 12 March - Sunday - 164 day of immigration
+
+I've been fighting with myself for whole day.
