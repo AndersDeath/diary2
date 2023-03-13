@@ -48,4 +48,4 @@ I've been fighting with myself for whole day. Initially I didn't feel well. I wa
 
 # 13 March - Monday - 165 day of immigration
 
-Today I was working on current tasks. I did a lot of things today. I did sport and meditation and some coding exploring. I had a interview with recharge company. A guy from Nigeria had a conversation with me that was very cool and nice. I think it was the easiest tech conversation for last three years. Let's see what we will have soon.
+Today I was working on current tasks. I did a lot of things today. I did sport and meditation and some coding exploring. I had a interview with recharge company. A guy from Nigeria had a conversation with me that was very cool and nice. I think it was the easiest tech conversation for last three years. Let's see what we will have soon. I made a release of Holy 
