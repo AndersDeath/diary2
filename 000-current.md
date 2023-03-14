@@ -10,15 +10,15 @@ I was in Podolog office today. I need to treat heel for about two weeks more. I 
 
 Today I again spent time on learning. I really enjoy it. It also cool that this day is Friday. It's the last Friday in tis apartments by the way. WE are going to leave this place very soon. I feel good today, which is amazing. You know how often it changes. I was writing code today, enjoyed my meal and other things. I practiced meditation today. I like it really helps me. I think that it changes my problem to better conditions. Anywa. The nesxt week will be had. I am going to be on two technical interviews. This weekend is my lastest change to do some preparations. And I will do them.
 
-# 04 March - Saturday - 156 day of immigration
+# 04 March - Saturday - Yerevan - 156 day of immigration
 
 Today I had a classic day off. We were in National Gallery of Armenia. It's a museum in the city center. it's quite old soviet building that was designed as museum. there are huge and nice halls with temporary exhibitions and permanent things. I was surprised because some things were really interesting. At the same time we tasted a pizza in one place which name I don't remember. It wasn't so good. After that we visited Dalma garden mall that is maybe the biggest shopping center in Yerevan. I bought some clothes there. in the evening we just ordered burgers. I was thinking a lot about my future. Sometimes I don't feel power for fight with the life. It's hard to see all this bullshit. Sometimes I really want to be just a programmer. It's simpler and more understandable. When I look around I think that It's to much pressure from outside on me. The war and my career it's hard. My again. I feel those feeling but don't give up.
 
-# 05 March - Sunday - 157 day of immigration
+# 05 March - Sunday - Yerevan - 157 day of immigration
 
 Today we were on movie Капитан Волконогов бежал. It's a Russian filme about NKVD guy who didn't want to kill innocent people and stole a folder with files of executed people and tried to find forgiveness in order to be on Heaven after his death. It was a very hard movie for me. It was made in Saint-Petersburg which is my home city. Hundreds of people were murdered there during 1932-1952. It happened not oly because of the WWII but also due to Stalin's laws. Memorial organization was working for years on revealing fact of outlaw executions. It was a very good activity. So, Now russian government banned this organization and tres to put its member to jail. In general this movie is about daily basis evil. Hard thing by the way. I also made some preparations for next week interviews. I hope it will be ok. I'll try to do best. Another thing is tah we were walking today a bit. I miss for physical activity. Tomorrow I need to do full pack of exercises. It will be fun, I hope.
 
-# 06 March - Monday - 158 day of immigration
+# 06 March - Monday - Yerevan - 158 day of immigration
 
 Today I had a full day of meetings. I am exhausted. It feels like I lost all energy. Really hard things. There is also some weather changes in Yerevan. At the same time I will have an important interview tomorrow and the day after tomorrow. Tomorrows one will be not so crucial, but I will try to do my best. The next one will be for Booking. I still have a hope to get the job in Booking company. But I don't want to make myself confident in it. I don't do that because I don't want to feel place in case of failure. Another bad thing is that I didn't do sport and meditation today. I so want to sleep that It will be just another painful thing. Now I only want to have a rest. I feel like I didn't have a weekend. The only great thing today is that I made a another release of Holy Theory.
 
