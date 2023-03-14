@@ -42,11 +42,11 @@ This day was better than yesterday. First of all I put myself together and found
 
 This Saturday is nice. I like it. This apartments is much closer to the city center and it is huge benefit. We went for a walk and it was much better that near the previous place. It's sad that there is no food court. It's the only huge cons here. I improved a bit holy theory project. I like it. Today I surprisingly  feel good. My mood is also much bette today. I think that this day is good. I am going to record another episode of emigrant diary tomorrow. I also will start working on English instagram account. Maybe it will help me with speaking. Another thing I want to increase my confidence level. It will be nice. I really need it now. Oh, by the way I changed my google drive tariff today. Now I have 200 gb.
 
-# 12 March - Sunday - 164 day of immigration
+# 12 March - Sunday - Yerevan - 164 day of immigration
 
 I've been fighting with myself for whole day. Initially I didn't feel well. I was extremely nerveous this morning. I did meditation and some sport. It made my condition better. Then I moved outside and recorded the next episode of emigration diary. It's very cool. The weather today was warm. It's so nice that it can be +18 degrees in the beginning of spring. I was coding a bit today and did some other interesting stuff. We were watching Friends series and I can say that it's very cool thing. I didn't expect it. I used to ignore it because considered it stupid. So I was wrong. However I might be not ready those times. Another bad thing here it that due to an accident internet connection isn't working. I found this piece of news on the internet.
 
-# 13 March - Monday - 165 day of immigration
+# 13 March - Monday - Yerevan - 165 day of immigration
 
 Today I was working on current tasks. I did a lot of things today. I did sport and meditation and some coding exploring. I had a interview with recharge company. A guy from Nigeria had a conversation with me that was very cool and nice. I think it was the easiest tech conversation for last three years. Let's see what we will have soon. I made a release of Holy Theory that is also good. The weather here is awesome. Yerevan's spring is amazing. After living in Saint-Petersburg this place looks much more attractive. From another side I miss home very much. i dream about time when it will be possible. I like weather here, but I cannot get home feeling, do you know what mean? I really want to sit in my car and drive a circle around neighborhood. Survey I want to record pppodcast in usual and convenient way. Sadly it's impossible for now. Maybe in the future I will obtain this possibility.
 
