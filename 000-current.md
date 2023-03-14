@@ -52,4 +52,4 @@ Today I was working on current tasks. I did a lot of things today. I did sport a
 
 # 14 March - Monday - 166 day of immigration
 
-I am extremely tiered today. I had a system design interview with Booking.com. I am absolutely not sure that it was successful. I have nothing to compare.
+I am extremely tiered today. I had a system design interview with Booking.com. I am absolutely not sure that it was successful. I have nothing to compare. It's the fist system design interview in my life.
