@@ -49,3 +49,5 @@ I've been fighting with myself for whole day. Initially I didn't feel well. I wa
 # 13 March - Monday - 165 day of immigration
 
 Today I was working on current tasks. I did a lot of things today. I did sport and meditation and some coding exploring. I had a interview with recharge company. A guy from Nigeria had a conversation with me that was very cool and nice. I think it was the easiest tech conversation for last three years. Let's see what we will have soon. I made a release of Holy Theory that is also good. The weather here is awesome. Yerevan's spring is amazing. After living in Saint-Petersburg this place looks much more attractive. From another side I miss home very much. i dream about time when it will be possible. I like weather here, but I cannot get home feeling, do you know what mean? I really want to sit in my car and drive a circle around neighborhood. Survey I want to record pppodcast in usual and convenient way. Sadly it's impossible for now. Maybe in the future I will obtain this possibility.
+
+# 14 March - Monday - 166 day of immigration
