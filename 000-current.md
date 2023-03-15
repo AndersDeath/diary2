@@ -50,8 +50,8 @@ I've been fighting with myself for whole day. Initially I didn't feel well. I wa
 
 Today I was working on current tasks. I did a lot of things today. I did sport and meditation and some coding exploring. I had a interview with recharge company. A guy from Nigeria had a conversation with me that was very cool and nice. I think it was the easiest tech conversation for last three years. Let's see what we will have soon. I made a release of Holy Theory that is also good. The weather here is awesome. Yerevan's spring is amazing. After living in Saint-Petersburg this place looks much more attractive. From another side I miss home very much. i dream about time when it will be possible. I like weather here, but I cannot get home feeling, do you know what mean? I really want to sit in my car and drive a circle around neighborhood. Survey I want to record pppodcast in usual and convenient way. Sadly it's impossible for now. Maybe in the future I will obtain this possibility.
 
-# 14 March - Monday - Yerevan - 166 day of immigration
+# 14 March - Tuesday - Yerevan - 166 day of immigration
 
 I am extremely tiered today. I had a system design interview with Booking.com. I am absolutely not sure that it was successful. I have nothing to compare. It's the fist system design interview in my life. It's very cool. Bad thing is that I cannot predict what will be the final solution on their side. I know that a lot of people want to be relocated to amsterdam. let's see. It will be another one hour interview with Recharge tomorrow. I hope it will be ok. I read on the internet that it's now the best company in Netherlands. It's not a big problem for me, because my goal is to relocate to Europe. I don't want to live in yerevan for whole life. Also, it's no water in the apartments today. I already hate it. It's extremely sad thing.
 
-# 15 March - Th
+# 15 March - Wednesday - Yerevan - 167 day of immigration
