@@ -55,3 +55,5 @@ Today I was working on current tasks. I did a lot of things today. I did sport a
 I am extremely tiered today. I had a system design interview with Booking.com. I am absolutely not sure that it was successful. I have nothing to compare. It's the fist system design interview in my life. It's very cool. Bad thing is that I cannot predict what will be the final solution on their side. I know that a lot of people want to be relocated to amsterdam. let's see. It will be another one hour interview with Recharge tomorrow. I hope it will be ok. I read on the internet that it's now the best company in Netherlands. It's not a big problem for me, because my goal is to relocate to Europe. I don't want to live in yerevan for whole life. Also, it's no water in the apartments today. I already hate it. It's extremely sad thing.
 
 # 15 March - Wednesday - Yerevan - 167 day of immigration
+
+Today I fixed several issues for DR SMILE. Tomorrow I will do th
