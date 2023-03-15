@@ -56,4 +56,4 @@ I am extremely tiered today. I had a system design interview with Booking.com. I
 
 # 15 March - Wednesday - Yerevan - 167 day of immigration
 
-Today I fixed several issues for DR SMILE. Tomorrow I will do the same. I resolved several leetcode tasks, that were easy and nice.
+Today I fixed several issues for DR SMILE. Tomorrow I will do the same. I resolved several leetcode tasks, that were easy and nice. Tomorrow I am going to talk to Recharge company.
