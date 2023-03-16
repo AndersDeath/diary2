@@ -59,3 +59,5 @@ I am extremely tiered today. I had a system design interview with Booking.com. I
 Today I fixed several issues for DR SMILE. Tomorrow I will do the same. I resolved several leetcode tasks, that were easy and nice. Tomorrow I am going to talk to Recharge company. I don't expect anything from it. It will be just another talk, not more. Due to this event I had to move my podologist to another day. Another significant thing for today is that I was working on coding readme project. I like to do it, because it the thing that moves me forward. at the same time I am extremely tiered.
 
 # 16 March - Thursday - Yerevan - 168 day of immigration
+
+I had an interview with Recharge
