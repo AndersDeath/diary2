@@ -60,4 +60,4 @@ Today I fixed several issues for DR SMILE. Tomorrow I will do the same. I resolv
 
 # 16 March - Thursday - Yerevan - 168 day of immigration
 
-I had an interview with Recharge. It was a usual algorithmic talk.
+I had an interview with Recharge. It was a usual algorithmic talk. This is nice. I did some mistakes and in some moment was freezed a bit.
