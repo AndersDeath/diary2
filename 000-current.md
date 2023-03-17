@@ -64,4 +64,4 @@ I had an interview with Recharge. It was a usual algorithmic talk. This is nice.
 
 # 17 March - Friday - Yerevan - 169 day of immigration
 
-I've got good news today. My permanent residency is done. I'm going to meet Varsine on Monday and get it. It looks like I am a norman Armenian now. In every case it's good thing.
+I've got good news today. My permanent residency is done. I'm going to meet Varsine on Monday and get it. It looks like I am a norman Armenian now. In every case it's good thing. All embasiess that are located in Yerevan are open for me.
