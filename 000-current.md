@@ -63,3 +63,5 @@ Today I fixed several issues for DR SMILE. Tomorrow I will do the same. I resolv
 I had an interview with Recharge. It was a usual algorithmic talk. This is nice. I did some mistakes and in some moment was freezed a bit. At the same time I resolved several interesting tasks. I still need to do sport today. unfortunately I didn't have time for it in the morning. But I like do exercises just after waking up. Meditation still works to me. I like it. I had a nice lunch as well. I ordered some cool dished in Glovo. I usually don't write such tings. Also I try to restore posting to social media. Tomorrow is friday and this is also cool. I am a bit tiered of everything. I went back to normal condition but still feel bad sometimes. Anyway. This day is lovely.
 
 # 17 March - Friday - Yerevan - 169 day of immigration
+
+I've got good news today.
