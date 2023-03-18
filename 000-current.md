@@ -68,4 +68,4 @@ I've got good news today. My permanent residency is done. I'm going to meet Vars
 
 # 18 March - Saturday - Yerevan - 170 day of immigration
 
-The main piece of news is that yesterday Putin was wanted by the international court of The Hague. It's something new. Now Russian president is toxic person. This is nice. Nevermind, today we went for a walk an had a nice day. We visited temporary market in the city center. I found Kovcheg project palce there. They sells nice anti-war stickers. I will probably buy a couple of them. At the same time I crucially need to publish video tomorrow. I will recieve permanent residency paper on Monday.
+The main piece of news is that yesterday Putin was wanted by the international court of The Hague. It's something new. Now Russian president is toxic person. This is nice. Nevermind, today we went for a walk an had a nice day. We visited temporary market in the city center. I found Kovcheg project palce there. They sells nice anti-war stickers. I will probably buy a couple of them. At the same time I crucially need to publish video tomorrow. I will recieve permanent residency paper on Monday. Also I brought a trousers to tailor.
