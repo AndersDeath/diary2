@@ -68,4 +68,4 @@ I've got good news today. My permanent residency is done. I'm going to meet Vars
 
 # 18 March - Saturday - Yerevan - 170 day of immigration
 
-The main piece of news is that yesterday Putin was wanted by the international court of The Hague.
+The main piece of news is that yesterday Putin was wanted by the international court of The Hague. It's something new.
