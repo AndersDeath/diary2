@@ -72,4 +72,4 @@ The main piece of news is that yesterday Putin was wanted by the international c
 
 # 19 March - Sunday - Yerevan - 171 day of immigration
 
-I publish another episode of the diary of emigration. I think it's the best one so far. I speak quite nice and picture is also cool. tomorrow I will recieve my permanent residency of Armenia. It means that I will be something like local but without political rights. It's absolutely new role for me.
+I publish another episode of the diary of emigration. I think it's the best one so far. I speak quite nice and picture is also cool. tomorrow I will recieve my permanent residency of Armenia. It means that I will be something like local but without political rights. It's absolutely new role for me. I am really curios how it looks like. I mean 
