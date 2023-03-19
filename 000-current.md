@@ -72,4 +72,4 @@ The main piece of news is that yesterday Putin was wanted by the international c
 
 # 19 March - Sunday - Yerevan - 171 day of immigration
 
-I publish another episode of the diary of emigration. I think it's the best one so far.
+I publish another episode of the diary of emigration. I think it's the best one so far. I speak quite nice and picture is also cool.
