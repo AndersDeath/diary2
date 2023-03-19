@@ -71,3 +71,5 @@ I've got good news today. My permanent residency is done. I'm going to meet Vars
 The main piece of news is that yesterday Putin was wanted by the international court of The Hague. It's something new. Now Russian president is toxic person. This is nice. Nevermind, today we went for a walk an had a nice day. We visited temporary market in the city center. I found Kovcheg project place there. They sells nice anti-war stickers. I will probably buy a couple of them. At the same time I crucially need to publish video tomorrow. I will receive permanent residency paper on Monday. Also I brought a trousers to tailor. This man will fix them and it will be also nice. We tested new restaurant today. It wasn't a good place and I don't remember it. In general this Saturday was nice. I hope that Sunday will be just as cool.
 
 # 19 March - Sunday - Yerevan - 171 day of immigration
+
+I publish another episode of the diary of emigration. 
