@@ -76,4 +76,4 @@ I publish another episode of the diary of emigration. I think it's the best one 
 
 # 20 March - Monday - Yerevan - 172 day of immigration
 
-Today I got my residency permit.
+Today I got my residency permit. The only thing I need to do is registering myself in government office.
