@@ -80,4 +80,4 @@ Today I got my residency permit. The only thing I need to do is registering myse
 
 # 21 March - Tuesday - Yerevan - 173 day of immigration
 
-Podologis finally asked me to do some things and my treatment will be finished. I had an interview today with Yassir company.
+Podologis finally asked me to do some things and my treatment will be finished. I had an interview today with Yassir company. another company asked me to reschedule SITA or SATA. I don't remember the title.
