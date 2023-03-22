@@ -83,3 +83,5 @@ Today I got my residency permit. The only thing I need to do is registering myse
 Podologis finally asked me to do some things and my treatment will be finished. I had an interview today with Yassir company. another company asked me to reschedule SITA or SATA. I don't remember the title. I tried to code today but the half of the day I spent in the city if an effort to fisnish some business. I still need to do sport despite the fact that it's quite late. The mood is good today. I feel much better these days. Me and Ksusha are still thinking about visit to Berlin. But it will be expensive. We need to finalize the design this weekend. I really haven't decided what to do yet.
 
 # 22 March - Wednesday - Yerevan - 174 day of immigration
+
+Well, Recharge company rejected me.
