@@ -84,4 +84,4 @@ Podologis finally asked me to do some things and my treatment will be finished. 
 
 # 22 March - Wednesday - Yerevan - 174 day of immigration
 
-Well, Recharge company rejected me. It's sad because it was a great opportunity for immigration. I fucked up the interview. Other interview didn't happen.
+Well, Recharge company rejected me. It's sad because it was a great opportunity for immigration. I fucked up the interview. Other interview didn't happen. HR just forgot about me.
