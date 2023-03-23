@@ -87,3 +87,5 @@ Podologis finally asked me to do some things and my treatment will be finished. 
 Well, Recharge company rejected me. It's sad because it was a great opportunity for immigration. I fucked up the interview. Other interview didn't happen. HR just forgot about me. It was made by audibene company. Definitely this day wasn't so good. I resolved several tasks from leetcode and started diving deeper to javascript essentials. I still working in Holy theory project and I will proceed working on it. At the same time I found two great repositories with reactjs and javascript questions. I will proceed working on it. despite the amount of bad things today I did sport. I try to do exercises every day. I really want to be healthier, moreover I feel how my mood become better after these starts. I like it. Only thing I need to do it meditation. I will do it right after finishing this line. See you tomorrow. 
 
 # 23 March - Thursday - Yerevan - 175 day of immigration
+
+My mood is not so good.
