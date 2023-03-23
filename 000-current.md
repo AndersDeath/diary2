@@ -88,4 +88,4 @@ Well, Recharge company rejected me. It's sad because it was a great opportunity 
 
 # 23 March - Thursday - Yerevan - 175 day of immigration
 
-My mood is not so good.
+My mood is not so good. After yesterdays news I am bad.
