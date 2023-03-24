@@ -92,4 +92,4 @@ My mood is not so good. After yesterdays news I am bad. surely I proceeded doing
 
 # 24 March - Friday - Yerevan - 176 day of immigration
 
-We were on John Wick again. It was nice but too long. Too much.
+We were on John Wick again. It was nice but too long. Too much. It was nice action but average quality movie.
