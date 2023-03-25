@@ -96,4 +96,4 @@ We were on John Wick again. It was nice but too long. Too much. It was nice acti
 
 # 25 March - Saturday - Yerevan - 177 day of immigration
 
-We were on Blade Runner 2 today. It was 4th time when I watched this movie. I really like aesthetic part of it. Cyberpunk pluse anti utopia make it. Wa were walking also. I don't feel good today. It's sad honestly. I thought that these kind of problems ended but they didn't.
+We were on Blade Runner 2 today. It was 4th time when I watched this movie. I really like aesthetic part of it. Cyberpunk pluse anti utopia make it. Wa were walking also. I don't feel good today. It's sad honestly. I thought that these kind of problems ended but they didn't. Ksusha is going to Russian on Monday.
