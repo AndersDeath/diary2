@@ -96,4 +96,4 @@ We were on John Wick again. It was nice but too long. Too much. It was nice acti
 
 # 25 March - Saturday - Yerevan - 177 day of immigration
 
-We were on Blade Runner 2 today.
+We were on Blade Runner 2 today. It was 4th time when I watched this movie.
