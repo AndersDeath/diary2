@@ -100,4 +100,4 @@ We were on Blade Runner 2 today. It was 4th time when I watched this movie. I re
 
 # 26 March - Sunday - Yerevan - 178 day of immigration
 
-This day was quite nice.
+This day was quite nice. I was programming a bit and found some tricks for future projects.
