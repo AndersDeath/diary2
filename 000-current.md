@@ -100,4 +100,4 @@ We were on Blade Runner 2 today. It was 4th time when I watched this movie. I re
 
 # 26 March - Sunday - Yerevan - 178 day of immigration
 
-This day was quite nice. I was programming a bit and found some tricks for future projects. Me and Ksusha also found nice restaurant in the city center. Sadly but this night is the last before Ksushas trip to Russia. She is flying there tomorrow. I'll be alone here for a week again.
+This day was quite nice. I was programming a bit and found some tricks for future projects. Me and Ksusha also found nice restaurant in the city center. Sadly but this night is the last before Ksushas trip to Russia. She is flying there tomorrow. I'll be alone here for a week again. I don't like it honestly.
