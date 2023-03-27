@@ -103,3 +103,5 @@ We were on Blade Runner 2 today. It was 4th time when I watched this movie. I re
 This day was quite nice. I was programming a bit and found some tricks for future projects. Me and Ksusha also found nice restaurant in the city center. Sadly but this night is the last before Ksushas trip to Russia. She is flying there tomorrow. I'll be alone here for a week again. I don't like it honestly. But I have to be patient. At the same time I found a great book of George Carlin. I am huge fan of his talent. I have a great time with the book. I think it help me with my loneliness. So, I will go and watch another episode of Friends. They are nice.
 
 # 27 March - Monday - Yerevan - 179 day of immigration
+
+Ksusha is on a way to Russia now.
