@@ -104,4 +104,4 @@ This day was quite nice. I was programming a bit and found some tricks for futur
 
 # 27 March - Monday - Yerevan - 179 day of immigration
 
-Ksusha is on a way to Russia now. She had to go there at 6pm, but now is 11pm and she is going to airplane. The flight is delayed. My host is rejected my request about registration. It's sad. I will text to my lawyer tomorrow I will ask for advice. I published holy theory with eleventy prototype today. This is amazing. I will improve this thing significantly. I am going to concentrate my attention on quality of content. Very soo I will got to sleep.
+Ksusha is on a way to Russia now. She had to go there at 6pm, but now is 11pm and she is going to airplane. The flight is delayed. My host is rejected my request about registration. It's sad. I will text to my lawyer tomorrow I will ask for advice. I published holy theory with eleventy prototype today. This is amazing. I will improve this thing significantly. I am going to concentrate my attention on quality of content. Very soo I will got to sleep. I hate to be alone.
