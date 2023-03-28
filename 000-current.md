@@ -108,4 +108,4 @@ Ksusha is on a way to Russia now. She had to go there at 6pm, but now is 11pm an
 
 # 28 March - Tuesday - Yerevan - 180 day of immigration
 
-Today I totally alone.
+Today I totally alone. I dived into work in o
