@@ -108,4 +108,4 @@ Ksusha is on a way to Russia now. She had to go there at 6pm, but now is 11pm an
 
 # 28 March - Tuesday - Yerevan - 180 day of immigration
 
-Today I totally alone. I dived into work in order to forget about bad things. Sadly I feel headache for whole day. I got pills twice today. Also I added a couple of things into Holy Theory project. Unfortunately I didn't feel power for sport
+Today I totally alone. I dived into work in order to forget about bad things. Sadly I feel headache for whole day. I got pills twice today. Also I added a couple of things into Holy Theory project. Unfortunately I didn't feel power for sport. Tomorrow I have to do sport.
