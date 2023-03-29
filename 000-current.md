@@ -112,4 +112,4 @@ Today I totally alone. I dived into work in order to forget about bad things. Sa
 
 # 29 March - Wednesday - Yerevan - 181 day of immigration
 
-Today I was working on coding and readme project. Also I finished a test for tomorrows interview. I had a call with company that refused me because of my citizenship. 
+Today I was working on coding and readme project. Also I finished a test for tomorrows interview. I had a call with company that refused me because of my citizenship. The rest of the day I dedicated to DR SMILE.
