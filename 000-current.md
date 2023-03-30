@@ -116,4 +116,4 @@ Today I was working on coding and readme project. Also I finished a test for tom
 
 # 30 March - Thursday - Yerevan - 182 day of immigration
 
-Today I had several important calls including conversation with NN bank. I tried to express myself well. Also I had several conversations with DR SMILE's people. I went for a walk to the city center. It was hard because I didn't want to do it.
+Today I had several important calls including conversation with NN bank. I tried to express myself well. Also I had several conversations with DR SMILE's people. I went for a walk to the city center. It was hard because I didn't want to do it. Also I watched a lot of videos about drug addicted people.
