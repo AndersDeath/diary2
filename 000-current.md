@@ -115,3 +115,4 @@ Today I totally alone. I dived into work in order to forget about bad things. Sa
 Today I was working on coding and readme project. Also I finished a test for tomorrows interview. I had a call with company that refused me because of my citizenship. The rest of the day I dedicated to DR SMILE. It's hard to be alone. I don't like it. But I'm doing well. I don't have a lot of things to fix here. I'm depressed.
 
 # 30 March - Thursday - Yerevan - 182 day of immigration
+
