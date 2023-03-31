@@ -120,4 +120,4 @@ Today I had several important calls including conversation with NN bank. I tried
 
 # 31 March - Friday - Yerevan - 183 day of immigration
 
-This day I presented results of q1 in DR SMILE. I got fun;
+This day I presented results of q1 in DR SMILE. I got fun.
