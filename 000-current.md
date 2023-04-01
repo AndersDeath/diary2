@@ -124,4 +124,4 @@ This day I presented results of q1 in DR SMILE. I got fun. I started doing Kentr
 
 # 01 April - Saturday - Yerevan - 184 day of immigration
 
-This day was nice. I visited a barbershop and got haircut. I did a lot of think for Kentron lib.
+This day was nice. I visited a barbershop and got haircut. I did a lot of think for Kentron lib. As I expected I finished with implementation today. I need to finish tests only.
