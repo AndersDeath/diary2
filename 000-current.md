@@ -4,4 +4,4 @@ This day was nice. I visited a barbershop and got haircut. I did a lot of think 
 
 # 02 April - Sunday - Yerevan - 185 day of immigrations
 
-Today I was working on mine projects fow whole day. Fortunately the weather was fine today.
+Today I was working on mine projects fow whole day. Fortunately the weather was fine today. I finished with kentron library today.
