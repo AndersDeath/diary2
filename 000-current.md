@@ -8,4 +8,4 @@ Today I was working on mine projects fow whole day. Fortunately the weather was 
 
 # 03 April - Monday - Yerevan - 186 day of immigration
 
-This day was nice. I did a lot of things as usual. Holy theory has been released and I will proceed working on
+This day was nice. I did a lot of things as usual. Holy theory has been released and I will proceed working on it during the week.
