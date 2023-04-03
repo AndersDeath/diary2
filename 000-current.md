@@ -8,4 +8,4 @@ Today I was working on mine projects fow whole day. Fortunately the weather was 
 
 # 03 April - Monday - Yerevan - 186 day of immigration
 
-This day was nice. I did a lot of things as usual. Holy theory has been released and I will proceed working on it during the week. I also had a lot of calls today. I had a nice conversation with one Portuguese company but they cannot give me enough money. The rest of the day I dedicated to usual things. Tomorrow I have a lot of plans. It's time to record another video. I need to start doing it. At the same tim I will do some sport because it's time.
+This day was nice. I did a lot of things as usual. Holy theory has been released and I will proceed working on it during the week. I also had a lot of calls today. I had a nice conversation with one Portuguese company but they cannot give me enough money. The rest of the day I dedicated to usual things. Tomorrow I have a lot of plans. It's time to record another video. I need to start doing it. At the same tim I will do some sport because it's time. Very soon I will go to airport and meet Ksusha.
