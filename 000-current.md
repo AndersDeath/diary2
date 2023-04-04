@@ -12,4 +12,4 @@ This day was nice. I did a lot of things as usual. Holy theory has been released
 
 # 04 April - Tuesday - Yerevan - 187 day of immigration
 
-I slept bad today. I went to the bad quite late because I went to airport in order to meet Ksusha. At the same time I feel how my mood become better. I againt want to write code for DR SMILE.
+I slept bad today. I went to the bad quite late because I went to airport in order to meet Ksusha. At the same time I feel how my mood become better. I againt want to write code for DR SMILE. I had a call with NN they decided not to proceed with me.
