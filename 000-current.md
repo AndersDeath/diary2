@@ -12,4 +12,4 @@ This day was nice. I did a lot of things as usual. Holy theory has been released
 
 # 04 April - Tuesday - Yerevan - 187 day of immigration
 
-I slept bad today.
+I slept bad today. I went to the bad quite late because I 
