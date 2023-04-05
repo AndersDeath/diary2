@@ -16,4 +16,4 @@ I slept bad today. I went to the bad quite late because I went to airport in ord
 
 # 05 April - Wednesday - Yerevan - 188 day of immigration
 
-Nothing significant happened today. I feel that I'm tiered of situation again. I would like to immigrate to another place but I cannot do it.
+Nothing significant happened today. I feel that I'm tiered of situation again. I would like to immigrate to another place but I cannot do it. every fucking day I work hard on it.
