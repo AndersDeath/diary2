@@ -20,4 +20,4 @@ Nothing significant happened today. I feel that I'm tiered of situation again. I
 
 # 06 April - Thursday - Yerevan - 189 day immigration
 
-I didn't do anything significant today. I was coding a lot. I barely eat today.
+I didn't do anything significant today. I was coding a lot. I barely eat today. I was investigating some important things regarding 
