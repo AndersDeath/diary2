@@ -24,4 +24,4 @@ I didn't do anything significant today. I was coding a lot. I barely eat today. 
 
 # 07 April - Friday - Yerevan - 190 day of immigration
 
-I was programming for whole day.
+I was programming for whole day. I didn't do anything sinificats.
