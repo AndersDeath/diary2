@@ -24,4 +24,4 @@ I didn't do anything significant today. I was coding a lot. I barely eat today. 
 
 # 07 April - Friday - Yerevan - 190 day of immigration
 
-I was programming for whole day. I didn't do anything sinificats. I had an interview with cheeky HR. She just sent me an invitation yesterday without any connections. It was extrimely rude I suppose.
+I was programming for whole day. I didn't do anything significate. I had an interview with cheeky HR. She just sent me an invitation yesterday without any connections. It was extremely rude I suppose.
