@@ -21,3 +21,5 @@ Nothing significant happened today. I feel that I'm tiered of situation again. I
 # 06 April - Thursday - Yerevan - 189 day immigration
 
 I didn't do anything significant today. I was coding a lot. I barely eat today. I was investigating some important things regarding publishing of npm packages. It'll be also a topic for an article. I know that I have significant article dept. I will fix it, I promise. I also had a call wi babbel company. they have a nice conditions for work that is nice. I hope we will proceed talking to them. Tomorrow i will also have a call despite the fact that it's a holiday in Berlin.
+
+# 07 April - Friday - Yerevan - 190 day of immigration
