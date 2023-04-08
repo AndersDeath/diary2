@@ -28,4 +28,4 @@ I was programming for whole day. I didn't do anything significate. I had an inte
 
 # 08 April - Saturday - 191 day of immigration
 
-Today we did nothing. we went for a walk and made around 18000 steps. Also we finally visited Hard Rock cafe. It's such a nice place. there are a lot of interesting artifacts like korn's guitar, guitar of zakk wilde, cher's boots, etc. It's the place where nice music plays. I really like it. We also visited interesting pizzeria that is near Republic Square metro
+Today we did nothing. we went for a walk and made around 18000 steps. Also we finally visited Hard Rock cafe. It's such a nice place. there are a lot of interesting artifacts like korn's guitar, guitar of zakk wilde, cher's boots, etc. It's the place where nice music plays. I really like it. We also visited interesting pizzeria that is near Republic Square metro station.
