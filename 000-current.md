@@ -32,4 +32,4 @@ Today we did nothing. we went for a walk and made around 18000 steps. Also we fi
 
 # 09 April - Sunday - 192 day of immigration
 
-Today we were walking again. We went to SAS food court that is near out previous apartments. Then we walked among tumo center and to huge SKK staduim. After that we visited the armenian henocide monument and went down from hill to dolma gar
+Today we were walking again. We went to SAS food court that is near out previous apartments. Then we walked among tumo center and to huge SKK staduim. After that we visited the armenian henocide monument and went down from hill to dolma garden mall.
