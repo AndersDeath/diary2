@@ -36,4 +36,4 @@ Today we were walking again. We went to SAS food court that is near out previous
 
 # 10 April - Monday - 193 day of immigration
 
-It was a typical monday. The hard endless day. I recorded new sources for the next video. I will start editing tomorrow.
+It was a typical monday. The hard endless day. I recorded new sources for the next video. I will start editing tomorrow. I was coding a bit and I went back t obusiness questions and tratin
