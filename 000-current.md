@@ -36,3 +36,4 @@ Today we were walking again. We went to SAS food court that is near out previous
 
 # 10 April - Monday - 193 day of immigration
 
+It was a typical monday.
