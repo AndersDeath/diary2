@@ -39,3 +39,5 @@ Today we were walking again. We went to SAS food court that is near out previous
 It was a typical monday. The hard endless day. I recorded new sources for the next video. I will start editing tomorrow. I was coding a bit and I went back to business questions and trainings. I feel how it became boring. I mean programming questions. Sometimes I need relax. However I published another version of holy theory. I every day try to add improvements to it. The weather in Yerevan isn't so good today. It's raining outside and the atmosphere is quite depressive. I really want to sleep for whole day. So, I will go and do some sport right now. It's a time.
 
 # 11 April - Tuesday - 194 day of immigration
+
+I feel quite depressive today.
