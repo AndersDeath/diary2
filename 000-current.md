@@ -40,4 +40,4 @@ It was a typical monday. The hard endless day. I recorded new sources for the ne
 
 # 11 April - Tuesday - 194 day of immigration
 
-I feel quite depressive today.
+I feel quite depressive today. It's not a first time, but I totally hate this kind of things.
