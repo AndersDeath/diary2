@@ -43,3 +43,5 @@ It was a typical monday. The hard endless day. I recorded new sources for the ne
 I feel quite depressive today. It's not a first time, but I totally hate this kind of things. Russian government created new law that gives them an option of sending online letters with order to arrive to military service. even if you miss it for some reasons, you must go. Repressions are still here. It makes me feel uncomfortable. It's really bad. I also was coding for whole day. Maybe I will try to get the second job. I want to have more money and opportunities. I/m investigating this things. The job searching process is extremely slow this time. One year ago I already had two offers for three months. It's hard. I hope that I will find another place. I still don't know if it's possible. Apparently every time when I get thins kind of news I feel bad. Much worse than usual. anxiety feeling is constantly with me. I really want to just live.
 
 # 12 April - Wednesday - Yerevan - 195 day of immigration
+
+Today I was coding for whole day 
