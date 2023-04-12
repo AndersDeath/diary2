@@ -44,4 +44,4 @@ I feel quite depressive today. It's not a first time, but I totally hate this ki
 
 # 12 April - Wednesday - Yerevan - 195 day of immigration
 
-Today I was coding for whole day and it was quite cool. I also did some coding trainings.
+Today I was coding for whole day and it was quite cool. I also did some coding trainings. unfortunately I had to work on DR SMILE's tasks.
