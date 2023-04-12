@@ -44,4 +44,4 @@ I feel quite depressive today. It's not a first time, but I totally hate this ki
 
 # 12 April - Wednesday - Yerevan - 195 day of immigration
 
-Today I was coding for whole day and it was quite cool. I also did some coding trainings. unfortunately I had to work on DR SMILE's tasks. I did one minor improvement for eleventy though. I also was reading a lot about new law that turns all men in Russia to slaves. Military slaves I would say. This is ridiculous. Sometimes I really cannot understand them. They are crazy bastards. I think that Russia and our society are very close to revolution
+Today I was coding for whole day and it was quite cool. I also did some coding trainings. unfortunately I had to work on DR SMILE's tasks. I did one minor improvement for eleventy though. I also was reading a lot about new law that turns all men in Russia to slaves. Military slaves I would say. This is ridiculous. Sometimes I really cannot understand them. They are crazy bastards. I think that Russia and our society are very close to revolution. This kind of shit is impossible to handle.
