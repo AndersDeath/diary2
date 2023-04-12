@@ -26,20 +26,20 @@ I didn't do anything significant today. I was coding a lot. I barely eat today. 
 
 I was programming for whole day. I didn't do anything significate. I had an interview with cheeky HR. She just sent me an invitation yesterday without any connections. It was extremely rude I suppose. They are going to pay few money but have a huge expectations.
 
-# 08 April - Saturday - 191 day of immigration
+# 08 April - Saturday - Yerevan - 191 day of immigration
 
 Today we did nothing. we went for a walk and made around 18000 steps. Also we finally visited Hard Rock cafe. It's such a nice place. there are a lot of interesting artifacts like korn's guitar, guitar of zakk wilde, cher's boots, etc. It's the place where nice music plays. I really like it. We also visited interesting pizzeria that is near Republic Square metro station. If I'm not mistaken it's called Mozzarella. we went to Razdan river and children' railway. I also drunk a bit beer. I usually don't drink it but sometimes it's nice. I like beer in general and had huge problems with it in the past. Luckily I don't have them anymore. It's was a nice free day and I like it. I also did one task on leetcode. I still try to continue solving problems every fucking day. I hope it'll help me. I still don't know. Today life is quite easier.
 
-# 09 April - Sunday - 192 day of immigration
+# 09 April - Sunday - Yerevan - 192 day of immigration
 
 Today we were walking again. We went to SAS food court that is near out previous apartments. Then we walked among tumo center and to huge SKK staduim. After that we visited the armenian henocide monument and went down from hill to dolma garden mall. In general this walk was quite nice. I also created a plan for future vide that I am going to record the next morning. Tomorrow is a holiday in germany and I will not have meetings. I also will have a chance to finish with my routine tasks. from tomorrow I will go back to usual pace. I need to finish a lot of things before vacation. From business things I did some coding thins morning and such things. Now I need only to finish something for holy theory.
 
-# 10 April - Monday - 193 day of immigration
+# 10 April - Monday - Yerevan - 193 day of immigration
 
 It was a typical monday. The hard endless day. I recorded new sources for the next video. I will start editing tomorrow. I was coding a bit and I went back to business questions and trainings. I feel how it became boring. I mean programming questions. Sometimes I need relax. However I published another version of holy theory. I every day try to add improvements to it. The weather in Yerevan isn't so good today. It's raining outside and the atmosphere is quite depressive. I really want to sleep for whole day. So, I will go and do some sport right now. It's a time.
 
-# 11 April - Tuesday - 194 day of immigration
+# 11 April - Tuesday - Yerevan - 194 day of immigration
 
 I feel quite depressive today. It's not a first time, but I totally hate this kind of things. Russian government created new law that gives them an option of sending online letters with order to arrive to military service. even if you miss it for some reasons, you must go. Repressions are still here. It makes me feel uncomfortable. It's really bad. I also was coding for whole day. Maybe I will try to get the second job. I want to have more money and opportunities. I/m investigating this things. The job searching process is extremely slow this time. One year ago I already had two offers for three months. It's hard. I hope that I will find another place. I still don't know if it's possible. Apparently every time when I get thins kind of news I feel bad. Much worse than usual. anxiety feeling is constantly with me. I really want to just live.
 
-# 12 April - Wednesday - 195 day of immigration
+# 12 April - Wednesday - Yerevan - 195 day of immigration
