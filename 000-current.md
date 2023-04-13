@@ -48,4 +48,4 @@ Today I was coding for whole day and it was quite cool. I also did some coding t
 
 # 13 April - Thursday  - Yerevan - 196 day of immigration 
 
-Babbel company rejected me.
+Babbel company rejected me. I had an interview with Paris's company "Shift" and they already scheduled another one with me.
