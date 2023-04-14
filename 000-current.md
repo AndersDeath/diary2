@@ -52,4 +52,4 @@ Babbel company rejected me. I had an interview with Paris's company "Shift" and 
 
 # 14 April - Friday - Yerevan - 197 day of immigration
 
-I had a lot of meetings today. It was hard. I also in so bad condition that it's event hard for me to think. However I did a lot of things. I event found power for some coding. The next week will be the last before my vacation. I also will have serval important calls.
+I had a lot of meetings today. It was hard. I also in so bad condition that it's event hard for me to think. However I did a lot of things. I event found power for some coding. The next week will be the last before my vacation. I also will have serval important calls. I hope to have good luck.
