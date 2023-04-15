@@ -56,4 +56,4 @@ I had a lot of meetings today. It was hard. I also in so bad condition that it's
 
 # 15 April - Saturday - Yerevan - 198 day of immigration
 
-The one the hardest things for me is to dive intro writhing process. I spend a lot of time on training of writing skills. I really don't have time to write, despite the fact that I really like to do it. 
+The one the hardest things for me is to dive intro writhing process. I spend a lot of time on training of writing skills. I really don't have time to write, despite the fact that I really like to do it. So I need to work on it.
