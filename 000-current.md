@@ -60,4 +60,4 @@ The one the hardest things for me is to dive intro writhing process. I spend a l
 
 # 16 April - Sunday - Yerevan - 199 day of immigration
 
-I finally published another episode of emigration diary.
+I finally published another episode of emigration diary. I cut almost a half of material
