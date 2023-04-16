@@ -59,3 +59,5 @@ I had a lot of meetings today. It was hard. I also in so bad condition that it's
 The one the hardest things for me is to dive intro writhing process. I spend a lot of time on training of writing skills. I really don't have time to write, despite the fact that I really like to do it. So I need to work on it. We were in Hard Rock cafe again. It was tasty and nice. We also were in another cafe where we were working for a while. I prepared all documents for future trip. I just printed all of them. There are tickets, bookings in my folder now. In the cinema we watched inglorious bastards by Tarantino. I didn't see this film before and it is good movie. I like it. From another side I did almost nothing. I didn't have time for finishing of video. I will do it tomorrow. In general this day was nice.
 
 # 16 April - Sunday - Yerevan - 199 day of immigration
+
+I finally published another episode of emigration diary.
