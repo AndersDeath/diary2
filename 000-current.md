@@ -60,4 +60,4 @@ The one the hardest things for me is to dive intro writhing process. I spend a l
 
 # 16 April - Sunday - Yerevan - 199 day of immigration
 
-I finally published another episode of emigration diary. I cut almost a half of material. The source wasn't so good. However I prepared a 6 minutes video which is nice. We also went for a walk today. The weather is perfect. It's last sunday in Yerevan in this season. Very soon, or rather in the next saturday we're going to Rome. On the next monday we will be in Barcelona. I don't feel like I am ready, but I really want to go there asap.
+I finally published another episode of emigration diary. I cut almost a half of material. The source wasn't so good. However I prepared a 6 minutes video which is nice. We also went for a walk today. The weather is perfect. It's last sunday in Yerevan in this season. Very soon, or rather in the next saturday we're going to Rome. On the next monday we will be in Barcelona. I don't feel like I am ready, but I really want to go there asap. I need also to withdrawal some euro in the bank and add some documents there.
