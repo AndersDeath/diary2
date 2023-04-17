@@ -64,4 +64,4 @@ I finally published another episode of emigration diary. I cut almost a half of 
 
 # 17 April - Monday - Yerevan - 200 days of immigration
 
-Today is 200 days since I left Russia finally.
+Today is 200 days since I left Russia finally. It's so interesting itself that I should explain it.
