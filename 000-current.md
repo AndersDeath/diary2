@@ -65,3 +65,5 @@ I finally published another episode of emigration diary. I cut almost a half of 
 # 17 April - Monday - Yerevan - 200 days of immigration
 
 Today is 200 days since I left Russia finally. It's so interesting itself that I should explain it. Bastard make their shit. I got some cash in my bank today. It was nice and fast. I also did some job and tasks for Drsmile. In the evening I was looking for information about public transport in Rome and Barcelona. We are going there very soon and it's time for preparations. I also had an interview with CTO of Dott company. I prepared answers for questions that he sent to me. It was interesting and nice. Let's see what will be the result. Anyway I did a lot of things and I finally tiered and want to have a rest.
+
+# 18 April - Tuesday - Yerevan - 201 days of immigraion
