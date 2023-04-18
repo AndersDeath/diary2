@@ -68,4 +68,4 @@ Today is 200 days since I left Russia finally. It's so interesting itself that I
 
 # 18 April - Tuesday - Yerevan - 201 days of immigration
 
-I had two interview today. The first one was with Shift company from France. The second one was with Metro company from Germany. Both of them were quite interesting. Also I had a long conversation with drsmile people. I don't know if I will have some cool continuation with them. Anyway it was positive for me. In the shift interview I was talking to a french speaker. It was hard sometimes to understand him but useful. I don't have an interaction expierence with
+I had two interview today. The first one was with Shift company from France. The second one was with Metro company from Germany. Both of them were quite interesting. Also I had a long conversation with drsmile people. I don't know if I will have some cool continuation with them. Anyway it was positive for me. In the shift interview I was talking to a french speaker. It was hard sometimes to understand him but useful. I don't have an interaction expierence with French person.
