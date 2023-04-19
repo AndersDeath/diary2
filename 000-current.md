@@ -72,4 +72,4 @@ I had two interview today. The first one was with Shift company from France. The
 
 # 19 April - Wednesday - Yerevan - 202 days of immigration
 
-Today I was working on TJ tasks for whole day. I will be on vacation very soon and 
+Today I was working on TJ tasks for whole day. I will be on vacation very soon and I need to close as many tasks as possible.
