@@ -72,4 +72,4 @@ I had two interview today. The first one was with Shift company from France. The
 
 # 19 April - Wednesday - Yerevan - 202 days of immigration
 
-Today I was working on TJ tasks for whole day. I will be on vacation very soon and I need to close as many tasks as possible. Today's interview was cancelled. The guy got covid. I also tried to work with codux tool. It's quite cool thing but I'm not sure that I will use it. In general I doing better. I think it's because of vacation. I'm happy to be free for a while. I still have depressive moments.
+Today I was working on TJ tasks for whole day. I will be on vacation very soon and I need to close as many tasks as possible. Today's interview was cancelled. The guy got covid. I also tried to work with codux tool. It's quite cool thing but I'm not sure that I will use it. In general I doing better. I think it's because of vacation. I'm happy to be free for a while. I still have depressive moments. I absolutely sure that I have something like post-traumatic sindrome.
