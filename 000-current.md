@@ -75,3 +75,5 @@ I had two interview today. The first one was with Shift company from France. The
 Today I was working on TJ tasks for whole day. I will be on vacation very soon and I need to close as many tasks as possible. Today's interview was cancelled. The guy got covid. I also tried to work with codux tool. It's quite cool thing but I'm not sure that I will use it. In general I doing better. I think it's because of vacation. I'm happy to be free for a while. I still have depressive moments. I absolutely sure that I have something like post-traumatic syndrome. I feel sometimes like I was raped by government. This is awful feeling I would say. Maybe in some moment I will be happy. Now I understand that my happiness is somewhere in the past. I don't like to be this type of immigrant. Basically I am a person with no home. It's very bad. At the same time I feel good now.
 
 # 20 April - Thursday - Yerevan - 203 days of immigration
+
+I feel bad today due to weather.
