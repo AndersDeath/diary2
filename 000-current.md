@@ -76,4 +76,4 @@ Today I was working on TJ tasks for whole day. I will be on vacation very soon a
 
 # 20 April - Thursday - Yerevan - 203 days of immigration
 
-I feel bad today due to weather. Headache and unstable mood has been bothering me today.
+I feel bad today due to weather. Headache and unstable mood has been bothering me today. I bought sim card and ordered a transfer in Rome.
