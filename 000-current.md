@@ -76,4 +76,4 @@ Today I was working on TJ tasks for whole day. I will be on vacation very soon a
 
 # 20 April - Thursday - Yerevan - 203 days of immigration
 
-I feel bad today due to weather. Headache and unstable mood has been bothering me today. I bought sim card and ordered a transfer in Rome. I'm exited about my future trip. I would be happy to change atmosphere for a while. I started diet and I constantly hungry. It's something new for me. Anyway I have to do it becaus I don't like my body shape now.
+I feel bad today due to weather. Headache and unstable mood has been bothering me today. I bought sim card and ordered a transfer in Rome. I'm exited about my future trip. I would be happy to change atmosphere for a while. I started diet and I constantly hungry. It's something new for me. Anyway I have to do it becaus I don't like my body shape now. I will be 35 years old in 3 days.
