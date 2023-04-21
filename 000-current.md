@@ -79,3 +79,5 @@ Today I was working on TJ tasks for whole day. I will be on vacation very soon a
 I feel bad today due to weather. Headache and unstable mood has been bothering me today. I bought sim card and ordered a transfer in Rome. I'm exited about my future trip. I would be happy to change atmosphere for a while. I started diet and I constantly hungry. It's something new for me. Anyway I have to do it becaus I don't like my body shape now. I will be 35 years old in 3 days. It's extremely sad for me. I don't want to become so old but I have to. Due to all this bullshit that happened a year ago I still try to change my mindset. I sill like in previous paradigm that is not good. I feel that everything changed but I don't want it. Again It's not about conservatism or similar shit. It's about changed expectation and plans. I do remember how I started preparation for immigration to Canada. Now I don't think that I will go there. It's a shit.
 
 # 21 April - Friday - Yerevan - 204 day of immigration
+
+So, Today was a last working day before my vacation.
