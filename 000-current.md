@@ -80,4 +80,4 @@ I feel bad today due to weather. Headache and unstable mood has been bothering m
 
 # 21 April - Friday - Yerevan - 204 day of immigration
 
-So, Today was a last working day before my vacation.
+So, Today was a last working day before my vacation. I can start chilling =). That's amazing.
