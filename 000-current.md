@@ -81,3 +81,5 @@ I feel bad today due to weather. Headache and unstable mood has been bothering m
 # 21 April - Friday - Yerevan - 204 day of immigration
 
 So, Today was a last working day before my vacation. I can start chilling =). That's amazing. Tomorrow we age going to Rome. I think that the diary record will be write down in Yerevan. but on Sunday I will make it in the place. I am glad to leave Yerevan for a while. this place is nice but I didn't be in pther countries since Georgia visit. But the most exiting thing is that I will visit EU again. I was there last time almost 3 or 4 years ago in Greece. I thoung that it would be a good start  but than pandemic ruined all my plans. It was sad actually. Especially after my starting work for DR SMILE. I started gaining good amount of money but quarantine ruined my trips. Right now I'm sitting in the bad and it's the latest night here in this apartments. I like the location but apartment is not so cozy that I expected.
+
+# 22 April - Saturday - Yerevan - 205 day of immigration
