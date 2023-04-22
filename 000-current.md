@@ -84,4 +84,4 @@ So, Today was a last working day before my vacation. I can start chilling =). Th
 
 # 22 April - Saturday - Yerevan - 205 day of immigration
 
-So, I am sitting in Zvartnots international airport. The call to flight will be soon and I will go to Rome.
+So, I am sitting in Zvartnots international airport. The call to flight will be soon and I will go to Rome. In general it's quite exited thing.
