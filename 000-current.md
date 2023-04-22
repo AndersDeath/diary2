@@ -84,4 +84,4 @@ So, Today was a last working day before my vacation. I can start chilling =). Th
 
 # 22 April - Saturday - Yerevan - 205 day of immigration
 
-So, I am sitting in Zvartnots international airport. The call to flight will be soon and I will go to Rome. In general it's quite exited thing. I've been waiting this trip for a quite long time. I left my Yerevan's apartments and leave keys to host. It's sad because I really tiered of changing home. I cannot say that it's very convenient lifestyle for me. I understood that I really need to have a base that I can call as home and use it between my travelling.
+So, I am sitting in Zvartnots international airport. The call to flight will be soon and I will go to Rome. In general it's quite exited thing. I've been waiting this trip for a quite long time. I left my Yerevan's apartments and leave keys to host. It's sad because I really tiered of changing home. I cannot say that it's very convenient lifestyle for me. I understood that I really need to have a base that I can call as home and use it between my traveling.
