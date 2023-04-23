@@ -88,4 +88,4 @@ So, I am sitting in Zvartnots international airport. The call to flight will be 
 
 # 23 April - Sunday - Rome - 206 day of immigration
 
-So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am closer to death in one step actually. I am in Rome. this is amazing thing. the flight was amazing and smooth. Ksusha ordered quite expensive transfer that was amazing.
+So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am closer to death in one step actually. I am in Rome. this is amazing thing. the flight was amazing and smooth. Ksusha ordered quite expensive transfer that was amazing. I like Mercedes E classe.
