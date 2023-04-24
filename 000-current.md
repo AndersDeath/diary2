@@ -92,4 +92,4 @@ So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am cl
 
 # 24 April - Monday - Rome - 207 day of immigration
 
-This is the latest day here. Very soon I will go to airport and flight to Barcelona. I recorded a part of the blog from this city. After finishing with the part of Barcelona I will edit everything and publish. So, fortunately we found a transfer. the person will help us significantly. It will be amazing. We will have a sleep option because flight will be at 7am in the morning. In rome we visited several nice places today including Coleuses and modern building in eur district.s
+This is the latest day here. Very soon I will go to airport and flight to Barcelona. I recorded a part of the blog from this city. After finishing with the part of Barcelona I will edit everything and publish. So, fortunately we found a transfer. the person will help us significantly. It will be amazing. We will have a sleep option because flight will be at 7am in the morning. In rome we visited several nice places today including Coleuses and modern building in eur district. the coolest place today was a 
