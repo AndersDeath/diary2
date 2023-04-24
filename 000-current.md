@@ -92,4 +92,4 @@ So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am cl
 
 # 24 April - Monday - Rome - 207 day of immigration
 
-This is the latest day here.
+This is the latest day here. Very soon I will go to airport and flight to Barcelona.s
