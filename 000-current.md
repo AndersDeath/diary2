@@ -90,4 +90,4 @@ So, I am sitting in Zvartnots international airport. The call to flight will be 
 
 So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am closer to death in one step actually. I am in Rome. this is amazing thing. the flight was amazing and smooth. Ksusha ordered quite expensive transfer that was amazing. I like Mercedes E classe. we already visited museum that was built by Zaha Hadid. She is amazingly genouse architector. She was actually. Zaha passed away several years ago. So, This museum was very nice. We also been in the city center that is crowded by turists. It's really hard to find free space and walk fast there. We just visited a couple cool places and went to that museum. Me and Ksusha will go a restaurant soon. We will celebrate by birthday there. this day is nice. I feel so calm here. Russian news destroyed my nerve system. I really don't want to go back to Russia anymore. Anyway I need to go and dress. Maybe I will add some lines about this day. But most realistic that I will proceed texting tomorrow.
 
-# 24
+# 24 April - Monday - Rome - 207 day of immigrain
