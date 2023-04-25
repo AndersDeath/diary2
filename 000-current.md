@@ -96,4 +96,4 @@ This is the latest day here. Very soon I will go to airport and flight to Barcel
 
 # 25 April - Tuesday - Barcelona - 208 day of immigration
 
-We arrived to Barcelona successfully. The hardest thing was to wait for apartments check-in for a long time. we were here at 9am, but check-in was at 3pm.
+We arrived to Barcelona successfully. The hardest thing was to wait for apartments check-in for a long time. we were here at 9am, but check-in was at 3pm. we was walking and had a dinner.
