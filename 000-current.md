@@ -100,4 +100,4 @@ We arrived to Barcelona successfully. The hardest thing was to wait for apartmen
 
 # 26 April - Wednesday - Barcelona - 209 day of immigration
 
-Today I had 3 interviews in a row. It was quite hard I will no do it again. However I will have a one more round soon. We also went out today and visited a couple of places of interest. We looked at Gothic cathedral and Barcelona beach. It was really nice and I really felt like I am in new and different place. Despite this fact I found time for coding and exploring things. Also I'm going to learn nuxt.js/vue.js set up because position is quite good.
+Today I had 3 interviews in a row. It was quite hard I will no do it again. However I will have a one more round soon. We also went out today and visited a couple of places of interest. We looked at Gothic cathedral and Barcelona beach. It was really nice and I really felt like I am in new and different place. Despite this fact I found time for coding and exploring things. Also I'm going to learn nuxt.js/vue.js set up because position is quite good. I have approximately 10 days for it.
