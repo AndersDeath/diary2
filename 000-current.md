@@ -94,8 +94,10 @@ So, today is my birthday. I am 35 today. In 5 years I will 40 years old. I am cl
 
 This is the latest day here. Very soon I will go to airport and flight to Barcelona. I recorded a part of the blog from this city. After finishing with the part of Barcelona I will edit everything and publish. So, fortunately we found a transfer. the person will help us significantly. It will be amazing. We will have a sleep option because flight will be at 7am in the morning. In rome we visited several nice places today including Coleuses and modern building in eur district. the coolest place today was a prigneto district where we lived in 2018. It felt like the last life. Anyway I was glad to come back. The weather here is amazing. it's very similar to weather of dream. I like Rome. this place is very similar to Saint-P that I love. If avoid over touristic places it's really easy to get pleasure of walking and living here. I will come back to this place. The next record here will be written in Barcelona.
 
-# 25 April - Wednesday - Barcelona - 208 day of immigration
+# 25 April - Tuesday - Barcelona - 208 day of immigration
 
 We arrived to Barcelona successfully. The hardest thing was to wait for apartments check-in for a long time. we were here at 9am, but check-in was at 3pm. we was walking and had a dinner. Basically it was hard day. we are in the apartments now and have a rest. Tomorrow I will have three interviews. I hope that at least some of them will be successful. It's really hard to looking of a new job in this season. Everything is not stable and understandable. So, Now I only want to drin a cup of tea, eat a dessert and go to sleep. I will go and do it.
 
-# 26 April - 
+# 26 April - Wednesday - Barcelona - 209 day of immigration
+
+Today I had 3 interviews in a row.
