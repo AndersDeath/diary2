@@ -104,4 +104,4 @@ Today I had 3 interviews in a row. It was quite hard I will no do it again. Howe
 
 # 27 April - Thursday - Barcelona - 210 day of immigration
 
-Today we were walking around the city center and were on Monjüic hill in Barcelona. this place is quite big and we didn't have stamina for looking at everything. we looked at cactus garden and national museum building. We also checked Funicular and rope road. I looked at Dr smile clinic here in Barcelona and it was also nice.
+Today we were walking around the city center and were on Monjüic hill in Barcelona. this place is quite big and we didn't have stamina for looking at everything. we looked at cactus garden and national museum building. We also checked Funicular and rope road. I looked at Dr smile clinic here in Barcelona and it was also nice. In general I am extremely tiered.
