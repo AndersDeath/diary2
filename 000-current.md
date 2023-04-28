@@ -108,4 +108,4 @@ Today we were walking around the city center and were on Monjüic hill in Barcel
 
 # 28 April - Friday - Barcelona - 211 day of immigration
 
-Today we were walking again a lot. We tried to visit Parc Guell but this place is so crowded that we just didn't have a chance to buy tickets.
+Today we were walking again a lot. We tried to visit Parc Guell but this place is so crowded that we just didn't have a chance to buy tickets. We did it and will go there this Sunday.
