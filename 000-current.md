@@ -112,4 +112,4 @@ Today we were walking again a lot. We tried to visit Parc Guell but this place i
 
 # 29 April - Saturday - Barcelona - 212 day of immigration
 
-This day was nice.
+This day was nice. We were in Sagrada de Familia by Gaudi architector.
