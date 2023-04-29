@@ -112,4 +112,4 @@ Today we were walking again a lot. We tried to visit Parc Guell but this place i
 
 # 29 April - Saturday - Barcelona - 212 day of immigration
 
-This day was nice. We were in Sagrada de Familia by Gaudi architecture. This church is amazing. I can honestly say that it's the one of the best building that I saw in my life. We also were in Temple Expiatori del Sagrat Cor. This chuck says on the hill out of Barcelona.
+This day was nice. We were in Sagrada de Familia by Gaudi architecture. This church is amazing. I can honestly say that it's the one of the best building that I saw in my life. We also were in Temple Expiatori del Sagrat Cor. This chuck says on the hill out of Barcelona. There is a great view on the city, bay area, and neighbourhood.
