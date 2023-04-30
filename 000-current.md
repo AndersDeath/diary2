@@ -116,4 +116,4 @@ This day was nice. We were in Sagrada de Familia by Gaudi architecture. This chu
 
 # 30 April - Sunday - Barcelona - 213 day of immigration
 
-So, we are still here in barcelona and our trop continues. Today we were at park guell which is nice place I would say. then we visited museum of design. It's also cool place. The first part of the day we spent at home. I was working on current tasks and then went outside and recorded some video piece for my video blog.
+So, we are still here in barcelona and our trop continues. Today we were at park guell which is nice place I would say. then we visited museum of design. It's also cool place. The first part of the day we spent at home. I was working on current tasks and then went outside and recorded some video piece for my video blog. In general 
