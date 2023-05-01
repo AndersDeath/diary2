@@ -120,4 +120,4 @@ So, we are still here in barcelona and our trop continues. Today we were at park
 
 # 01 May - Monday - Barcelona - 214 day of immigration
 
-Today we were in the park that was in Parfumer movie. There is a labyrinth there. It's quite nice place and I was surprised. we also were at plau de la musica which is one of the first modernizm buildings in 
+Today we were in the park that was in Parfumer movie. There is a labyrinth there. It's quite nice place and I was surprised. we also were at plau de la musica which is one of the first modernizm buildings in Barcelona.
