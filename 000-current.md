@@ -4,4 +4,4 @@ Today we were in the park that was in Parfumer movie. There is a labyrinth there
 
 # 02 May - Tuesday - Barcelona - 215 day of immigration
 
-This day was a good. We didn't walk a lot and I am not so tiered. I can say the same about Ksusha.
+This day was a good. We didn't walk a lot and I am not so tiered. I can say the same about Ksusha. I had an interview with Happeo guy. It was nice and short.
