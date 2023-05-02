@@ -4,3 +4,4 @@ Today we were in the park that was in Parfumer movie. There is a labyrinth there
 
 # 02 May - Tuesday - Barcelona - 215 day of immigration
 
+This day was a good.
