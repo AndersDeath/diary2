@@ -8,4 +8,4 @@ This day was a good. We didn't walk a lot and I am not so tiered. I can say the 
 
 # 03 May - Wednesday - Barcelona - 216 day of immigration
 
-So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city. I tried to rerecord my video about Barcelona this morning but I got only piece of shit. Local streets are extremely noisy and I didn't find a place where I can be in calm env. I also changed a plan for the video. Now it has strong structure that I want to try the next morning. From another side this day was quite calm.
+So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city. I tried to rerecord my video about Barcelona this morning but I got only piece of shit. Local streets are extremely noisy and I didn't find a place where I can be in calm env. I also changed a plan for the video. Now it has strong structure that I want to try the next morning. From another side this day was quite calm. The day after tomorrow in the nearest friday we are leaving this city.
