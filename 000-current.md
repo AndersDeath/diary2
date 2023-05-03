@@ -7,3 +7,5 @@ Today we were in the park that was in Parfumer movie. There is a labyrinth there
 This day was a good. We didn't walk a lot and I am not so tiered. I can say the same about Ksusha. I had an interview with Happeo guy. It was nice and short. I also did sport and meditation that is amazing because for the last several weeks I didn't have power to do it. I decided now that I have one sacred hour for my body every day. I need to change my body shape. I think that it is a time. I am 35 years old and my body and health will never be better but only worse. So, it's my goal. In general I finished with almost all tasks from my list. Also I started enjoying Barcelona.  Initially my impression wasn't so good, but now everything is ok and I can say that my opinion changed in some ways. I want to listen to source video about this city shortly and then decide if I need to record some another part for some reasons.
 
 # 03 May - Wednesday - Barcelona - 216 day of immigration
+
+So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city.
