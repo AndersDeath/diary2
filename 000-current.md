@@ -8,4 +8,4 @@ This day was a good. We didn't walk a lot and I am not so tiered. I can say the 
 
 # 03 May - Wednesday - Barcelona - 216 day of immigration
 
-So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city.
+So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city. I tried to rerecord my video about Barcelona this morning but I got only piece of shit.
