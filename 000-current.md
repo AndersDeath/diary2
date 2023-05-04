@@ -12,4 +12,4 @@ So, I am sitting in Buenos Migas place which is one of the places where it is po
 
 # 04 May - Thursday - Barcelona - 217 day of immigration
 
-Today we finally to ConmoCaixa
+Today we finally to CosmoCaixa
