@@ -12,4 +12,4 @@ So, I am sitting in Buenos Migas place which is one of the places where it is po
 
 # 04 May - Thursday - Barcelona - 217 day of immigration
 
-Today we finally to CosmoCaixa. It's a museum on science in Barcelona that was founded by loca Caixa bank. I hope I typed this title correctly. It's a cool place awith interactive things and fishes and ancient animalas. I wish to had such place when I was a kid.
+Today we finally to CosmoCaixa. It's a museum on science in Barcelona that was founded by loca Caixa bank. I hope I typed this title correctly. It's a cool place awith interactive things and fishes and ancient animalas. I wish to had such place when I was a kid. I also finally recorded all video sources. The latest attempt wasn't so good.
