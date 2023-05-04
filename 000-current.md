@@ -9,3 +9,5 @@ This day was a good. We didn't walk a lot and I am not so tiered. I can say the 
 # 03 May - Wednesday - Barcelona - 216 day of immigration
 
 So, I am sitting in Buenos Migas place which is one of the places where it is possible to eat for affordable price in this city. I tried to rerecord my video about Barcelona this morning but I got only piece of shit. Local streets are extremely noisy and I didn't find a place where I can be in calm env. I also changed a plan for the video. Now it has strong structure that I want to try the next morning. From another side this day was quite calm. The day after tomorrow in the nearest friday we are leaving this city. the first stop will be Rome, that Dortmund. After that we are going to use douchebahn and enter to Berlin. In general this vacation is quite cool because I finally looked at Spain through key whole. In general I got good impressions about this country. MAybe it's because I like Spanish language though. Neverming I got good time. The first week was hard but now I am ok and ready to start doing new great things.
+
+# 04 May - Thursday - Barcelona - 217 day of immigration
