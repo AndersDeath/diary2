@@ -16,4 +16,4 @@ Today we finally to CosmoCaixa. It's a museum on science in Barcelona that was f
 
 # 05 May - Friday - Barcelona - 218 - day of immigration
 
-We are flying to Rome today and tomorrow's morning we will be in Dortmund for one night. It's really interesting thing bec
+We are flying to Rome today and tomorrow's morning we will be in Dortmund for one night. Unfortunately today is strike in barcelona and our flight will be delayed for one hour.
