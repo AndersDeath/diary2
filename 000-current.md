@@ -17,3 +17,5 @@ Today we finally to CosmoCaixa. It's a museum on science in Barcelona that was f
 # 05 May - Friday - Barcelona - 218 - day of immigration
 
 We are flying to Rome today and tomorrow's morning we will be in Dortmund for one night. Unfortunately today is strike in barcelona and our flight will be delayed for one hour. I apparently don't like it but cannot do anything. It's 17:37 o'clock and in several minutes I will have a call with some German company. It'll be a short introduction call. It should be this morning but guy from that company asked me to move time. Unfortunately I have only one convenient slot and it's it. I also had a time for coding today. It's also quite cool. I improved holy-theory generator which makes me happy. I think to move some functionality of it into Kentron library because this thing does very similar stuff. The only difference that Kentron has its own templating system but in holy-theory I decided to use pug.
+
+# 06 May - Saturday - Rome - 219 - day of immigration
