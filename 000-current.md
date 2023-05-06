@@ -20,4 +20,4 @@ We are flying to Rome today and tomorrow's morning we will be in Dortmund for on
 
 # 06 May - Saturday - Rome - 219 - day of immigration
 
-It was one of the hardest flights in my life. In barcelona was a strike and my airplane departures without baggage.
+It was one of the hardest flights in my life. In barcelona was a strike and my airplane departures without baggage. we spent the whole night in the airport. 
