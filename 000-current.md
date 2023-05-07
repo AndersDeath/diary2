@@ -24,4 +24,4 @@ It was one of the hardest flights in my life. In barcelona was a strike and my a
 
 # 07 May - Sunday - Rome - 220 - day of immigration
 
-We was in Ikea today and it was beautiful. We tasted some delicious ikea food. I missed it so much. Basically we spent the whole day in that shopping mall
+We was in Ikea today and it was beautiful. We tasted some delicious ikea food. I missed it so much. Basically we spent the whole day in that shopping mall. Now we are in the motel.
