@@ -21,3 +21,5 @@ We are flying to Rome today and tomorrow's morning we will be in Dortmund for on
 # 06 May - Saturday - Rome - 219 - day of immigration
 
 It was one of the hardest flights in my life. In barcelona was a strike and my airplane departures without baggage. we spent the whole night in the airport. Airbnb guy fucked us up and just stopped answering. In beginning our flight was delayed for two hours. Than we set intro the airplane but after landing the capitan said that our baggage was arrived partially. But it was a lie because there wasn't any luggage. Capitan couldn't not to know about it. It was lie. Then I spent a lot of time with papers and airport stuff. Basically all germany visit will be cancelled. Everything goes wrong because of them. I will not visit Dortmund and the same will be for Berlin I suppose. I feel really bad because of it. I have to wait my luggage and don't know how long. I am sue that I will return my goods but all this shit makes me very nervaous. Finally I need to stay in a fucking motel near airport. I will think about it.
+
+# 07 May - Sunday - Rome - 220 - day of immigration
