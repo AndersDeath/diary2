@@ -28,4 +28,4 @@ We was in Ikea today and it was beautiful. We tasted some delicious ikea food. I
 
 # 08 May - Monday - Fiumicino/Ostia - 221 - day of immigration
 
-we didn't get oug luggage. Fucking wizzair and barcelona didn't send it to Rome. We moved to an apartments/
+we didn't get oug luggage. Fucking wizzair and barcelona didn't send it to Rome. We moved to an apartments. This place is quite cozt.
