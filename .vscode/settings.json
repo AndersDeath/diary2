@@ -3,5 +3,8 @@
         "editor.cursorSurroundingLines": 0,
         "editor.tabSize": 4,
         "editor.wrappingIndent": "same"
-    }
+    },
+    "cSpell.words": [
+        "miditerrian"
+    ]
 }
