@@ -32,4 +32,4 @@ we didn't get oug luggage. Fucking wizzair and barcelona didn't send it to Rome.
 
 # 09 May - Tuesday - Ostia - 222 - day of immigration
 
-We finally got our luggage. It happened in the first part of the day. So, we lost about 1000 euros because of this strike and Wizzair. Tomorrow we are going to Antalia. Finally I can be relaxed. The next months will be probably very calm.
+We finally got our luggage. It happened in the first part of the day. So, we lost about 1000 euros because of this strike and Wizzair. Tomorrow we are going to Antalia. Finally I can be relaxed. The next months will be probably very calm. Anyway I feel much better.
