@@ -31,3 +31,5 @@ We was in Ikea today and it was beautiful. We tasted some delicious ikea food. I
 we didn't get oug luggage. Fucking wizzair and barcelona didn't send it to Rome. We moved to an apartments. This place is quite cozy. We decided that if tomorrow our baggage will not be sent We will go to Barcelona and try to get in on place. Ksusha is extremely devastated. I support her as I can. I will not go to Berlin. It's too expensive. I hate it. In general I am extremely tiered of this situation. I really don't want going to fucking Barcelona. I want to just be relaxed a bit. Fuck them all.
 
 # 09 May - Tuesday - Ostia - 222 - day of immigration
+
+We finally got our luggage
