@@ -30,8 +30,8 @@ We was in Ikea today and it was beautiful. We tasted some delicious ikea food. I
 
 we didn't get oug luggage. Fucking wizzair and barcelona didn't send it to Rome. We moved to an apartments. This place is quite cozy. We decided that if tomorrow our baggage will not be sent We will go to Barcelona and try to get in on place. Ksusha is extremely devastated. I support her as I can. I will not go to Berlin. It's too expensive. I hate it. In general I am extremely tiered of this situation. I really don't want going to fucking Barcelona. I want to just be relaxed a bit. Fuck them all.
 
-# 09 May - Tuesday - Ostia - 222 - day of immigration
+# 09 May - Tuesday - Ostia - 222 day of immigration
 
 We finally got our luggage. It happened in the first part of the day. So, we lost about 1000 euros because of this strike and Wizzair. Tomorrow we are going to Antalia. Finally I can be relaxed. The next months will be probably very calm. Anyway I feel much better. My vacation is over by the way but I need to take a day off tomorrow due to the flight. We are flying to destination point with one stop in Istanbul. There are no tickets from Rome that can move us directly. It's not so sad, but it means that tomorrow will be another airport day. Finally we are going to drive to the place by car. We will rent it for one months. It's nice because I really miss driving. I didn't drive a car for more that half a year. At the same time I really like to do this. we also walked in this neighborhood of Ostia. It's a nice place. I really enjoyed this walk because there is a beach and miditerrian sea. Our host is amazing person. He gave keys to us much earlier that we expected yesterday. Today he picked us up in airport which was extremely convenient. I liked it. He is a project manager in Byer company and he's responsible for their logistics systems which is very interesting.
 
-# 10 May - Wednesday - Rome - Istanbul - Antalia - Kas - 223 
+# 10 May - Wednesday - Rome - Istanbul - Antalia - Kas - 223 day of immigration
