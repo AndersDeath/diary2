@@ -36,4 +36,4 @@ We finally got our luggage. It happened in the first part of the day. So, we los
 
 # 10 May - Wednesday - Rome - Istanbul - Antalia - Kas - 223 day of immigration
 
-We finally landed to Turkey. this is amazing. Very soon I will get a car and we will go to apartments. I really dream about nice months.
+We finally landed to Turkey. this is amazing. Very soon I will get a car and we will go to apartments. I really dream about nice months. After that we will go to Yerevan back.
