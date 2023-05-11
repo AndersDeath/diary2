@@ -40,4 +40,4 @@ We finally landed to Turkey. this is amazing. Very soon I will get a car and we 
 
 # 11 May - Thursday - Kaş - 224 day of immigration
 
-I enjoy staying here. It's amazing and calm place. I was working nicely today and it was amazing. Apartment is amazing and very cozy. We also went to town for having a small dinner. It was quite expensive but not bad. 
+I enjoy staying here. It's amazing and calm place. I was working nicely today and it was amazing. Apartment is amazing and very cozy. We also went to town for having a small dinner. It was quite expensive but not bad. I also had an interesting interview with parkos company. I am not sure that I passed it.
