@@ -39,3 +39,5 @@ We finally got our luggage. It happened in the first part of the day. So, we los
 We finally landed to Turkey. this is amazing. Very soon I will get a car and we will go to apartments. I really dream about nice months. After that we will go to Yerevan back. So, Today's flights were pleasant and calm. We left Rome in the morning and spent 2 hours in Istnblul in transit. Everything went smooth. Now I we have been waiting for our luggage. I also had an interview in airport with one company. Those people lied to me on the first call. I definitely don't want to work for them. At the same time I see mismatch between us. Tomorrows call will be much more important. I hope to do it well. I will wake up earlier in order to do some preparations. I need to talk about vuejs to them which is not my main technology. Anyway I will try to do my best. I also very tiered of everything and will be happy to spent some good time here. I really have this opportunity this time. I don't want when I will go back to Europe after this stress.
 
 # 11 May - Thursday - Kaş - 224 day of immigration
+
+I enjoy staying here.
