@@ -40,4 +40,4 @@ We finally landed to Turkey. this is amazing. Very soon I will get a car and we 
 
 # 11 May - Thursday - Kaş - 224 day of immigration
 
-I enjoy staying here. It's amazing and calm place.s
+I enjoy staying here. It's amazing and calm place. 
