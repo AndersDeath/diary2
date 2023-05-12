@@ -44,4 +44,4 @@ I enjoy staying here. It's amazing and calm place. I was working nicely today an
 
 # 12 May - Friday - Kaş - 225 day of immigration
 
-This day was full of meetings. I talked a lot about different things to many people. It was quite nice and cool. I relaxed finally. Last week was really hard and I felt really bad. Now everything is much better. I was writing code and did a lot of interesting things today. It was a pleasure to dive back into work.
+This day was full of meetings. I talked a lot about different things to many people. It was quite nice and cool. I relaxed finally. Last week was really hard and I felt really bad. Now everything is much better. I was writing code and did a lot of interesting things today. It was a pleasure to dive back into work. I think that only activities help me not to go crazy 
