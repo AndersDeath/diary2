@@ -43,3 +43,5 @@ We finally landed to Turkey. this is amazing. Very soon I will get a car and we 
 I enjoy staying here. It's amazing and calm place. I was working nicely today and it was amazing. Apartment is amazing and very cozy. We also went to town for having a small dinner. It was quite expensive but not bad. I also had an interesting interview with Parkos company. I am not sure that I passed it. I also think that I need to dive deeper to looking for vacancies because Ksusha mostly working on it and I see that she is very tiered of it. She is on the edge. I also got good review during PCDR process. It's good and now I am much more confident. I also need to work more on presentation on myself. So, I still fighting for my future. I don't want to stop doing things. By the way I also need to start working on video. I will start working on it tomorrow.
 
 # 12 May - Friday - Kaş - 225 day of immigration
+
+This day was full of meetings.
