@@ -44,4 +44,4 @@ I enjoy staying here. It's amazing and calm place. I was working nicely today an
 
 # 12 May - Friday - Kaş - 225 day of immigration
 
-This day was full of meetings. I talked a lot about different things to many people. It was quite nice and cool. I relaxed finally.
+This day was full of meetings. I talked a lot about different things to many people. It was quite nice and cool. I relaxed finally. Last week was really hard and I felt really bad. Now everything is much better.
