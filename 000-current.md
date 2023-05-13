@@ -48,4 +48,4 @@ This day was full of meetings. I talked a lot about different things to many peo
 
 # 13 May - Saturday - Kaş - 226 day of immigration
 
-Nothing happened yet. It's 11.20 o'clock and we are going to some small palace which is in 40 minutes driving from here. I hope that this travel will be smooth and good.
+Nothing happened yet. It's 11.20 o'clock and we are going to some small palace which is in 40 minutes driving from here. I hope that this travel will be smooth and good. Now I only want to be calm and have a good rest today.
