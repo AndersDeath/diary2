@@ -50,4 +50,4 @@ This day was full of meetings. I talked a lot about different things to many peo
 
 Nothing happened yet. It's 11.20 o'clock and we are going to some small palace which is in 40 minutes driving from here. I hope that this travel will be smooth and good. Now I only want to be calm and have a good rest today. I already finished some tasks in the morning and I hope that I will be able to do others as well. I feel nervous again. Maybe because I just don't want to spend the whole day in the car. So, the next lines I will add in the evening.
 
-So, it's 20.26 o'clock. We came back home.
+So, it's 20.26 o'clock. We came back home. We were in two places including patara beach w
