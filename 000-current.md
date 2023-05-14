@@ -54,4 +54,4 @@ So, it's 20.26 o'clock. We came back home. We were in two places including patar
 
 # 14 May - Sunday - Kaş - 227 day of immigration
 
-Today I had a lot of time for my own personal development and things. I like such days. We are sitting in a cafe in Kash and do deals on our Laptops. I dressed as an old person. I updated readme project finally and it's amazing.
+Today I had a lot of time for my own personal development and things. I like such days. We are sitting in a cafe in Kash and do deals on our Laptops. I dressed as an old person. I updated readme project finally and it's amazing. I also updated introduction for my new interviews.
