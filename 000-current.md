@@ -53,3 +53,5 @@ Nothing happened yet. It's 11.20 o'clock and we are going to some small palace w
 So, it's 20.26 o'clock. We came back home. We were in two places including patara beach which is amazing. I had a nice day with Ksusha. I don't write a lot about her. Maybe it's time. I am extremely lucky guy because I have such beautiful girl. I love her so much. We've been together for 9 years. For almost 2 years we are in marriage. Again I am lucky guy and I try to do everything to make her happy. this is extremely hard period of our life. In fact we could live in Russia because only me in danger but she decided to go out of the country with me. I know that she also don't want to be there. She told me that she did it for herself. This is true. But she also has choice. I love her.
 
 # 14 May - Sunday - Kaş - 227 day of immigration
+
+Today I had a lot of time for my own personal development and things.
