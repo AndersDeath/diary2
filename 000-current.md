@@ -55,3 +55,5 @@ So, it's 20.26 o'clock. We came back home. We were in two places including patar
 # 14 May - Sunday - Kaş - 227 day of immigration
 
 Today I had a lot of time for my own personal development and things. I like such days. We are sitting in a cafe in Kash and do deals on our Laptops. I dressed as an old person. I updated readme project finally and it's amazing. I also updated introduction for my new interviews. I want to try express myself better. It's very important thing that I usually lose. Also the weather is amazing and my mood is also good due to it. Honestly I feel better in general. It looks like I relaxed more here that during my European tour. Turkey is nice place for it. By the way it's election day here in Turkey. Even more: it's presidential elections. Erdogan can lose his chair today. It depends on if he's ready to make a bloodbath here. We will know in few days about it.
+
+# 15 May - Monday - Kaş - 228 day of immigration
