@@ -58,4 +58,4 @@ Today I had a lot of time for my own personal development and things. I like suc
 
 # 15 May - Monday - Kaş - 228 day of immigration
 
-This day was quite busy.
+This day was quite busy. I did release in DR SMILE which is nice.
