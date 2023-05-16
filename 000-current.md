@@ -62,4 +62,4 @@ This day was quite busy. I did release in DR SMILE which is nice. I also release
 
 # 16 May - Tuesday - Kaş - 229 day of immigration
 
-This day was quite nice but absolutely confusing. I had tons of meeting and I feel I did nothing.
+This day was quite nice but absolutely confusing. I had tons of meeting and I feel I did nothing. It's not true but anyway.
