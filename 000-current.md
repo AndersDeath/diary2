@@ -60,4 +60,6 @@ Today I had a lot of time for my own personal development and things. I like suc
 
 This day was quite busy. I did release in DR SMILE which is nice. I also released holy-theory project and finally finished with data generator for readme project. I didn't have time for the last one, but I finally found time. I also had an interview with weird company. A woman couldn't explain what the do to me. I'm really disappointed in them. Tomorrow will be also busy day. I hope nothing bad will happen. I received a request to call with Parkos company that is bad sign. Their manager told me that he sent me a test task but he didn't and now someone wants talking to me. this is bad. I think they will just refuse me. I had a great conversation with Oleg yesterday. He still tries to break a window to Portugal. He almost got all documents for asking for visa. I don't know how it will go to him. Additionally the apartment prices in Portugal are extremely high. They are around 3500-4000 eur for months. This is crazy. I get 5500-6000 eur per months and this is good salary but even me cannot afford it. The situation is crazy.
 
-# 16 May - Monday - Kaş - 229 day of immigration
+# 16 May - Tuesday - Kaş - 229 day of immigration
+
+This day was quite nice but absolutely confusing.
