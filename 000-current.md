@@ -62,4 +62,4 @@ This day was quite busy. I did release in DR SMILE which is nice. I also release
 
 # 16 May - Tuesday - Kaş - 229 day of immigration
 
-This day was quite nice but absolutely confusing. I had tons of meeting and I feel I did nothing. It's not true but still. So I also had a call with Parkos guy. I expected some shitburger but surprisingly the man told me about coding assessment. It looks like I need to dive deeper to nuxtjs during this week.
+This day was quite nice but absolutely confusing. I had tons of meeting and I feel I did nothing. It's not true but still. So I also had a call with Parkos guy. I expected some shitburger but surprisingly the man told me about coding assessment. It looks like I need to dive deeper to nuxtjs during this week. I need to dedicate two hours of my time for this task on weekend.
