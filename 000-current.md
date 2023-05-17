@@ -66,4 +66,4 @@ This day was quite nice but absolutely confusing. I had tons of meeting and I fe
 
 # 17 May - Wednesday - Kaş - 230 day of immigration
 
-I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I need to say. Firstly I didn't do this before, secondly there is a lot of shitty information on the internet that is hard to filter. However I did it and I am quite happy. At the same time I did some important tasks for DR SMILE that is good. Because of all good things my mood is also good. It looks like I will have interesting test task and cool project in DR SMILE as welll
+I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I need to say. Firstly I didn't do this before, secondly there is a lot of shitty information on the internet that is hard to filter. However I did it and I am quite happy. At the same time I did some important tasks for DR SMILE that is good. Because of all good things my mood is also good. It looks like I will have interesting test task and cool project in DR SMILE as well
