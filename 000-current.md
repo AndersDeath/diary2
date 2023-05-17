@@ -66,4 +66,4 @@ This day was quite nice but absolutely confusing. I had tons of meeting and I fe
 
 # 17 May - Wednesday - Kaş - 230 day of immigration
 
-I finally cooked fucking Docker container for nuxtjs today.
+I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I need to say.
