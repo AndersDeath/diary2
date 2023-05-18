@@ -70,4 +70,4 @@ I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I 
 
 # 18 May - Wednesday - Kaş - 231 day of immigration
 
-Today I was working for whole day and it was nice. I am really tiered but satisfied. Tomorrow I will have short interview with a company, but before that I need to focus on DR SMILE tasks. IF I have time I will read more about nuxtjs and to make some preparations to test task that Parkos should send me shortly.
+Today I was working for whole day and it was nice. I am really tiered but satisfied. Tomorrow I will have short interview with a company, but before that I need to focus on DR SMILE tasks. IF I have time I will read more about nuxtjs and to make some preparations to test task that Parkos should send me shortly. LEt's see.
