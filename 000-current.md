@@ -70,4 +70,4 @@ I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I 
 
 # 18 May - Wednesday - Kaş - 231 day of immigration
 
-Today I was working for whole day and it was nice.
+Today I was working for whole day and it was nice. I am really tiered but satisfied.
