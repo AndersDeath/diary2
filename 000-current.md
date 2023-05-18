@@ -69,3 +69,5 @@ This day was quite nice but absolutely confusing. I had tons of meeting and I fe
 I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I need to say. Firstly I didn't do this before, secondly there is a lot of shitty information on the internet that is hard to filter. However I did it and I am quite happy. At the same time I did some important tasks for DR SMILE that is good. Because of all good things my mood is also good. It looks like I will have interesting test task and cool project in DR SMILE as well. Surely It's not so obvious but anyway. It looks like I am very close to getting new knowledge. I'm quite tiered of Angular and I don't want to work with technology anymore. In a couple of day I want to setup Stable Diffusion local version to my laptop and make several tests. If all good I will do some pictures that will public somewhere. It will be interesting.
 
 # 18 May - Wednesday - Kaş - 231 day of immigration
+
+Today I was working for whole day and it was nice.
