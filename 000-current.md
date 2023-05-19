@@ -74,4 +74,4 @@ Today I was working for whole day and it was nice. I am really tiered but satisf
 
 # 19 May - Friday - Kaş - 232 day of immigration
 
-This day was quite heavy. I'm really tiered and I really want to have a rest. luckily it's friday. We will got to Fethiye tomorrow. We want to visit supermarket and just walk around. It's big town up north from Kash. I like that place as well.
+This day was quite heavy. I'm really tiered and I really want to have a rest. luckily it's friday. We will got to Fethiye tomorrow. We want to visit supermarket and just walk around. It's big town up north from Kash. I like that place as well. It was my first place for relatively long staying here in Turkey.
