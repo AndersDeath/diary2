@@ -72,4 +72,4 @@ I finally cooked fucking Docker container for nuxtjs today. It wasn't so easy I 
 
 Today I was working for whole day and it was nice. I am really tiered but satisfied. Tomorrow I will have short interview with a company, but before that I need to focus on DR SMILE tasks. IF I have time I will read more about nuxtjs and to make some preparations to test task that Parkos should send me shortly. Let's see. In general things go well. The weather today is extremely windy. IT's not so nice as a couple of days before. I think to wear better outfit. In general I feel good and this is amazing. I hope to find new job soon despite the fact that I've been looking for it for 4 month.
 
-# 19 May - 
+# 19 May - Friday - Kaş - 232 day of immigration
