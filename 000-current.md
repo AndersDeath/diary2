@@ -78,4 +78,4 @@ This day was quite heavy. I'm really tiered and I really want to have a rest. lu
 
 # 20 May - Friday - Kaş - Fethiye - 234 day of immigration
 
-Today we were in Fethie which is nice place. I like this city very much. Ksusha doesn't like this place and this is rare situation when our preferables are different. The car that we rented issued today. In some moment is just stopped working. Fortunately I asked help to some locals and they did it. They called to renting company and they just asked to reboot 
+Today we were in Fethie which is nice place. I like this city very much. Ksusha doesn't like this place and this is rare situation when our preferables are different. The car that we rented issued today. In some moment is just stopped working. Fortunately I asked help to some locals and they did it. They called to renting company and they just asked to reboot cars brain.
