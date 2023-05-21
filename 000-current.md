@@ -82,4 +82,4 @@ Today we were in Fethie which is nice place. I like this city very much. Ksusha 
 
 # 21 May - Sunday - Kaş - 234 day of immigration
 
-Today I did a test task for Parkos. It was disgusting. I don't think that I will get this job. It looks like I fell the test. I am not ready for vuejs and nuxtjs as well. I feel how I drown into depression again. I am so tiered. I felt so good since we left EU. I still think about how little time I have for founding a new job. I feel so bad because of it. My mood changes constantly. At the same time I didn't have a rest enough this weekend. I don't feel power.
+Today I did a test task for Parkos. It was disgusting. I don't think that I will get this job. It looks like I fell the test. I am not ready for vuejs and nuxtjs as well. I feel how I drown into depression again. I am so tiered. I felt so good since we left EU. I still think about how little time I have for founding a new job. I feel so bad because of it. My mood changes constantly. At the same time I didn't have a rest enough this weekend. I don't feel power. Sometimes I feel so useless.
