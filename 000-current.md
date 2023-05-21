@@ -76,7 +76,7 @@ Today I was working for whole day and it was nice. I am really tiered but satisf
 
 This day was quite heavy. I'm really tiered and I really want to have a rest. luckily it's friday. We will got to Fethiye tomorrow. We want to visit supermarket and just walk around. It's big town up north from Kash. I like that place as well. It was my first place for relatively long staying here in Turkey. From job perspective I did a lot of things. I don't want to write a lot of words today. I will just go and relax.
 
-# 20 May - Friday - Kaş - Fethiye - 234 day of immigration
+# 20 May - Saturday - Kaş - Fethiye - 234 day of immigration
 
 Today we were in Fethie which is nice place. I like this city very much. Ksusha doesn't like this place and this is rare situation when our preferables are different. The car that we rented issued today. In some moment is just stopped working. Fortunately I asked help to some locals and they did it. They called to renting company and they just asked to reboot cars brain. I am happy of it. I also did some programming that is amazing. I need to do some test for Parkos. I hope I will do it well but let see. I don't know what to expect. I did some preparations and them should help. At the same time I am quite tiered of today. I got some wine and the hadeacke is suffered me in the morning. So, I don't drink alcohol usually due to it. I consider this as addiction that should be defeted in human society. So, Now I will go to sleep.
 
