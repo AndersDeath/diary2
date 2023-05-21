@@ -80,4 +80,4 @@ This day was quite heavy. I'm really tiered and I really want to have a rest. lu
 
 Today we were in Fethie which is nice place. I like this city very much. Ksusha doesn't like this place and this is rare situation when our preferables are different. The car that we rented issued today. In some moment is just stopped working. Fortunately I asked help to some locals and they did it. They called to renting company and they just asked to reboot cars brain. I am happy of it. I also did some programming that is amazing. I need to do some test for Parkos. I hope I will do it well but let see. I don't know what to expect. I did some preparations and them should help. At the same time I am quite tiered of today. I got some wine and the hadeacke is suffered me in the morning. So, I don't drink alcohol usually due to it. I consider this as addiction that should be defeted in human society. So, Now I will go to sleep.
 
-# 21 May - Sat
+# 21 May - Sunday - Kaş - 235 day of immigration
