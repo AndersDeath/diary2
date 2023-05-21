@@ -82,4 +82,4 @@ Today we were in Fethie which is nice place. I like this city very much. Ksusha 
 
 # 21 May - Sunday - Kaş - 234 day of immigration
 
-Today I did a test task for Parkos. It was disgusting.
+Today I did a test task for Parkos. It was disgusting. I don't think that I will get this job.
