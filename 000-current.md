@@ -86,4 +86,4 @@ Today I did a test task for Parkos. It was disgusting. I don't think that I will
 
 # 22 May - Monday - Kaş - 235 day of immigration
 
-I finally tested stable diffusion today. The result is amazing. I didn't expect so easy process. I like it. Probably I will start my own blog somewhere about picture generation. Maybe I event start using medium blog for it. I think It might be considered as generative art. I also was working a lot on mircofrontend setup, I will finish with this task tomorrow.
+I finally tested stable diffusion today. The result is amazing. I didn't expect so easy process. I like it. Probably I will start my own blog somewhere about picture generation. Maybe I event start using medium blog for it. I think It might be considered as generative art. I also was working a lot on microfrontend setup, I will finish with this task tomorrow.
