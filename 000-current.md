@@ -86,4 +86,4 @@ Today I did a test task for Parkos. It was disgusting. I don't think that I will
 
 # 22 May - Monday - Kaş - 235 day of immigration
 
-I finally tested stable diffusion today. The result is amazing. I didn't expect so easy process.
+I finally tested stable diffusion today. The result is amazing. I didn't expect so easy process. 
