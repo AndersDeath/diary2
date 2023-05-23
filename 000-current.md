@@ -89,3 +89,5 @@ Today I did a test task for Parkos. It was disgusting. I don't think that I will
 I finally tested stable diffusion today. The result is amazing. I didn't expect so easy process. I like it. Probably I will start my own blog somewhere about picture generation. Maybe I event start using medium blog for it. I think It might be considered as generative art. I also was working a lot on microfrontend setup, I will finish with this task tomorrow. I also was working in Readme project because I finished with nuxtjs pain and it's not necessary to feel pain of it. I also release holy-theory which is amazing. I didn't have a lot of time for working in it last week. I hope to have nice week. Happy monday mother fuckers
 
 # 23 May - Tuesday - Kaş - 236 day of immigration
+
+Today I feel good.
