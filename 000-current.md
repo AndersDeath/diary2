@@ -90,4 +90,4 @@ I finally tested stable diffusion today. The result is amazing. I didn't expect 
 
 # 23 May - Tuesday - Kaş - 236 day of immigration
 
-Today I feel good. I hate this mood carousel. It's annoying when you feel good one day and terrible on the next one. I try not to moan, but cannot stop. I had an interview with one company today and I don't know what to expect from them. It looks like they want to have a person onsite that is already in Berlin. Unfortunately I'm not there.
+Today I feel good. I hate this mood carousel. It's annoying when you feel good one day and terrible on the next one. I try not to moan, but cannot stop. I had an interview with one company today and I don't know what to expect from them. It looks like they want to have a person onsite that is already in Berlin. Unfortunately I'm not there. I also did yoga and some stetching.
