@@ -94,4 +94,4 @@ Today I feel good. I hate this mood carousel. It's annoying when you feel good o
 
 # 24 May - Tuesday - Kaş - 237 day of immigration
 
-I had a nice call with Cobe company that pitched some solution for DR SMILE. It was my first such experience. I'm happy to see it. Also I did some cool stuff during the day. it related to programming mostly. Yesterday I realized that it will be nice to share more personal thoughts here. This diary became some kind of report but I didn't start it for this purposes. I wanted to share more personal things here.s
+I had a nice call with Cobe company that pitched some solution for DR SMILE. It was my first such experience. I'm happy to see it. Also I did some cool stuff during the day. it related to programming mostly. Yesterday I realized that it will be nice to share more personal thoughts here. This diary became some kind of report but I didn't start it for this purposes. I wanted to share more personal things here. So, Today I rearranged my sport approach.
