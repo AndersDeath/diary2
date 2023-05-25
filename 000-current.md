@@ -98,4 +98,4 @@ I had a nice call with Cobe company that pitched some solution for DR SMILE. It 
 
 # 25 May - Thursday - Kaş - 238 day of immigration
  
-This day was good but I feel how I tiered. So, In general nothing happened interesting today. I was coding a lot, tried to finish all my tasks and some extra. My mood is good I cannot complain about it.
+This day was good but I feel how I tiered. So, In general nothing happened interesting today. I was coding a lot, tried to finish all my tasks and some extra. My mood is good I cannot complain about it. I still think a lot about my future and what I can do with all this situation that happens around.
