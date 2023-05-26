@@ -102,4 +102,4 @@ This day was good but I feel how I tiered. So, In general nothing happened inter
 
 # 26 May - Friday - Kaş - 239 day of immigration
 
-Today I did a lot of things but mostly I played with ai tools. Andrey Odintsov advised me deliberate model which is different. It generates amazing pictures without any difficulties. It's cool. I also have to start editing of the video tomorrow. I avoid it as I can. The latest trip was so hard that I don't want to come back to it. I feel much better after starting of stretching excessive.
+Today I did a lot of things but mostly I played with ai tools. Andrey Odintsov advised me deliberate model which is different. It generates amazing pictures without any difficulties. It's cool. I also have to start editing of the video tomorrow. I avoid it as I can. The latest trip was so hard that I don't want to come back to it. I feel much better after starting of stretching exercises.
