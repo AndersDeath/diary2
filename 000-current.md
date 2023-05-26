@@ -102,3 +102,4 @@ This day was good but I feel how I tiered. So, In general nothing happened inter
 
 # 26 May - Friday - Kaş - 239 day of immigration
 
+Today I did a lot of things but mostly I played with ai tools.
