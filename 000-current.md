@@ -105,3 +105,5 @@ This day was good but I feel how I tiered. So, In general nothing happened inter
 Today I did a lot of things but mostly I played with ai tools. Andrey Odintsov advised me deliberate model which is different. It generates amazing pictures without any difficulties. It's cool. I also have to start editing of the video tomorrow. I avoid it as I can. The latest trip was so hard that I don't want to come back to it. I feel much better after starting of stretching exercises. Parkos rejected me that is bad news but not so. I also try to concentrate my effort to positive direction. I recalled about stoic philosophy and I try to keep it.
 
 # 26 May - Saturday - Kaş - 240 day of immigration
+
+Today I had a really nice weekend day. We were at nice ruined hotel on peninsula in Kash. I liked to walk there and tool a lot of nice photos. 
