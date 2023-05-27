@@ -106,4 +106,4 @@ Today I did a lot of things but mostly I played with ai tools. Andrey Odintsov a
 
 # 26 May - Saturday - Kaş - 240 day of immigration
 
-Today I had a really nice weekend day. We were at nice ruined hotel on peninsula in Kash. I liked to walk there and tool a lot of nice photos. 
+Today I had a really nice weekend day. We were at nice ruined hotel on peninsula in Kash. I liked to walk there and tool a lot of nice photos. Then we trie to find a beach that is in so hard to reach place that we decided no to try doing it. THe we drove to Kalkan city and walked there.
