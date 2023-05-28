@@ -110,4 +110,4 @@ Today I had a really nice weekend day. We were at nice ruined hotel on peninsula
 
 # 28 May - Sunday - Kaş - 241 day of immigration
 
-I had a horrible night. It was a thunderstorm this night. IT was extreme noise. and mosquitos bit me.
+I had a horrible night. It was a thunderstorm this night. IT was extreme noise. Additionally mosquitos bit me for whole night.
