@@ -114,4 +114,4 @@ I had a horrible night. It was a thunderstorm this night. IT was extreme noise. 
 
 # 29 May - Monday - Kaş - 242 day of immigration
 
-I was programming for whole day. The main problem was how to run angular microfrontend with ngrx itself. It's really hard and I didn't resolved this problem yet. After that I spent some time with chatgpt. I figured out that it works well now. It's really nice. I can start using it on daily basis.
+I was programming for whole day. The main problem was how to run angular microfrontend with ngrx itself. It's really hard and I didn't resolved this problem yet. After that I spent some time with chatgpt. I figured out that it works well now. It's really nice. I can start using it on daily basis. In combination with stable diffusion I can generate interesting materials for my blog.
