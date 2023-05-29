@@ -113,3 +113,5 @@ Today I had a really nice weekend day. We were at nice ruined hotel on peninsula
 I had a horrible night. It was a thunderstorm this night. IT was extreme noise. Additionally mosquitos bit me for whole night. Despite this fact the day was nice. Unfortunately I am tiered because of bad night but nevermind. I also improved holy theory finally. I'm glad that I found atime for it. In general I try to be in normal today. Especially in the mood sense. It's really hard to keep mind in norma. so, I will go and do yoga in 5 minutes. I think it will help me a lot in my mood. After that I will call my mother and start watching the 7th season of Friends.
 
 # 29 May - Monday - Kaş - 242 day of immigration
+
+I was programming for whole day.
