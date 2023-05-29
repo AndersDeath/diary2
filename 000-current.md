@@ -114,4 +114,4 @@ I had a horrible night. It was a thunderstorm this night. IT was extreme noise. 
 
 # 29 May - Monday - Kaş - 242 day of immigration
 
-I was programming for whole day.
+I was programming for whole day. The main problem was how to run angular microfrontend with ngrx itself.
