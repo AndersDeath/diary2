@@ -116,6 +116,6 @@ I had a horrible night last night. There was a thunderstorm, and the noise was e
 
 I programmed the whole day, tackling the main issue of running an Angular microfrontend with ngrx itself. It's proven to be quite challenging, and I haven't resolved this problem yet. Later on, I spent some time with ChatGPT and discovered that it's working well now. That's really nice because I can start using it on a daily basis. In combination with stable diffusion, I can generate interesting content for my blog. The chat feature can greatly assist me in editing my texts. I plan to write more articles for my Medium blog soon and having good tools to help me will be essential. I edited previous day and text that is before this sentence in chatgpt. It think use see the difference. I amazed really. Tomorrow I will work a lot on different complex features. I feel like I'm already tiered =). 
 
-# 30 May - Monday - Kaş - 243 day of immigration
+# 30 May - Monday - Kaş - 243 day of immigrationc
 
-I proceeded using chatgpt today and it helped me a lot in prepearing things 
+I proceeded using chatgpt today and it helped me a lot in preparing to interview and materials to 
