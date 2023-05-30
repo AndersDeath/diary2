@@ -118,4 +118,4 @@ I programmed the whole day, tackling the main issue of running an Angular microf
 
 # 30 May - Monday - Kaş - 243 day of immigrationc
 
-I proceeded using chatgpt today and it helped me a lot in preparing to interview and materials to 
+I proceeded using chatgpt today and it helped me a lot in preparing to interview and materials to holy theory.
