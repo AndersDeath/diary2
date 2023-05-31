@@ -122,4 +122,4 @@ I proceeded using chatgpt today and it helped me a lot in preparing to interview
 
 # 31 May - Wednesday - Kaş - 244 day of immigration
 
-I thought a lot today about the fact that only we can understand us well. I mean that nobody can understand real motivation and stuff that happens inside in our minds. I would be curious to know what Ksusha things about herself.
+I thought a lot today about the fact that only we can understand us well. I mean that nobody can understand real motivation and stuff that happens inside in our minds. I would be curious to know what Ksusha things about herself. Surely she can tell me, but I don't think that I can undersand the real picture.
