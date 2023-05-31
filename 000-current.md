@@ -121,3 +121,5 @@ I programmed the whole day, tackling the main issue of running an Angular microf
 I proceeded using chatgpt today and it helped me a lot in preparing to interview and materials to holy theory. I like it. At the same time I still need to do some writings today. From another side I sill feel good that is cool. We do start applying positions for senior engineers that might me another way to immigrate. At the same time we decided to rent an apartments in Yerevan for one year. I'm tiered of moving from place to place. Apparently I cannot find job fast. It's hard. Neverthenless I try to do my best for my future. I started diving into AI stuff and hopefully it will become my main instrument for holy theory and stuff. I really expect evolution of my productivity. However I will see.
 
 # 31 May - Wednesday - Kaş - 244 day of immigration
+
+I thought a lot today about the fact that only we can understand us well.
