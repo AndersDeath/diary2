@@ -1,3 +1,3 @@
 # 01 June - Thursday - Kaş - 245 day of immigration
 
-Someone found my github with tons of commits and deicide that I don't do job and just push something to repositories. It's something new in my career. I considered it as a risk when I started doing this project. I mean holy theory project. I don't care what others think about it. I'm completely tiered of this stuff and I cannot carry it anymore.
+Someone found my github with tons of commits and deicide that I don't do job and just push something to repositories. It's something new in my career. I considered it as a risk when I started doing this project. I mean holy theory project. I don't care what others think about it. I'm completely tiered of this stuff and I cannot carry it anymore. Maybe I think a lot more about it that I should.
