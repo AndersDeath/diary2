@@ -4,4 +4,4 @@ Someone found my github with tons of commits and deicide that I don't do job and
 
 # 02 June - Friday - Kaş - 246 day of immigration
 
-I talked to Fedor today. He is absolutely ok with things that I do. On Monday I will talk to Olga about my activities and try to resolve the situation. It's really hard to do anything when you have doubts. However I had a nice call with one startup today which has cool conception and I want to try myself in the next interview. Surprisingly they support relocation which is amazing.
+I talked to Fedor today. He is absolutely ok with things that I do. On Monday I will talk to Olga about my activities and try to resolve the situation. It's really hard to do anything when you have doubts. However I had a nice call with one startup today which has cool conception and I want to try myself in the next interview. Surprisingly they support relocation which is amazing. I hope that I will pass an interview with them because the process is quite simple.
