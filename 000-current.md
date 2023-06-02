@@ -4,4 +4,4 @@ Someone found my github with tons of commits and deicide that I don't do job and
 
 # 02 June - Friday - Kaş - 246 day of immigration
 
-I talked to Fedor today.
+I talked to Fedor today. He is absolutely ok with things 
