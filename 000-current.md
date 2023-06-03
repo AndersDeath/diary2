@@ -8,4 +8,4 @@ I talked to Fedor today. He is absolutely ok with things that I do. On Monday I 
 
 # 03 June - Saturday - Kaş - 247 day of immigration
 
-Today I tried to record pppodcast. For some reasons the sound recorded poor and I should to redo it without external mic. At the same time it's the last saturday in this trip to Turkey. We were on beautiful beach. The weather is quite windy today and we didn't swim. Actually we didn't swim at all due to the weather. It's not so good as last year. However I spent great time on it. I was thinking a lot about programming again.
+Today I tried to record pppodcast. For some reasons the sound recorded poor and I should to redo it without external mic. At the same time it's the last saturday in this trip to Turkey. We were on beautiful beach. The weather is quite windy today and we didn't swim. Actually we didn't swim at all due to the weather. It's not so good as last year. However I spent great time on it. I was thinking a lot about programming again. I do pretty well in this area for the last time.
