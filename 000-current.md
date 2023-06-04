@@ -12,4 +12,4 @@ Today I tried to record pppodcast. For some reasons the sound recorded poor and 
 
 # 04 June - Sunday - Kaş - 248 day of immigration
 
-This day was nice. We had a nice walk in the town and on peninsula. The weather was extremely hot. All people went to beach and it was impossible to fide a place for freshing up. At the same time I did nothing and just had a rest. On Tuesday night I will be already in Yerevan.
+This day was nice. We had a nice walk in the town and on peninsula. The weather was extremely hot. All people went to beach and it was impossible to fide a place for freshing up. At the same time I did nothing and just had a rest. On Tuesday night I will be already in Yerevan. I want to come back to the city.
