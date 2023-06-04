@@ -12,4 +12,4 @@ Today I tried to record pppodcast. For some reasons the sound recorded poor and 
 
 # 04 June - Sunday - Kaş - 248 day of immigration
 
-This day was nice.
+This day was nice. We had a nice walk in the town and on peninsula.
