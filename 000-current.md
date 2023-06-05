@@ -16,4 +16,4 @@ This day was nice. We had a nice walk in the town and on peninsula. The weather 
 
 # 05 June - Monday - Kaş - 249 day of immigration
 
-Today I had a nice talk to Olga about the situation with Holy Theory.
+Today I had a nice talk to Olga about the situation with Holy Theory. I will do the next talk with my team tomorrow.
