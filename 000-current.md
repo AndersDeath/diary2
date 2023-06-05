@@ -16,4 +16,4 @@ This day was nice. We had a nice walk in the town and on peninsula. The weather 
 
 # 05 June - Monday - Kaş - 249 day of immigration
 
-Today I had a nice talk to Olga about the situation with Holy Theory. I will do the next talk with my team tomorrow. I gonna share the information about it and try to convince them that this project is absolutely side. At the same time today the last full day in Kash for us. WE are going to Yerevan tomorrow. We will be there in the middle of the night. I'm happy to come back to Yerevan. We are going to rent an apartments for long term. I want to collect some money until the autumn starts.
+Today I had a nice talk to Olga about the situation with Holy Theory. I will do the next talk with my team tomorrow. I gonna share the information about it and try to convince them that this project is absolutely side. At the same time today the last full day in Kash for us. WE are going to Yerevan tomorrow. We will be there in the middle of the night. I'm happy to come back to Yerevan. We are going to rent an apartments for long term. I want to collect some money until the autumn starts. This savings will be nice in case of relocation.
