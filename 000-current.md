@@ -20,4 +20,4 @@ Today I had a nice talk to Olga about the situation with Holy Theory. I will do 
 
 # 06 June - Tuesday - Kaş - Antalia - 250 day of immigration
 
-So, I am sitting in Antalia airport now. We arrived and check out the car successfully. I got my 200 euros back.
+So, I am sitting in Antalia airport now. We arrived and check out the car successfully. I got my 200 euros back. It's so cool people.
