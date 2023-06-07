@@ -24,4 +24,4 @@ So, I am sitting in Antalia airport now. We arrived and check out the car succes
 
 # 07 June - Tuesday - Yerevan - 251 day of immigration
 
-I'm here again. The apartment is nice.
+I'm here again. The apartment is nice. I live exactly in the city center.
