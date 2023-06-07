@@ -24,4 +24,4 @@ So, I am sitting in Antalia airport now. We arrived and check out the car succes
 
 # 07 June - Tuesday - Yerevan - 251 day of immigration
 
-I'm here again. The apartment is nice. I live exactly in the city center. I did some x-ray puctures this morning. I'm ready for surgery that'll happen on Friday. It'll be hard, but I really want my teeth back. I also had a technical interview with some guy. I hope to get some feedback soon. Maybe we will proceed working with him, maybe not. I have no idea. It will be understandable later. I'm so tiered today. The flight wasn't in the middle of the night, but still.
+I'm here again. The apartment is nice. I live exactly in the city center. I did some x-ray puctures this morning. I'm ready for surgery that'll happen on Friday. It'll be hard, but I really want my teeth back. I also had a technical interview with some guy. I hope to get some feedback soon. Maybe we will proceed working with him, maybe not. I have no idea. It will be understandable later. I'm so tiered today. The flight wasn't in the middle of the night, but still. Fun thing is that only few people were in the airplane.
