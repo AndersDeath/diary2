@@ -28,4 +28,4 @@ I'm here again. The apartment is nice. I live exactly in the city center. I did 
 
 # 08 June - Thursday - Yerevan - 252 day of immigration
 
-So, I was working for whole day.
+So, I was working for whole day as usual.
