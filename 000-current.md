@@ -32,4 +32,4 @@ So, I was working for whole day as usual. I wrote code and did some other import
 
 # 09 June - Friday - Yerevan - 253 day of immigration
 
-Today I got surgery and 6 gum formers. Everything is nice now but I feel bad. I have no power. However I did all things from my todolist. I cancelled sport and some other things.
+Today I got surgery and 6 (six) gum formers. Everything is nice now but I feel bad. I have no power. However I did all things from my todolist. I cancelled sport and some other things. 
