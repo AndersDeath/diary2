@@ -36,4 +36,4 @@ Today I got surgery and 6 (six) gum formers. Everything is nice now but I feel b
 
 # 10 June - Saturday - Yerevan - 254 day of immigration
 
-I watched new spider man animated movie today. The plot is super stupid but animation is amazing. we also walked around the city center today.
+I watched new spider man animated movie today. The plot is super stupid but animation is amazing. we also walked around the city center today. It was
