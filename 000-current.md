@@ -35,3 +35,5 @@ So, I was working for whole day as usual. I wrote code and did some other import
 Today I got surgery and 6 (six) gum formers. Everything is nice now but I feel bad. I have no power. However I did all things from my todolist. I cancelled sport and some other things. I was lying in the bad for the half of day. This is a main point for this day. Tommorow we will go for a walk and to do some other cool stuff. I really want this weekend. The monday is also day off. It will be day of Russia or something like this. Actually I don't have a lot of updated today. Maybe only that I also got an appointment in dentist clinic in 10 days. We will start doing my new teeth. I suppose to have new stiff in 2 or 3 weeks.
 
 # 10 June - Saturday - Yerevan - 254 day of immigration
+
+I watched new spider man animated movie today.
