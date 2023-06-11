@@ -40,4 +40,4 @@ I watched new spider man animated movie today. The plot is super stupid but anim
 
 # 11 June - Sunday - Yerevan - 255 day of immigration
 
-This sunday is amazing. I did a lot of things I red a book, learned Spanish, wrote articles. Nice day is general. Ksusha recorded her the first blog video which is nice. I think she has everything for doing great videos without any problems. She can speak well. She looks great. She is smart.
+This sunday is amazing. I did a lot of things I red a book, learned Spanish, wrote articles. Nice day is general. Ksusha recorded her the first blog video which is nice. I think she has everything for doing great videos without any problems. She can speak well. She looks great. She is smart. I really love her.
