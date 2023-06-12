@@ -44,4 +44,4 @@ This sunday is amazing. I did a lot of things I red a book, learned Spanish, wro
 
 # 12 June - Monday - Yerevan - 256 day of immigration
 
-Today is dayoff.
+Today is dayoff. I was working on my things for a whole day.
