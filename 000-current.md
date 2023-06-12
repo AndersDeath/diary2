@@ -44,4 +44,4 @@ This sunday is amazing. I did a lot of things I red a book, learned Spanish, wro
 
 # 12 June - Monday - Yerevan - 256 day of immigration
 
-Today is dayoff. I was working on my things for a whole day. It was nice. I finished russian version of article about Holy Theory. This is amazing because I need to publish much more texts on my blog. 
+Today is dayoff. I was working on my things for a whole day. It was nice. I finished russian version of article about Holy Theory. This is amazing because I need to publish much more texts on my blog. I think that I finally got in what role I feel better.
