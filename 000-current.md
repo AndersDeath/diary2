@@ -48,4 +48,4 @@ Today is dayoff. I was working on my things for a whole day. It was nice. I fini
 
 # 13 June - Tuesday - Yerevan - 257 day of immigration
 
-Today I visited barbershop which is amazing.
+Today I visited barbershop which is amazing. My gum still pains. I hope that this shit will be better at the end of the week.
