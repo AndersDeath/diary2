@@ -52,4 +52,4 @@ Today I visited barbershop which is amazing. My gum still pains. I hope that thi
 
 # 14 June - Wednesday - Yerevan - 258 day of immigration
 
-Today I had another interview with Doctoflix. I went nice.
+Today I had another interview with Doctoflix. I went nice. The rest of the day I was programming and making some usual things.
