@@ -56,3 +56,5 @@ Today I had another interview with Doctoflix. I went nice. The rest of the day I
 
 
 # 15 June - THursday - Yerevan - 259 day of immigration
+
+The situation is that I have much more interivews 
