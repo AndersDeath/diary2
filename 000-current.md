@@ -53,3 +53,6 @@ Today I visited barbershop which is amazing. My gum still pains. I hope that thi
 # 14 June - Wednesday - Yerevan - 258 day of immigration
 
 Today I had another interview with Doctoflix. I went nice. The rest of the day I was programming and making some usual things. Todoist is amazing tool that helps we on daily basis and it's amazing. my gum pains. It's awful. In general I so calm now. I don't know why but I feel better. I still miss home but it's not so painful. maybe if I go to Russia I will feel bad. But I don't have such plans. Maybe in one of two years I will go to Russia. It's so unclear. I forgot to say I had another interivew with huge company for backend position. It will be unusual code assessment I suppose. I will try to do my best but I don't thing that It will be ok. I just want to try and made notes about BE interview questions.
+
+
+# 15 June - THursday - Yerevan - 259 day of immigration
