@@ -57,4 +57,4 @@ Today I had another interview with Doctoflix. I went nice. The rest of the day I
 
 # 15 June - THursday - Yerevan - 259 day of immigration
 
-The situation is that I have much more interivews for engineering positions that for managerial. It's not a surprise but still. I had one interivew today and scheduled a couple more for the next week. It's crazy contrast to management positions.
+The situation is that I have much more interivews for engineering positions that for managerial. It's not a surprise but still. I had one interivew today and scheduled a couple more for the next week. It's crazy contrast to management positions. I also was programming for whole day.
