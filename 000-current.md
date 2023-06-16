@@ -60,4 +60,4 @@ The situation is that I have much more interivews for engineering positions that
 
 # 16 June - Friday - Yerevan - 260 day of immigration
 
-Today I had a lot of meeting. It was crazy. I almost didn't have time to work. Gum still pains. I have only three days for 
+Today I had a lot of meeting. It was crazy. I almost didn't have time to work. Gum still pains. I have only three days for treating it.
