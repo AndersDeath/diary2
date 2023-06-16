@@ -60,4 +60,4 @@ The situation is that I have much more interivews for engineering positions that
 
 # 16 June - Friday - Yerevan - 260 day of immigration
 
-Today I had a lot of meeting. It was crazy. I almost didn't have time to work. Gum still pains. I have only three days for treating it. Tomorrow is day when I can eat everything I want. I am happy. At the same time I extremely tiered. I just want to sleep. I really need to finish with video this weekend. I will wake up early and start working on it. I also need to finish translation of the article about holy theory.
+Today I had a lot of meeting. It was crazy. I almost didn't have time to work. Gum still pains. I have only three days for treating it. Tomorrow is day when I can eat everything I want. I am happy. At the same time I extremely tiered. I just want to sleep. I really need to finish with video this weekend. I will wake up early and start working on it. I also need to finish translation of the article about holy theory. 
