@@ -64,4 +64,4 @@ Today I had a lot of meeting. It was crazy. I almost didn't have time to work. G
 
 # 17 June - Saturday - Yerevan - 261 day of immigration
 
-Well, today I did almost nothing. I learned languages, programmed a bit, 
+Well, today I did almost nothing. I learned languages, programmed a bit, eat burger an
