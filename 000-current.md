@@ -64,4 +64,4 @@ Today I had a lot of meeting. It was crazy. I almost didn't have time to work. G
 
 # 17 June - Saturday - Yerevan - 261 day of immigration
 
-Well, today I did almost nothing. I learned languages, programmed a bit, eat burger and crousan. i forgot about pizza and cup of coffee. Yesterday I recall about the fact that I studied finnish language at school. This is so cool. Just for a record Finnish is one of languages that I would like to know.
+Well, today I did almost nothing. I learned languages, programmed a bit, eat burger and crousan. i forgot about pizza and cup of coffee. Yesterday I recall about the fact that I studied finnish language at school. This is so cool. Just for a record Finnish is one of languages that I would like to know. I am not crazy only about Spanish
