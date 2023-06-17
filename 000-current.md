@@ -63,3 +63,5 @@ The situation is that I have much more interivews for engineering positions that
 Today I had a lot of meeting. It was crazy. I almost didn't have time to work. Gum still pains. I have only three days for treating it. Tomorrow is day when I can eat everything I want. I am happy. At the same time I extremely tiered. I just want to sleep. I really need to finish with video this weekend. I will wake up early and start working on it. I also need to finish translation of the article about holy theory. I spent so much time on meetings this week that it's something crazy. Moreover I will have more meetings next week. On sunday I need to investigate shares/equities topics. Ksusha found nice articles about it. I hope it'll be easy.
 
 # 17 June - Saturday - Yerevan - 261 day of immigration
+
+Well, today I did almost nothing
