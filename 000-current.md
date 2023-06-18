@@ -68,4 +68,4 @@ Well, today I did almost nothing. I learned languages, programmed a bit, eat bur
 
 # 18 June - Sunday - Yerevan - 262 day of immigration
 
-Another Sunday, another week finished. It's so weird how live goes fast. Something happens every day and doing life different. Today we just did some cool things and went for a walk. I changed a bit my plans and decided to dive deeper into MERN stack.
+Another Sunday, another week finished. It's so weird how live goes fast. Something happens every day and doing life different. Today we just did some cool things and went for a walk. I changed a bit my plans and decided to dive deeper into MERN stack or something similar,
