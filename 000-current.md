@@ -68,4 +68,4 @@ Well, today I did almost nothing. I learned languages, programmed a bit, eat bur
 
 # 18 June - Sunday - Yerevan - 262 day of immigration
 
-Another Sunday, another week finished.
+Another Sunday, another week finished. It's so weird how live goes fast.
