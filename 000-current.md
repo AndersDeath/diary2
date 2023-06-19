@@ -72,4 +72,4 @@ Another Sunday, another week finished. It's so weird how live goes fast. Somethi
 
 # 19 June - Monday - Yerevan - 263 day of immigration
 
-i was in clinic today. unfortunately my gum isn't ready and I have to postpone the operation until friday.
+i was in clinic today. unfortunately my gum isn't ready and I have to postpone the operation until friday. It's really sad but I hae to wait. I was working a lot on other things today including the article about holy theory.
