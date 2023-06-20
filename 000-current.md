@@ -76,4 +76,4 @@ i was in clinic today. unfortunately my gum isn't ready and I have to postpone t
 
 # 20 June - Tuesday - Yerevan - 264 day of immigration
 
-Today I tried to fix Btrise building issue again. I think that it's one of the poorest documented services ever. I had a incredibly huge problems with this system a couple of years ago. It was a traumatic experience. 
+Today I tried to fix Btrise building issue again. I think that it's one of the poorest documented services ever. I had a incredibly huge problems with this system a couple of years ago. It was a traumatic experience.  I also was working on article about holy theory. I have to publish it tomorrow, I got this obligations.
