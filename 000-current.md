@@ -80,4 +80,4 @@ Today I tried to fix Btrise building issue again. I think that it's one of the p
 
 # 21 June - Wednesday - Yerevan - 265 day of immigration
 
-I am so tiered. I had a tech interview. It was hard. I didn't expect this kind of tasks that I got. I think I didn't pass. It was unsuccessful I suppose. It's sad but true. From another side I published an article about Holy Theory. Finally. This is really cool because I was working on it for a quite long time. I hope that it will be useful. In general I did everything I had in my list. I impressed by my productivity. I try to recall when I was in so good pace last time.
+I am so tiered. I had a tech interview. It was hard. I didn't expect this kind of tasks that I got. I think I didn't pass. It was unsuccessful I suppose. It's sad but true. From another side I published an article about Holy Theory. Finally. This is really cool because I was working on it for a quite long time. I hope that it will be useful. In general I did everything I had in my list. I impressed by my productivity. I try to recall when I was in so good pace last time. I think never.
