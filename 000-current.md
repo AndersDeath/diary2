@@ -84,4 +84,4 @@ I am so tiered. I had a tech interview. It was hard. I didn't expect this kind o
 
 # 22 June - Thursday - Yerevan - 266 day of immigration
 
-I got a rejection from yesterdays interviwe. this is sad. I didn't do anything good. I also had another two interivews today. The first company was just a piece of shit. The another one looks very serious.
+I got a rejection from yesterdays interviwe. this is sad. I didn't do anything good. I also had another two interivews today. The first company was just a piece of shit. The another one looks very serious. I like it really.
