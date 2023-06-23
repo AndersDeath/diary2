@@ -88,4 +88,4 @@ I got a rejection from yesterdays interview. this is sad. I didn't do anything g
 
 # 23 June - Friday - Yerevan - 267 day of immigration
 
-I didn't do a lot of things today. but I went to the doctor and he made casts from the jaws for the manufacture of prostheses
+I didn't do a lot of things today. but I went to the doctor and he made casts from the jaws for the manufacture of prostheses this is really amazing. because I will have new teeth soon. This is really cool.
