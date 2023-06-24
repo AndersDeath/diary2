@@ -91,3 +91,5 @@ I got a rejection from yesterdays interview. this is sad. I didn't do anything g
 I didn't do a lot of things today. but I went to the doctor and he made casts from the jaws for the manufacture of prostheses this is really amazing. because I will have new teeth soon. This is really cool. I cannot wait for it. I'm so tiered of such disability. I suppose that one day I will  have all teeth replaced. Sometimes I wish it faster. I also did some learning stuff today. It was cool and short. So, in general the day was nice. I still have a lot of doubts about looking for a job, but in general everything is nice. I also had a short call with Nastya today. I can say that I miss her. She prepares our things for moving to another apartments. I miss my home. I still cannot feel home here fully. It's still immigration but not a calm living with bright thoughts about future. Maybe one day I will feel better. I don't know. Now it seems impossible.
 
 # 24 June - Saturday - Yerevan - 268 day of immigration
+
+Last night was interesting.
