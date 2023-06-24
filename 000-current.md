@@ -92,4 +92,4 @@ I didn't do a lot of things today. but I went to the doctor and he made casts fr
 
 # 24 June - Saturday - Yerevan - 268 day of immigration
 
-Last night was interesting. Private army Vagner rioted and occupied Rostov na Donu. these illegal army fight not only with ukrain but also with official ministry of defense. I waited the civil war beginning for whole day but now I we got good news that this army decided to stop moving to Moscow.
+Last night was interesting. Private army Vagner rioted and occupied Rostov na Donu. these illegal army fight not only with ukrain but also with official ministry of defense. I waited the civil war beginning for whole day but now I we got good news that this army decided to stop moving to Moscow. Basically it's good.
