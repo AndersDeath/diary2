@@ -92,4 +92,4 @@ I didn't do a lot of things today. but I went to the doctor and he made casts fr
 
 # 24 June - Saturday - Yerevan - 268 day of immigration
 
-Last night was interesting. Privat army Vagner rioted and occupied Rostov na Donu.
+Last night was interesting. Private army Vagner rioted and occupied Rostov na Donu.
