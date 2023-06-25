@@ -96,4 +96,4 @@ Last night was interesting. Private army Vagner rioted and occupied Rostov na Do
 
 # 25 June - Sunday - Yerevan - 269 day of immigration
 
-We walked a lot today. The weather was very hot. We also found one apartments that we will visit tomorrow. If all good we will rent this place. In general it's not so obvious what we'll see. I paid for Duolingo. I like this app it helps me a lot in learning.
+We walked a lot today. The weather was very hot. We also found one apartments that we will visit tomorrow. If all good we will rent this place. In general it's not so obvious what we'll see. I paid for Duolingo. I like this app it helps me a lot in learning. I will start studying german as well.
