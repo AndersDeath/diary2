@@ -100,4 +100,4 @@ We walked a lot today. The weather was very hot. We also found one apartments th
 
 # 26 June - Monday - Yerevan - 270 day of immigration
 
-I've been in the one apartments today that we might rent.
+I've been in the one apartments today that we might rent. It's nice place not so far from metro
