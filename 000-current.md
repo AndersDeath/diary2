@@ -104,4 +104,4 @@ I've been in the one apartment today that we might rent. It's nice place not so 
 
 # 27 June - Tuesday - Yerevan - 271 day of immigration
 
-Today we looked two apartments. Unfortunately both of the are not good. We rejected them.
+Today we looked two apartments. Unfortunately both of the are not good. We rejected them. I was working for a whole day, had
