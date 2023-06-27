@@ -104,4 +104,4 @@ I've been in the one apartment today that we might rent. It's nice place not so 
 
 # 27 June - Tuesday - Yerevan - 271 day of immigration
 
-Today we looked two apartments. Unfortunately both of the are not good. We rejected them. I was working for a whole day, had several calls and finally started working more on quality of content instead of quantity. I also started investigation of some webcomponents concept. It's important thing that I need to know. It will be an alternative of today's components. Moreover it's interesting topic that I want to investigate. In general the day was nice. The weather is annoying.
+Today we looked two apartments. Unfortunately both of the are not good. We rejected them. I was working for a whole day, had several calls and finally started working more on quality of content instead of quantity. I also started investigation of some webcomponents concept. It's important thing that I need to know. It will be an alternative of today's components. Moreover it's interesting topic that I want to investigate. In general the day was nice. The weather is annoying. It's very hot outside.
