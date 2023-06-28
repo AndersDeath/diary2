@@ -108,4 +108,4 @@ Today we looked two apartments. Unfortunately both of the are not good. We rejec
 
 # 28 June - Wednesday - Yerevan - 272 day of immigration
 
-I was working for a whole day on many things. I felt bad this morning
+I was working for a whole day on many things. I felt bad this morning. I got bad milky coffee yestarday.
