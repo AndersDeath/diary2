@@ -112,4 +112,4 @@ I was working for a whole day on many things. I felt bad this morning. I got bad
 
 # 29 June - Thursday - Yerevan - 273 day of immigration
 
-I was coding today again for whole day. It's usual thing and there is nothing to add. We got a piece of news that CEO in DR SMILE is changed. Currently it's official information. I don't know what we will have soon. I feel uncomfortable. I don't like it. However me and ksusha visited an apartments here in Yerevan. It looks quite good. I suppose that I we will get it. In one hour we will have another apartments check. We will sit into taxi and go to the place.
+I was coding today again for whole day. It's usual thing and there is nothing to add. We got a piece of news that CEO in DR SMILE is changed. Currently it's official information. I don't know what we will have soon. I feel uncomfortable. I don't like it. However me and ksusha visited an apartments here in Yerevan. It looks quite good. I suppose that I we will get it. In one hour we will have another apartments check. We will sit into taxi and go to the place. Basically we want to 
