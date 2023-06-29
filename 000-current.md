@@ -112,4 +112,4 @@ I was working for a whole day on many things. I felt bad this morning. I got bad
 
 # 29 June - Thursday - Yerevan - 273 day of immigration
 
-I was coding today again for whole day. It's usual thing and there is nothing to add.
+I was coding today again for whole day. It's usual thing and there is nothing to add. We got a piece of news that CEO in DR SMILE is changed.
