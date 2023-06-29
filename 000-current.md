@@ -108,5 +108,5 @@ Today we looked two apartments. Unfortunately both of the are not good. We rejec
 
 # 28 June - Wednesday - Yerevan - 272 day of immigration
 
-I was working for a whole day on many things. I felt bad this morning. I got bad milky coffee yestarday. My stomack wasn't good. Tomorrow we will go and look at two apartments. I suppose we can select one of them. Will see. Despite the fact that I was working for whole day and did many things I didn't all that I wanted to finish. I also had two conversations to people. Maybe I even passed an interview with one of the companies. I don't know. Will see. Now the only thing I want is to lie and read book
+I was working for a whole day on many things. I felt bad this morning. I got bad milky coffee yestarday. My stomach wasn't good. Tomorrow we will go and look at two apartments. I suppose we can select one of them. Will see. Despite the fact that I was working for whole day and did many things I didn't all that I wanted to finish. I also had two conversations to people. Maybe I even passed an interview with one of the companies. I don't know. Will see. Now the only thing I want is to lie and read book
 
