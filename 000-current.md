@@ -116,4 +116,4 @@ I was coding today again for whole day. It's usual thing and there is nothing to
 
 # 30 June - Friday - Yerevan - 274 day of immigration
 
-We finally found an apartment today.
+We finally found an apartment today. This is amazing.
