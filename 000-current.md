@@ -116,4 +116,4 @@ I was coding today again for whole day. It's usual thing and there is nothing to
 
 # 30 June - Friday - Yerevan - 274 day of immigration
 
-We finally found an apartment today. This is amazing. The landlord is a French couple. Woman has Armenian root her husband in French. This is nice. I got all advantages of knowing English today. Me and Ksusha just normally talk to them. We are moving to the apartment next saturday. Because of that unexpected thing, I mean signing of a contract, I barely worked today. It's a shame but I cannot avoid it unfortunately.
+We finally found an apartment today. This is amazing. The landlord is a French couple. Woman has Armenian root her husband in French. This is nice. I got all advantages of knowing English today. Me and Ksusha just normally talk to them. We are moving to the apartment next saturday. Because of that unexpected thing, I mean signing of a contract, I barely worked today. It's a shame but I cannot avoid it unfortunately. Also I just calculated that I had 8 (EIGHT) interviews this week. It's a lot.
