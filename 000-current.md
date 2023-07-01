@@ -120,4 +120,4 @@ We finally found an apartment today. This is amazing. The landlord is a French c
 
 # 01 July - Saturday - Yerevan - Gyumri- 275 day of immigration
 
-We were in Gyumri today. We bought tickets to local train in advance and used this transport. IT was nice for about 2 hours trip from Yerevan to Gyumri and the same time back. This city is quite old and had name Adrianapol and Leninakan before. This titles are from Russian empire and USSR accordingly. It is quite nice city that is absolutely perfect for one time visit. I don't think that I will go back to the place. We checked several local cafes and restaraunts, visited
+We were in Gyumri today. We bought tickets to local train in advance and used this transport. IT was nice for about 2 hours trip from Yerevan to Gyumri and the same time back. This city is quite old and had name Adrianapol and Leninakan before. This titles are from Russian empire and USSR accordingly. It is quite nice city that is absolutely perfect for one time visit. I don't think that I will go back to the place. We checked several local cafes and restaraunts, visited several places of interests and had a good time.
