@@ -120,4 +120,4 @@ We finally found an apartment today. This is amazing. The landlord is a French c
 
 # 01 July - Saturday - Yerevan - Gyumri- 275 day of immigration
 
-We were in Gyumri today.
+We were in Gyumri today. We bought tickets to local train in advance and used this transport
