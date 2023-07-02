@@ -4,4 +4,4 @@ We were in Gyumri today. We bought tickets to local train in advance and used th
 
 # 02 July - Saturday - Yerevan - 276 day of immigration
 
-I started learning fastapi today. It's python's library that help to do simple api's
+I started learning fastapi today. It's python's library that help to do simple api's. I really want to learn this language despite the fact that I hated it before.
