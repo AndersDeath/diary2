@@ -6,4 +6,4 @@ We were in Gyumri today. We bought tickets to local train in advance and used th
 
 I started learning fastapi today. It's python's library that help to do simple api's. I really want to learn this language despite the fact that I hated it before. Anyway I need to push my brain to think and analyze a new information. This is important. I also prepared some materials for the future test task that I need to finish withing the next two days. I will wake up much earlier because of it. The next week will be hard because I really need to do much more than usual. First of all I need to finish a lot of DR SMILE's tasks. Second of all I need to be prepared to interviews. And finally I need to increase a holy theory developing pace. Now it's silly. I am not satisfied by it. At the same time we will live in another apartments soon and this is amazing. The rest of the day we were walking and went shopping. I bought shower gel and eyeglass frame online. It will be here soon and I will go to optica and do new glasses. My current onces are not so good anymore. 
 
-# 03 July - 
+# 03 July - Monday - Yerevan - 277 day of immigration
