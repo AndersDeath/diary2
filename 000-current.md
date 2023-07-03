@@ -8,4 +8,4 @@ I started learning fastapi today. It's python's library that help to do simple a
 
 # 03 July - Monday - Yerevan - 277 day of immigration
 
-So, I was investigating python fastapi framework, reactflow and some other things. I did it because I need to finish some tasks soon.
+So, I was investigating python fastapi framework, reactflow and some other things. I did it because I need to finish some tasks soon. At the same time I had a nice conversation with Fedor head of engineering.
