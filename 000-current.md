@@ -11,3 +11,5 @@ I started learning fastapi today. It's python's library that help to do simple a
 So, I was investigating python Fast Api framework, react flow and some other things. I did it because I need to finish some tasks soon. At the same time I had a nice conversation with Fedor head of engineering. I asked some questions and got some answers. I have something to think right now. I am very tiered today and feel lack of energy. I cannot explain what happened but I feel bad. Maybe tomorrow I will be better I don't know. Right now the life is not so nice as before. But before it also wasn't so nice. Sitting in the place that you don't want to sit is sucks. Every time when I think that I am ok I understand that actually not. Shitty shit is still here. I hate it. I want my life to be changed to better direction. Doctoflix didn't answer anything to me. It's absolutely disappointment moment. I expected nice attitude but I see that they are shit.
 
 # 04 July - Tuesday - Yerevan - 278 day of immigration
+
+Today I had two shitty interview that I think it was waste of time. 
