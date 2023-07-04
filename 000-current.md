@@ -12,4 +12,4 @@ So, I was investigating python Fast Api framework, react flow and some other thi
 
 # 04 July - Tuesday - Yerevan - 278 day of immigration
 
-Today I had two shitty interview that I think it was waste of time. I am in bad mood for the last days. So, I was programming for whole day. I still tried to fin ways how to finish with test task for one company.
+Today I had two shitty interview that I think it was waste of time. I am in bad mood for the last days. So, I was programming for whole day. I still tried to fin ways how to finish with test task for one company. Tomorrow is the latest day when I can do it.
