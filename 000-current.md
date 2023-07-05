@@ -16,4 +16,4 @@ Today I had two shitty interview that I think it was waste of time. I am in bad 
 
 # 05 July - Wednesday - Yerevan - 279 day of immigration
 
-I'm extremely tiered today.
+I'm extremely tiered today. I slept horrible.
