@@ -16,4 +16,4 @@ Today I had two shitty interview that I think it was waste of time. I am in bad 
 
 # 05 July - Wednesday - Yerevan - 279 day of immigration
 
-I'm extremely tiered today. I slept horrible. It was headache and I was able to sleep only after taking a pill. For whole day I was fighting to nextjs framework. It was hard and annoying thing. I needed to do it in order to make a coding test for one of the companies.
+I'm extremely tiered today. I slept horrible. It was headache and I was able to sleep only after taking a pill. For whole day I was fighting to nextjs framework. It was hard and annoying thing. I needed to do it in order to make a coding test for one of the companies. I hope everything will be good.
