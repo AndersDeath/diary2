@@ -15,3 +15,5 @@ So, I was investigating python Fast Api framework, react flow and some other thi
 Today I had two shitty interview that I think it was waste of time. I am in bad mood for the last days. So, I was programming for whole day. I still tried to fin ways how to finish with test task for one company. Tomorrow is the latest day when I can do it. I need to wake up earlier that usual for this purposes. Flow framework looks very interesting. I hope that tomorrow I will finish with it and switch to python back. Now I just want to have a rect and do nothing for a couple hours.
 
 # 05 July - Wednesday - Yerevan - 279 day of immigration
+
+I'm extremely tiered today.
