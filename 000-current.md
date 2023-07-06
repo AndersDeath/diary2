@@ -20,4 +20,4 @@ I'm extremely tiered today. I slept horrible. It was headache and I was able to 
 
 # 06 July - Thursday - Yerevan - 280 day of immigration
 
-I was coding for whole day.
+I was coding for whole day. It was a hell.
