@@ -20,4 +20,4 @@ I'm extremely tiered today. I slept horrible. It was headache and I was able to 
 
 # 06 July - Thursday - Yerevan - 280 day of immigration
 
-I was coding for whole day. It was a hell. I also lost a lot of time this morning in dentist clinic. It was also horrible. I almost finished with some test task that one company asked me to do. I will send it to them tomorrow. I also need to finish some important drsmile tasks.
+I was coding for whole day. It was a hell. I also lost a lot of time this morning in dentist clinic. It was also horrible. I almost finished with some test task that one company asked me to do. I will send it to them tomorrow. I also need to finish some important drsmile tasks. It will be tomorrow. I don't want to thing about it now.
