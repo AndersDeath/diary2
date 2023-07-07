@@ -24,4 +24,4 @@ I was coding for whole day. It was a hell. I also lost a lot of time this mornin
 
 # 07 July - Friday - Yerevan - 281 day of immigration
 
-I got keys for my new apartments today.
+I got keys for my new apartments today. We are going to that place tomorrow.
