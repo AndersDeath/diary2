@@ -28,4 +28,4 @@ I got keys for my new apartments today. We are going to that place tomorrow. I m
 
 # 08 July - Saturday - Yerevan - 282 day of immigration
 
-Today we moved to another apartments. This thing happened smooth and we did everything in time. Also we decided trying to be on mobile internet.
+Today we moved to another apartments. This thing happened smooth and we did everything in time. Also we decided trying to be on mobile internet because the home one here is quite expencive.
