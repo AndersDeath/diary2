@@ -28,4 +28,4 @@ I got keys for my new apartments today. We are going to that place tomorrow. I m
 
 # 08 July - Saturday - Yerevan - 282 day of immigration
 
-Today we moved to another apartments. This thing happened smooth and we did everything in time. Also we decided trying to be on mobile internet because the home one here is quite expensive. Armenia is't cheap country in this sense. We also visited one local mall and bought some important equipment.
+Today we moved to another apartments. This thing happened smooth and we did everything in time. Also we decided trying to be on mobile internet because the home one here is quite expensive. Armenia is't cheap country in this sense. We also visited one local mall and bought some important equipment. It's another part because now I feel some root that 
