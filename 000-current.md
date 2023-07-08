@@ -26,4 +26,4 @@ I was coding for whole day. It was a hell. I also lost a lot of time this mornin
 
 I got keys for my new apartments today. We are going to that place tomorrow. I met landlord and did all paper and other type of work. I send another test task in the morning. I wish to get a feedback soon. The rest of the day I was programming and tried to resolve different problems. last two weeks are crazy. I barely can find time for a lot of things. I still cannot do video about Barcelona. IT's shit. When we got internet at new home I will do it. Another thing is that I like my current apartment much more. There is more space and more rooms and bedroom huge. It's sad. But I cannot afford them.
 
-.
+# 08 July - Saturday - Yerevan - 282 day of immigration
