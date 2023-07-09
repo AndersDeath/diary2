@@ -29,3 +29,5 @@ I got keys for my new apartments today. We are going to that place tomorrow. I m
 # 08 July - Saturday - Yerevan - 282 day of immigration
 
 Today we moved to another apartments. This thing happened smooth and we did everything in time. Also we decided trying to be on mobile internet because the home one here is quite expensive. Armenia is't cheap country in this sense. We also visited one local mall and bought some important equipment. It's another part because now I feel some root that grow from me into Armenia. We also discuessed possible next steps for relocation. there is nothing easy. It will be hard. I still don't want to live in Russia. I hate everything that happens there. It's horrible place for living. Authorities don't think about people. The only importance is their reputation and money. I hate everything like this. Because of them my life ruined and confused. I hate it as well. Newermind. I updated holy theory today significantly. I will focus on thing tomorrow. I still work on the project although i don't feel excitement about this every day.
+
+# 09 July - Sunday - Yerevan - 283 day of immigration
