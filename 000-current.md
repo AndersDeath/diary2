@@ -36,4 +36,4 @@ So, It was the first calm day for a long time. We went for a walk despite the hu
 
 # 10 July - Monday - Yerevan - 284 day of immigration
 
-I finally got new teeth today. I have it for the last 2 hours haven't got yet how it is. I feel weird. It feels like some external piece of something in my mouth. I need some adaptation. It's very unusual. So I will go to another doctor soon. Tomorrow I will probably get my new eyeglass frame. I really don't see well in my current glasses. It should help I suppose. Anyway Ksusha found clinic that has dentists and ophthalmologist. I will schedule and appointment there.
+I finally got new teeth today. I have it for the last 2 hours haven't got yet how it is. I feel weird. It feels like some external piece of something in my mouth. I need some adaptation. It's very unusual. So I will go to another doctor soon. Tomorrow I will probably get my new eyeglass frame. I really don't see well in my current glasses. It should help I suppose. Anyway Ksusha found clinic that has dentists and ophthalmologist. I will schedule and appointment there. I also had a hard interview today with some company.s
