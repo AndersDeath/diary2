@@ -33,3 +33,5 @@ Today we moved to another apartments. This thing happened smooth and we did ever
 # 09 July - Sunday - Yerevan - 283 day of immigration
 
 So, It was the first calm day for a long time. We went for a walk despite the huge today's heat. It's about 36 degrees outside. It's really really hard. I feel like I'm in Dubai. Yerevan is extremely hot city in Summer. It's so unusual. Maybe in the future I will be adapted but now It's really hard. At the same time I was coding for some time today. It was also hard because I feel so tiered about everything. I try to improve myself and so but it's hard. I'm in completely different reality then I was before. It's also hard to admit. I try to do my best but... you know guy it's hard. At the same time I can plan something now. It's cool. Again. another confusing notes.
+
+# 10 July - Monday - Yerevan - 284 day of immigration
