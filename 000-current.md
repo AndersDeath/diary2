@@ -40,4 +40,4 @@ I finally got new teeth today. I have it for the last 2 hours haven't got yet ho
 
 # 11 July - Tuesday - Yerevan - 285 day of immigration
 
-The second day with new teeth or the first full day with them. So it's cool but my gums still hurt. ALso I was coding as usual. I cancelled one interview today because it's lottery. I don't want to work for this type of companies. I also got rejection from company that asked me for coding chalange. Those duchebags event didn't provide a comment what was wrong. I am upset of it.
+The second day with new teeth or the first full day with them. So it's cool but my gums still hurt. ALso I was coding as usual. I cancelled one interview today because it's lottery. I don't want to work for this type of companies. I also got rejection from company that asked me for coding challenge. Those duchebags event didn't provide a comment what was wrong. I am upset of it.
