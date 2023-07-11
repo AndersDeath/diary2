@@ -40,3 +40,4 @@ I finally got new teeth today. I have it for the last 2 hours haven't got yet ho
 
 # 11 July - Tuesday - Yerevan - 285 day of immigration
 
+The second day with new teeth or the first full day with them.
