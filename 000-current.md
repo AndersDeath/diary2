@@ -44,4 +44,4 @@ The second day with new teeth or the first full day with them. So it's cool but 
 
 # 12 July - Wednesday - Yerevan - 286 day of immigration
 
-Today I was working for whole day as usual. Fortunately today I had two nice interviews and one feedback from company that rejected me. I also was coding for the hal of the day which helped me to come back to normal condition. This is nice I think. Tomorrow I am going to another dentist for consultation. I need to proceed teeth treatment. I need to remove another three ones and then add vinires.
+Today I was working for whole day as usual. Fortunately today I had two nice interviews and one feedback from company that rejected me. I also was coding for the hal of the day which helped me to come back to normal condition. This is nice I think. Tomorrow I am going to another dentist for consultation. I need to proceed teeth treatment. I need to remove another three ones and then add veneers.
