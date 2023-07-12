@@ -44,4 +44,4 @@ The second day with new teeth or the first full day with them. So it's cool but 
 
 # 12 July - Wednesday - Yerevan - 286 day of immigration
 
-Today I was working for whole day as usual.
+Today I was working for whole day as usual. Fortunately today I had two nice interviews and one feedback from company that I don't fit.
