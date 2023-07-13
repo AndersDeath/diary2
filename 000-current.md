@@ -48,4 +48,4 @@ Today I was working for whole day as usual. Fortunately today I had two nice int
 
 # 13 July - Thursday - Yerevan - 287 day of immigration
 
-I visited another Dentist today. It looks like I will spend much more time treating my teeth. This is really sad. However I can normally eat now.
+I visited another Dentist today. It looks like I will spend much more time treating my teeth. This is really sad. However I can normally eat now. I was coding today heavily.
