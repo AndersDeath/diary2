@@ -47,3 +47,5 @@ The second day with new teeth or the first full day with them. So it's cool but 
 Today I was working for whole day as usual. Fortunately today I had two nice interviews and one feedback from company that rejected me. I also was coding for the hal of the day which helped me to come back to normal condition. This is nice I think. Tomorrow I am going to another dentist for consultation. I need to proceed teeth treatment. I need to remove another three ones and then add veneers. It will be the latest step of my pain. In general today all is good. Tomorrow will be better I hope.
 
 # 13 July - Thursday - Yerevan - 287 day of immigration
+
+I visited another Dentist today.
