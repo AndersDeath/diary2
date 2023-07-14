@@ -52,4 +52,4 @@ I visited another Dentist today. It looks like I will spend much more time treat
 
 # 14 July - Friday - Yerevan - 288 day of immigration
 
-I didn't do anything significant today. I just finish with some coding and that's it. I also mad of internet connection.
+I didn't do anything significant today. I just finish with some coding and that's it. I also mad of internet connection. It's so bad that I am surprised of it.
