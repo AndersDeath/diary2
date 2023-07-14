@@ -49,3 +49,5 @@ Today I was working for whole day as usual. Fortunately today I had two nice int
 # 13 July - Thursday - Yerevan - 287 day of immigration
 
 I visited another Dentist today. It looks like I will spend much more time treating my teeth. This is really sad. However I can normally eat now. I was coding today heavily. Everything went well I just extremely tiered. I also had a call with one company that is called Okno about relocation. Unfortunately they don't have anything specific for me. I cannot say that they can help me. It's sad. Also I decided to combine all reactjs/nextjs projects into one. I really think about startup visa to some country. Really cool if I can relocate to the US directly. HOwever it's another story. I need to make MVP and then ask for a visa and try to find some accelerator. Currently I don't know what to do exactly. Situation is worse that I expected.
+
+# 14 July - Friday - Yerevan - 288 day of immigration
