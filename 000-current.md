@@ -56,4 +56,4 @@ I didn't do anything significant today. I just finish with some coding and that'
 
 # 15 July - Saturday - Yerevan - 289 day of immigration
 
-Mission impossible was not so interesting. It was usual movie with Tom Cruse. Today I prepared money and documents for applying for another passport. I am going to rus embassy on monday. Additionally we were on Vardavar lake in Yerevan. I found one account on Instagram that offers SUP board training. I really want to try myself in it again. I think I will text to these people and schedule a visit.
+Mission impossible was not so interesting. It was usual movie with Tom Cruse. Today I prepared money and documents for applying for another passport. I am going to rus embassy on monday. Additionally we were on Vardavar lake in Yerevan. I found one account on Instagram that offers SUP board training. I really want to try myself in it again. I think I will text to these people and schedule a visit. Dentist that I found on the internet proposed treatment plan for me.
