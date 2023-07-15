@@ -53,3 +53,5 @@ I visited another Dentist today. It looks like I will spend much more time treat
 # 14 July - Friday - Yerevan - 288 day of immigration
 
 I didn't do anything significant today. I just finish with some coding and that's it. I also mad of internet connection. It's so bad that I am surprised of it. I also had two interviews today. The first one was with some startup from Germany and one addition with another company. Doctorflix finallly rejected me. It was long waiting. i also started thinking about creation of startup and moving by startup visa. I think it's possible but much harder. I think that it's difficult because I don't have an experience in it at all. Another shot that I am afraid of it. It's huge move. The final thing is that we experienced absence of electricity again.
+
+# 15 July - Saturday - Yerevan - 289 day of immigration
