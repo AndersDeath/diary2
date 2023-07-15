@@ -56,4 +56,4 @@ I didn't do anything significant today. I just finish with some coding and that'
 
 # 15 July - Saturday - Yerevan - 289 day of immigration
 
-Mission impossible was nice 
+Mission impossible was not so interesting. It was usual movie with Tom Cruse.
