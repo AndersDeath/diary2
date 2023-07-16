@@ -60,4 +60,4 @@ Mission impossible was not so interesting. It was usual movie with Tom Cruse. To
 
 # 16 July - Saturday - Yerevan - 290 day of immigration
 
-Today is Vardavar, I was sitting at home for whole day. I only went out for a 30 minutes to Wildberries to take a clothes dryer.
+Today is Vardavar, I was sitting at home for whole day. I only went out for a 30 minutes to Wildberries to take a clothes drier.
