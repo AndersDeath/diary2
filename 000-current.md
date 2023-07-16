@@ -60,4 +60,4 @@ Mission impossible was not so interesting. It was usual movie with Tom Cruse. To
 
 # 16 July - Saturday - Yerevan - 290 day of immigration
 
-Today is Vardavar, 
+Today is Vardavar, I was sitting at home for whole
