@@ -64,4 +64,4 @@ Today is Vardavar, I was sitting at home for whole day. I only went out for a 30
 
 # 17 July - Monday - Yerevan - 291 day of immigration
 
-Today I had a long journey to Russian embassy. Stupid council whants to have all application in uppercase I filled mine wrong. Because of that I had to go back home rewrite the application and then go back to embassy. It was crazy. I also had several interviews today that destroyed me.
+Today I had a long journey to Russian embassy. Stupid council whants to have all application in uppercase I filled mine wrong. Because of that I had to go back home rewrite the application and then go back to embassy. It was crazy. I also had several interviews today that destroyed me. I feel so tiered.
