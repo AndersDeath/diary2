@@ -67,3 +67,5 @@ Today is Vardavar, I was sitting at home for whole day. I only went out for a 30
 Today I had a long journey to Russian embassy. Stupid council whants to have all application in uppercase I filled mine wrong. Because of that I had to go back home rewrite the application and then go back to embassy. It was crazy. I also had several interviews today that destroyed me. I feel so tiered. Ksusha made bleaching and her teeth are in pain now. In general it was crazy day. I had immigration consultant, many drives in taxi, several calls and finally I wrote huge email to my potentional employer. It was crazy day I really want to just die. But I will go and have some rest. Crazy things happen.
 
 # 18 July - Tuesday - Yerevan - 292 day of immigration
+
+Today I was coding for a whole day.
