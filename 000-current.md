@@ -68,4 +68,4 @@ Today I had a long journey to Russian embassy. Stupid council whants to have all
 
 # 18 July - Tuesday - Yerevan - 292 day of immigration
 
-Today I was coding for a whole day. I got a chance to talk to Engineering manager position. I am really exited about it. I also had three calls with different people and two of them were absolutely transparent in terms of my relocation problem.
+Today I was coding for a whole day. I got a chance to talk to Engineering manager position. I am really exited about it. I also had three calls with different people and two of them were absolutely transparent in terms of my relocation problem. I really need to be in Berlin if I want to get that job.
