@@ -72,4 +72,4 @@ Today I was coding for a whole day. I got a chance to talk to Engineering manage
 
 # 19 July - Wednesday - Yerevan - 293 day of immigration
 
-I started working on portfolio today. I need to do it because I want to get a visa to Germany. I basically just need it. Actually I was coding for whole day. I also remember yesterdays conversations with HR's that were honest to me and the only struggle for getting job is my place. It's huge problem that I am not in EU. So, we decided to find another way.
+I started working on portfolio today. I need to do it because I want to get a visa to Germany. I basically just need it. Actually I was coding for whole day. I also remember yesterdays conversations with HR's that were honest to me and the only struggle for getting job is my place. It's huge problem that I am not in EU. So, we decided to find another way. At the same time I got a phone call from surgeon.
