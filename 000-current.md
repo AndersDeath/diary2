@@ -71,3 +71,5 @@ Today I had a long journey to Russian embassy. Stupid council whants to have all
 Today I was coding for a whole day. I got a chance to talk to Engineering manager position. I am really exited about it. I also had three calls with different people and two of them were absolutely transparent in terms of my relocation problem. I really need to be in Berlin if I want to get that job. It's too hard. So, because of that we (me and ksusha) decided to work on freelance visa in Germany and investigate how to get enterprinershpt visa to Netherlands. This is an only problem. At the same tim I decided to focus again on personal brand. this is the very supportive thing if I want to be rich. I work on it. Also Ksusha feels much better after bleaching. 
 
 # 19 July - Wednesday - Yerevan - 293 day of immigration
+
+I started working on portfolio today.
