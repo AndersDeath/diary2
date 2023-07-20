@@ -76,4 +76,4 @@ I started working on portfolio today. I need to do it because I want to get a vi
 
 # 20 July - Thursday - Yerevan - 294 day of immigration
 
-It was nice day. There a sad piece of news. Suman who is a backend developer in my team will be fired. His probation period is almost finished. I received bad feedback about him. I cannot do it anything. Management made a design. I also pass some cognative test from one company that is in my funnel.
+It was nice day. There a sad piece of news. Suman who is a backend developer in my team will be fired. His probation period is almost finished. I received bad feedback about him. I cannot do it anything. Management made a design. I also pass some cognitive test from one company that is in my funnel.
