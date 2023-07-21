@@ -80,4 +80,4 @@ It was nice day. There a sad piece of news. Suman who is a backend developer in 
 
 # 21 July - Friday - Yerevan - 295 day of immigration
 
-It's friday. I'm exhausted.
+It's friday. I'm exhausted. I brought my permanent residence card to passport table in order to add registration to this.
