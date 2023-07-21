@@ -79,3 +79,5 @@ I started working on portfolio today. I need to do it because I want to get a vi
 It was nice day. There a sad piece of news. Suman who is a backend developer in my team will be fired. His probation period is almost finished. I received bad feedback about him. I cannot do it anything. Management made a design. I also pass some cognitive test from one company that is in my funnel. In general this day was quite cool and I just did things. I also prepared some documents for OVIR because I am going to this place tomorrow morning. I need to get a registration. Also I started some preparations for immigration. I sent a bunch of letters to different people. I hope that I will be able to gather all documents in time. It would be nice. Also the lion escaped in Berlin and police asked people to be at home. Another stuff that laws in Russia become crazier and crazier. The fucking morons is continuing to destroy my country. I hate them really. All things that they do are extremely stupid. It's interesting reflection of crime.
 
 # 21 July - Friday - Yerevan - 295 day of immigration
+
+It's friday. I am exousted.
