@@ -80,4 +80,4 @@ It was nice day. There a sad piece of news. Suman who is a backend developer in 
 
 # 21 July - Friday - Yerevan - 295 day of immigration
 
-It's friday. I'm exhausted. I brought my permanent residence card to passport table in order to add registration to this. I also had a lot of meetings and now I only want to sleep. It was hard friday. At the same time I thought a lot about the next week. I will have a several important calls and meetings. Enough about that. Yesterdays evening I was on Barbie movie. It was absolutely Holywood stuff.
+It's friday. I'm exhausted. I brought my permanent residence card to passport table in order to add registration to this. I also had a lot of meetings and now I only want to sleep. It was hard friday. At the same time I thought a lot about the next week. I will have a several important calls and meetings. Enough about that. Yesterdays evening I was on Barbie movie. It was absolutely Hollywood stuff.x
