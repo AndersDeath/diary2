@@ -80,4 +80,4 @@ It was nice day. There a sad piece of news. Suman who is a backend developer in 
 
 # 21 July - Friday - Yerevan - 295 day of immigration
 
-It's friday. I am exousted.
+It's friday. I am excused.
