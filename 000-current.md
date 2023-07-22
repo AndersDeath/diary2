@@ -84,4 +84,4 @@ It's friday. I'm exhausted. I brought my permanent residence card to passport ta
 
 # 22 July - Saturday - Yerevan - 296 day of immigration
 
-Today I groomed some deals. I sent requests for letters of recommendation for asking a visa.
+Today I groomed some deals. I sent requests for letters of recommendation for asking a visa. We decided to try our luck in Germany.
