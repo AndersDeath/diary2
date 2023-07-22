@@ -84,4 +84,4 @@ It's friday. I'm exhausted. I brought my permanent residence card to passport ta
 
 # 22 July - Saturday - Yerevan - 296 day of immigration
 
-Today I groomed some deals. I sent requests for letters of recommendation for asking a visa. We decided to try our luck in Germany. I started doing a task for liqid company. Even if they don't approve my solution I will put it to my portfolio. I will also reuse this code for my own portfolio website. I also try to break my habits and to correct my way. I again started thinking about freelance career. Maybe it worth, I don't know.
+Today I groomed some deals. I sent requests for letters of recommendation for asking a visa. We decided to try our luck in Germany. I started doing a task for liqid company. Even if they don't approve my solution I will put it to my portfolio. I will also reuse this code for my own portfolio website. I also try to break my habits and to correct my way. I again started thinking about freelance career. Maybe it worth, I don't know. It is a quite unstable way and it bothers me.
