@@ -2,9 +2,9 @@ const { exec } = require("child_process");
 let i = 1;
 setInterval(() => {
 
-    console.log('==========');
+    console.log('====================');
     console.log('Iteration ' + i++)
-    console.log('==========');
+    console.log('====================');
 
     exec("./commit.sh", (error, stdout, stderr) => {
         if (error) {
