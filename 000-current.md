@@ -88,4 +88,4 @@ Today I groomed some deals. I sent requests for letters of recommendation for as
 
 # 23 July - Sunday - Yerevan - 297 day of immigration
 
-Ksusha is in Russia next week. I am alone again. Usually it's hard for me. I like trying to be independent, but I am not ready for being alone. Maybe in the future I will handle it. But not now. Also I was coding for a whole day.
+Ksusha is in Russia next week. I am alone again. Usually it's hard for me. I like trying to be independent, but I am not ready for being alone. Maybe in the future I will handle it. But not now. Also I was coding for a whole day. 
