@@ -88,4 +88,4 @@ Today I groomed some deals. I sent requests for letters of recommendation for as
 
 # 23 July - Sunday - Yerevan - 297 day of immigration
 
-Ksusha is in Russia next week.
+Ksusha is in Russia next week. I am alone again.
