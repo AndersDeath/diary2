@@ -18,9 +18,6 @@ function commit() {
 }
 commit();
 setInterval(() => {
-
-  
     commit();
-
 }, 5000)
 
