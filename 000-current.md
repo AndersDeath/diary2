@@ -92,4 +92,4 @@ Ksusha is in Russia next week. I am alone again. Usually it's hard for me. I lik
 
 # 24 July - Monday - Yerevan - 298 day of immigration
 
-It was hard day.
+It was a hard day. I was coding for a whole day. Also I need to remake all my life strategy. It's very hard
