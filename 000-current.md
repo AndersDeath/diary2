@@ -96,4 +96,4 @@ It was a hard day. I was coding for a whole day. Also I need to remake all my li
 
 # 25 July - Tuesday - Yerevan - 299 day of immigration
 
-Today I had tons of meetings. We were discussing the new approach for patient portal in DR SMILE. It was long call. I also had one interview today. It was nice but I think absolutely useless.
+Today I had tons of meetings. We were discussing the new approach for patient portal in DR SMILE. It was long call. I also had one interview today. It was nice but I think absolutely useless. Tomorrow I need to work really hard to finish all other tasks.
