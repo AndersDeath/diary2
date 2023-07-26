@@ -100,4 +100,4 @@ Today I had tons of meetings. We were discussing the new approach for patient po
 
 # 26 July - Wednesday - Yerevan - 300 day of immigration
 
-This week is absolutely crazy. I am extrimely tiered again. I was working for a whole day and it was absolutely crazy and hard. So, yeap.
+This week is absolutely crazy. I am extrimely tiered again. I was working for a whole day and it was absolutely crazy and hard. So, yea.
