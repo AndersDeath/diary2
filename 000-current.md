@@ -104,4 +104,4 @@ This week is absolutely crazy. I am extrimely tiered again. I was working for a 
 
 # 27 July - Thursday - Yerevan - 301 day of immigration
 
-I had an amazing interview this morning. I presented a case to them. It was cool again. Tomorrow I also should do a lot. It will be hard. I really need to have a short rest. It's just hard. I really wait for Ksusha because I feel loneliness. You know that I don't like to be like that. Also I had a horrible conversation with Suman. It so hard to loose him. I like to work with him and 
+I had an amazing interview this morning. I presented a case to them. It was cool again. Tomorrow I also should do a lot. It will be hard. I really need to have a short rest. It's just hard. I really wait for Ksusha because I feel loneliness. You know that I don't like to be like that. Also I had a horrible conversation with Suman. It so hard to loose him. I like to work with him and this is not fair.
