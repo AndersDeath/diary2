@@ -104,4 +104,4 @@ This week is absolutely crazy. I am extrimely tiered again. I was working for a 
 
 # 27 July - Thursday - Yerevan - 301 day of immigration
 
-I had an amazing interview this morning.
+I had an amazing interview this morning. I presented
