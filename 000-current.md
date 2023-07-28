@@ -108,3 +108,4 @@ I had an amazing interview this morning. I presented a case to them. It was cool
 
 # 28 July - Friday - Yerevan - 302 day of immigration
 
+Sometimes I feel
