@@ -108,4 +108,4 @@ I had an amazing interview this morning. I presented a case to them. It was cool
 
 # 28 July - Friday - Yerevan - 302 day of immigration
 
-Sometimes I feel that this diary became a just list of things that I did. I cannot stop doing this. The life is so stable and strange. I do the same things every day.
+Sometimes I feel that this diary became a just list of things that I did. I cannot stop doing this. The life is so stable and strange. I do the same things every day. I think that I need to write other things 
