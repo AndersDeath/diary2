@@ -110,4 +110,4 @@ I had an amazing interview this morning. I presented a case to them. It was cool
 
 Sometimes I feel that this diary became a just list of things that I did. I cannot stop doing this. The life is so stable and strange. I do the same things every day. I think that I need to write other things, but every time I can think only about job. Shitty stuff. Also I did one test task that was not interesting. Also my mood is terrible. I miss Ksusha. She and Nastya gave keys from apartments where I lived in Saint-Petersubrg. I don't have home there anymore. It's really frustrating.s It's really depressing. I could't visit it last time. I miss home. I really cannot go back to the place anymore. Blyat. Shit. I will go to sleep now. I cannot collect myself together now. Life is not so funny. I am 35 and I don't have home. 
 
-# 29 July - Friday - Yerevan - 303 day of immigration
+# 29 July - Sunday - Yerevan - 303 day of immigration
