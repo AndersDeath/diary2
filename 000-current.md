@@ -112,4 +112,4 @@ Sometimes I feel that this diary became a just list of things that I did. I cann
 
 # 29 July - Sunday - Yerevan - 303 day of immigration
 
-I was doing some interesting things today. I would like to say, but not. I didn't. It was just a saturday. I tryed to rent an apartmens for Julia. It's Ksushas elder sister.
+I was doing some interesting things today. I would like to say, but not. I didn't. It was just a saturday. I tyred to rent an apartmens for Julia. It's Ksushas elder sister.
