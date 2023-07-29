@@ -112,4 +112,4 @@ Sometimes I feel that this diary became a just list of things that I did. I cann
 
 # 29 July - Sunday - Yerevan - 303 day of immigration
 
-I was doing some interesting things today. I would like to say, but not. I didn't. It was just a saturday. I tried to rent an apartmens for Julia. It's Ksushas elder sister. At the same time the heat is extreme today. I almost died at the street. At the same time I went to a cafe today. It was first time for a week. These days were so extreme that I still can go back to normal
+I was doing some interesting things today. I would like to say, but not. I didn't. It was just a saturday. I tried to rent an apartmens for Julia. It's Ksushas elder sister. At the same time the heat is extreme today. I almost died at the street. At the same time I went to a cafe today. It was first time for a week. These days were so extreme that I still can go back to normal. Bullshitty.
