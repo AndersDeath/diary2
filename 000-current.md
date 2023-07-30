@@ -110,8 +110,8 @@ I had an amazing interview this morning. I presented a case to them. It was cool
 
 Sometimes I feel that this diary became a just list of things that I did. I cannot stop doing this. The life is so stable and strange. I do the same things every day. I think that I need to write other things, but every time I can think only about job. Shitty stuff. Also I did one test task that was not interesting. Also my mood is terrible. I miss Ksusha. She and Nastya gave keys from apartments where I lived in Saint-Petersubrg. I don't have home there anymore. It's really frustrating.s It's really depressing. I could't visit it last time. I miss home. I really cannot go back to the place anymore. Blyat. Shit. I will go to sleep now. I cannot collect myself together now. Life is not so funny. I am 35 and I don't have home. 
 
-# 29 July - Sunday - Yerevan - 303 day of immigration
+# 29 July - Saturday - Yerevan - 303 day of immigration
 
 I was doing some interesting things today. I would like to say, but not. I didn't. It was just a saturday. I tried to rent an apartment for Julia. It's Ksushas elder sister. At the same time the heat is extreme today. I almost died at the street. At the same time I went to a cafe today. It was first time for a week. These days were so extreme that I still can go back to normal. Bullshitty. I miss my old life so much. I started thinking about it again. It look like I have only problems. I really miss that calm life. Everything was so smooth. Now it's different. The war and other shit kills me. So, tomorrow I am going to Gyumri in order to meet Ksusha. She should come there. After that we will spent some time in that city and after that go back to Yerevan. I assume that I will be tiered. Sad but true. At the same time I am so thirsty. The heat kills. Maybe I will go to supermarket now. I will buy something to drink and then go back home and sleep. Life is now so fun despite the fact that I try to reshape my attitude.
 
-# 29 July - Sunday - Yerevan - 303 day of immigration
+# 30 July - Sunday - Yerevan - 303 day of immigration
