@@ -116,4 +116,4 @@ I was doing some interesting things today. I would like to say, but not. I didn'
 
 # 30 July - Sunday - Gyumri - Yerevan - 304 day of immigration
 
-Ksusha came back home. I met her in Gyumri. I got morning train and in two hours I was there. The airport of Gyumri (Shirak)
+Ksusha came back home. I met her in Gyumri. I got morning train and in two hours I was there. The airport of Gyumri (Shirak) is small and has only one fly in the 
