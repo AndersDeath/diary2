@@ -120,4 +120,4 @@ Ksusha came back home. I met her in Gyumri. I got morning train and in two hours
 
 # 31 July - Monday - Yerevan - 305 day of immigration
 
-This day is also not so easy. I can definitely say that Ksusha inspire me to do much more things. I feel much better with her. At the same time I really want to smoke cigarets. Don't know why. It happens to me sometimes. I think it's because I had this addiction in the past. Also I had a fear that I will die because of lung cancer. This thing is always with me. So, yea. Another good piece of news that I got real letter of intent from another company.
+This day is also not so easy. I can definitely say that Ksusha inspire me to do much more things. I feel much better with her. At the same time I really want to smoke cigarets. Don't know why. It happens to me sometimes. I think it's because I had this addiction in the past. Also I had a fear that I will die because of lung cancer. This thing is always with me. So, yea. Another good piece of news that I got real letter of intent from another company. Now I a have realy two letters of intent and sveral removvendations.
