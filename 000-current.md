@@ -120,4 +120,4 @@ Ksusha came back home. I met her in Gyumri. I got morning train and in two hours
 
 # 31 July - Monday - Yerevan - 305 day of immigration
 
-This day is also not so easy. I can definitely say that Ksusha inspire me to do much more things. I feel much better with her. At the same time I really want to smoke cigarets. 
+This day is also not so easy. I can definitely say that Ksusha inspire me to do much more things. I feel much better with her. At the same time I really want to smoke cigarets. Don't know why.
