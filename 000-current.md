@@ -4,4 +4,4 @@ So, Today I had lot of call about everything. DR SMILE hired a freelancer that s
 
 # 02 August - Wednesday - Yerevan - 307 day of immigration
 
-The weather today is crazy. It's 22:47 o'clock and 27 degree Celsius outside. It's heavy.
+The weather today is crazy. It's 22:47 o'clock and 27 degree Celsius outside. It's heavy. I had a tech interview with one company today.
