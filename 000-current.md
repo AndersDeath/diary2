@@ -8,4 +8,4 @@ The weather today is crazy. It's 22:47 o'clock and 27 degree Celsius outside. It
 
 # 03 August - Thursday - Yerevan - 308 day of immigration
 
-The heat is killing me.
+The heat is killing me. the weather is still extreme.
