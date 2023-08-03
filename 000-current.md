@@ -8,4 +8,4 @@ The weather today is crazy. It's 22:47 o'clock and 27 degree Celsius outside. It
 
 # 03 August - Thursday - Yerevan - 308 day of immigration
 
-The heat is killing me. the weather is still extreme. I still working on my portfolio. I updated the main page of the project. I started getting fat.
+The heat is killing me. the weather is still extreme. I still working on my portfolio. I updated the main page of the project. I started getting fat. It's something new because I kept my body relatively fit.
