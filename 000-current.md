@@ -11,3 +11,5 @@ The weather today is crazy. It's 22:47 o'clock and 27 degree Celsius outside. It
 The heat is killing me. the weather is still extreme. I still working on my portfolio. I updated the main page of the project. I started getting fat. It's something new because I kept my body relatively fit. Things changed. Tomorrow I am going to clinic to my dentist. He should extract 3 tooth and screw one new prothesis. I hope that it will be latest procedure this kind to me in Yerevan. I am really going to leave this country at the end of the year. Probably it will be Germany. you know that I prepare documents for freelance vise and have interview with new potential jobs. It's funny that the majority of the are from Munich but I want to be in Berlin. Germany is a great place for preparations before moving to the US. Finally I want to settle there. We want to it actually.
 
 # 04 August - Friday - Yerevan - 309 day of immigration
+
+I got surgery today.
