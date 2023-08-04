@@ -12,4 +12,4 @@ The heat is killing me. the weather is still extreme. I still working on my port
 
 # 04 August - Friday - Yerevan - 309 day of immigration
 
-I got surgery today. It wasn't so cool.
+I got surgery today. It wasn't so cool. Surgeon installed 
