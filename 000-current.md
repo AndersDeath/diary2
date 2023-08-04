@@ -12,4 +12,4 @@ The heat is killing me. the weather is still extreme. I still working on my port
 
 # 04 August - Friday - Yerevan - 309 day of immigration
 
-I got surgery today. It wasn't so cool. Surgeon installed one prosthetic and removed some bads with shit. Also I got perforation between mouth and nose areas. My nose started bleeding after surgery. It was something absolutely new for me. I never experienced this shot before. I feel relatively ok now. Pain is not so heavy. At the same time I need to do specific procedures.
+I got surgery today. It wasn't so cool. Surgeon installed one prosthetic and removed some bads with shit. Also I got perforation between mouth and nose areas. My nose started bleeding after surgery. It was something absolutely new for me. I never experienced this shot before. I feel relatively ok now. Pain is not so heavy. At the same time I need to do specific procedures. The first part of the day was dedicated to programming.
