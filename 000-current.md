@@ -16,4 +16,4 @@ I got surgery today. It wasn't so cool. Surgeon installed one prosthetic and rem
 
 # 05 August - Saturday - Yerevan - 310 day of immigration
 
-I feel good today. The don't feel any bad stuff after surgery. Yesterday it was hard. Nevermind. We were in Gurmenia today again. The crousanne, I don't know how to write down this word, was nice. I also checked my eyes and tomorrow 
+I feel good today. The don't feel any bad stuff after surgery. Yesterday it was hard. Nevermind. We were in Gurmenia today again. The crousanne, I don't know how to write down this word, was nice. I also checked my eyes and tomorrow I will get new glasses.
