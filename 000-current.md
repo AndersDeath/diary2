@@ -16,4 +16,4 @@ I got surgery today. It wasn't so cool. Surgeon installed one prosthetic and rem
 
 # 05 August - Saturday - Yerevan - 310 day of immigration
 
-I feel good today. The don't feel any bad stuff after surgery. Yesterday it was hard.
+I feel good today. The don't feel any bad stuff after surgery. Yesterday it was hard. Nevermind.
