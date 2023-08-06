@@ -20,4 +20,4 @@ I feel good today. The don't feel any bad stuff after surgery. Yesterday it was 
 
 # 06 August - Sunday - Yerevan - 311 day of immigration
 
-The day was nice.
+The day was nice. I am quite tiered
