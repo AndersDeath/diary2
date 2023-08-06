@@ -20,4 +20,4 @@ I feel good today. The don't feel any bad stuff after surgery. Yesterday it was 
 
 # 06 August - Sunday - Yerevan - 311 day of immigration
 
-The day was nice. I am quite tiered. The heat was extrimely huge as usual. Julia and Arsenii has come to us. We were in the city center and went to sirovarnya restaraunt. It was good and tasty. I also got new eye glasses. It's was also cool.
+The day was nice. I am quite tiered. The heat was extremely huge as usual. Julia and Arsenii has come to us. We were in the city center and went to sirovarnya restaurant. It was good and tasty. I also got new eye glasses. It's was also cool.
