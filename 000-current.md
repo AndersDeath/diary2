@@ -20,4 +20,4 @@ I feel good today. The don't feel any bad stuff after surgery. Yesterday it was 
 
 # 06 August - Sunday - Yerevan - 311 day of immigration
 
-The day was nice. I am quite tiered. The heat was extremely huge as usual. Julia and Arsenii has come to us. We were in the city center and went to Sirovarnya restaurant. It was good and tasty. I also got new eye glasses. It's was also cool. I also was editing the letter for German authorities about my position. My mood was good. At the same time gums are in pain. Today is just third day after operation. Obviously I still don't feel good.
+The day was nice. I am quite tiered. The heat was extremely huge as usual. Julia and Arsenii has come to us. We were in the city center and went to Sirovarnya restaurant. It was good and tasty. I also got new eye glasses. It's was also cool. I also was editing the letter for German authorities about my position. My mood was good. At the same time gums are in pain. Today is just third day after operation. Obviously I still don't feel good. In general I don't have a lot of thoughts for sharing with you.
