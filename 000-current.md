@@ -24,4 +24,4 @@ The day was nice. I am quite tiered. The heat was extremely huge as usual. Julia
 
 # 07 August - Monday - Yerevan - 312 day of immigration
 
-Today I had a call with Tracify company. It was the final call before rejection of offer. I don't know what will be the result. I'm a bit exited due to their desire to have a guy in Netherlands. It's really cool. I only need to relocate to that place. After that I will find a job in place.
+Today I had a call with Tracify company. It was the final call before rejection of offer. I don't know what will be the result. I'm a bit exited due to their desire to have a guy in Netherlands. It's really cool. I only need to relocate to that place. After that I will find a job in place. It will be not a problem.
