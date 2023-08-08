@@ -28,4 +28,4 @@ Today I had a call with Tracify company. It was the final call before rejection 
 
 # 08 August - Tuesday - Yerevan - 313 day of immigration
 
-The day was absolutely crazy. I just finished and its 9pm on my watches. This is crazy day. I was programming and also had a call with german lawyer that shared some thoughts with me how to obtain permit in Berlin. So, It's really a challenge I think. Absolutely crazy. However I need to try obtaining it. It's important. Unfortunately freelance contract of DR SMILE is illegal and cannot proceed working with them. It's bad. At the same time maybe I will get some cool stuff tomorrow.
+The day was absolutely crazy. I just finished and its 9pm on my watches. This is crazy day. I was programming and also had a call with german lawyer that shared some thoughts with me how to obtain permit in Berlin. So, It's really a challenge I think. Absolutely crazy. However I need to try obtaining it. It's important. Unfortunately freelance contract of DR SMILE is illegal and cannot proceed working with them. It's bad. At the same time maybe I will get some cool offer. I still don't know.
