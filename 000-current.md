@@ -28,4 +28,4 @@ Today I had a call with Tracify company. It was the final call before rejection 
 
 # 08 August - Tuesday - Yerevan - 313 day of immigration
 
-The day
+The day was absolutely crazy.
