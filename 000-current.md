@@ -28,4 +28,4 @@ Today I had a call with Tracify company. It was the final call before rejection 
 
 # 08 August - Tuesday - Yerevan - 313 day of immigration
 
-The day was absolutely crazy. I just finished and its 9pm on my whatches.
+The day was absolutely crazy. I just finished and its 9pm on my watches. This is crazy day. 
