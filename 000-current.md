@@ -32,4 +32,4 @@ The day was absolutely crazy. I just finished and its 9pm on my watches. This is
 
 # 09 August - Wednesday - Yerevan - 314 day of immigration
 
-So, Today I had 2.5 hours tech interview with some company.
+So, Today I had 2.5 hours tech interview with some company. It wasn't so good and nice.
