@@ -36,4 +36,4 @@ So, Today I had 2.5 hours tech interview with some company. It wasn't so good an
 
 # 10 August - Thursday - Yerevan - 315 day of immigration
 
-After 7 months of interview and call I finally got the first job offer.
+After 7 months of interview and call I finally got the first job offer. Compaty tracify wants me to join.
