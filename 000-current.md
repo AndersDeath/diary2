@@ -39,3 +39,5 @@ So, Today I had 2.5 hours tech interview with some company. It wasn't so good an
 After 7 months of interview and call I finally got the first job offer. Company tracify wants me to join. I think that it's good because they offered me relocation from start. this is really cool. I can select Germany or Netherlands which is also cool. However the salary is quite small. It's bad. My inclme will be less that I get in DR SMILE. IT will be more that I got in the beginning of working for them but still. So, I am very glad about it. Maybe, there is a chance I will apply this offer and relocate to Netherlands. However Munich is also a choice. I don't know what to do yet. I also was in dentist cabinet this morning. I discussed treatment of a tooth using microscope. It might save it. I would be happy to have this tooth. At the same time it might be better to just remove it and don't come back to the topic. I don't know yet. The weather is crazy. It's 42 degrees outside. Tomorrow will be hotter. In general it's hard to live in this conditions. Crazy.
 
 # 11 August - Friday - Yerevan - 316 day of immigration
+
+So I am about to refuce
