@@ -40,4 +40,4 @@ After 7 months of interview and call I finally got the first job offer. Company 
 
 # 11 August - Friday - Yerevan - 316 day of immigration
 
-So I am about to refuse that company offer. The 70k is absolutely unacceptable for me. If I want to have some shares I will get 65k per year. It's really tough. Unfortunately I have to reject this offer.
+So I am about to refuse that company offer. The 70k is absolutely unacceptable for me. If I want to have some shares I will get 65k per year. It's really tough. Unfortunately I have to reject this offer. I want to grow and don't want to make mistakes.
