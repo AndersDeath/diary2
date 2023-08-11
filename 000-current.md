@@ -40,4 +40,4 @@ After 7 months of interview and call I finally got the first job offer. Company 
 
 # 11 August - Friday - Yerevan - 316 day of immigration
 
-So I am about to refuse
+So I am about to refuse that company offer.
