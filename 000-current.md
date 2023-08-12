@@ -44,4 +44,4 @@ So I am about to refuse that company offer. The 70k is absolutely unacceptable f
 
 # 12 August - Saturday - Yerevan - 317 day of immigration
 
-We was driving in Armenia. We were in Khor Virap, Sevan lake, Garni, Azat reservoir. I fucked up today. I fell asleep when I drove the car. It was horrible.
+We was driving in Armenia. We were in Khor Virap, Sevan lake, Garni, Azat reservoir. I fucked up today. I fell asleep when I drove the car. It was horrible. However everything went well and I didn't hurt anyone.
