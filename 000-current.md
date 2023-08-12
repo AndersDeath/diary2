@@ -44,3 +44,4 @@ So I am about to refuse that company offer. The 70k is absolutely unacceptable f
 
 # 12 August - Saturday - Yerevan - 317 day of immigration
 
+We was walking in Armenia.
