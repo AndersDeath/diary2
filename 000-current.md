@@ -48,4 +48,4 @@ We was driving in Armenia. We were in Khor Virap, Sevan lake, Garni, Azat reserv
 
 # 13 August - Sunday - Yerevan - 318 day of immigration
 
-The day was nice, I did a lot of things. I returned the car to the rental company, visited my barber, and so. Today is out wedding anniversary. WE are a family for two years today. It's very cool moment I would say. I also wrote some code and read book. I tried to be calm and just had a rest. I need to have a reboot. My mind is tiered, body doesn't work well. I have same waste fat in body and so.
+The day was nice, I did a lot of things. I returned the car to the rental company, visited my barber, and so. Today is out wedding anniversary. WE are a family for two years today. It's very cool moment I would say. I also wrote some code and read book. I tried to be calm and just had a rest. I need to have a reboot. My mind is tiered, body doesn't work well. I have same waste fat in body and so. I also stopped practice meditation that is a shame. 
