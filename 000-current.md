@@ -48,4 +48,4 @@ We was driving in Armenia. We were in Khor Virap, Sevan lake, Garni, Azat reserv
 
 # 13 August - Sunday - Yerevan - 318 day of immigration
 
-The day was nice, 
+The day was nice, I did a lot things.
