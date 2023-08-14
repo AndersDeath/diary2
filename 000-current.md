@@ -52,4 +52,4 @@ The day was nice, I did a lot of things. I returned the car to the rental compan
 
 # 14 August - Monday - Yerevan - 319 day of immigration
 
-I installed Photoshot for Ksusha today. She is not so good in this busineess. I also did a lot of different things for DR SMILE. It was nice and cool. For example i dived into Elastic Contaiter Service. It was coold.
+I installed Photoshot for Ksusha today. She is not so good in this busineess. I also did a lot of different things for DR SMILE. It was nice and cool. For example i dived into Elastic Contaiter Service. It was cool.
