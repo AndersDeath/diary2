@@ -56,4 +56,4 @@ I installed Photoshot for Ksusha today. She is not so good in this busineess. I 
 
 # 15 August - Tuesday - Yerevan - 320 day of immigration
 
-So guys. this day was again crazy. There is no balance yet. Today I got papers in Ineco. I need them for getting a visa. I also visited dentist. She started saving tooth. Also I was programming for whole day and tried to do maximum number of task. Also I had a strange talk with Autohaus. That people were strange I didn't get their questions and other things. It was stupid. I am again extremely tiered. It looks I will never peace.
+So guys. this day was again crazy. There is no balance yet. Today I got papers in Ineco. I need them for getting a visa. I also visited dentist. She started saving tooth. Also I was programming for whole day and tried to do maximum number of task. Also I had a strange talk with Autohaus. That people were strange I didn't get their questions and other things. It was stupid. I am again extremely tiered. It looks I will never peace. This immigration stuff is very hard.
