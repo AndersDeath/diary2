@@ -56,4 +56,4 @@ I installed Photoshot for Ksusha today. She is not so good in this busineess. I 
 
 # 15 August - Tuesday - Yerevan - 320 day of immigration
 
-So guys. this day was again crazy. There is no balance yet. Today I got papers in Inveco 
+So guys. this day was again crazy. There is no balance yet. Today I got papers in Ineco.
