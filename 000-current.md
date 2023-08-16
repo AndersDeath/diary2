@@ -60,4 +60,4 @@ So guys. this day was again crazy. There is no balance yet. Today I got papers i
 
 # 16 August - Wednesday - Yerevan - 321 day of immigration
 
-Today I was at dentist cabinet. She found the fourth channel in my tooth.
+Today I was at dentist cabinet. She found the fourth channel in my tooth. This is nice because it will save it.
