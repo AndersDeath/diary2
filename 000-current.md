@@ -60,4 +60,4 @@ So guys. this day was again crazy. There is no balance yet. Today I got papers i
 
 # 16 August - Wednesday - Yerevan - 321 day of immigration
 
-Today I was at dentist cabinet. She found the fourth channel in my tooth. This is nice because it will save it. I almost sad good buy to it. Also I had a call with Belinda from Tracify. She was nice and I also told her about what I want to have.
+Today I was at dentist cabinet. She found the fourth channel in my tooth. This is nice because it will save it. I almost sad good buy to it. Also I had a call with Belinda from Tracify. She was nice and I also told her about what I want to have. So, we will be not have an agreement
