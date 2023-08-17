@@ -64,4 +64,4 @@ Today I was at dentist cabinet. She found the fourth channel in my tooth. This i
 
 # 17 August - Thursday - Yerevan - 322 day of immigration
 
-So, Today I got registration address in my permanent residency. Also I got another social card with different social number. So, I was working on interesting stuff for a whole day. Sometimes I cannot believe that I still work in Holy Theory.
+So, Today I got registration address in my permanent residency. Also I got another social card with different social number. So, I was working on interesting stuff for a whole day. Sometimes I cannot believe that I still work in Holy Theory. honestly I don't like this name anymore, but 
