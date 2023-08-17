@@ -64,3 +64,4 @@ Today I was at dentist cabinet. She found the fourth channel in my tooth. This i
 
 # 17 August - Thursday - Yerevan - 322 day of immigration
 
+So, Today I got registration address in my permanent residency.
