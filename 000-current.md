@@ -68,4 +68,4 @@ So, Today I got registration address in my permanent residency. Also I got anoth
 
 # 18 August - Friday - Yerevan - 323 day of immigration
 
-Today I visited my dentist and surgeon. The first doctor fixed my tooth which is cool. But Surgeon wasn't on place.
+Today I visited my dentist and surgeon. The first doctor fixed my tooth which is cool. But Surgeon wasn't on place. Moreover he forgot to tell me this.
