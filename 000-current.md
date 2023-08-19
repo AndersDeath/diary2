@@ -72,4 +72,4 @@ Today I visited my dentist and surgeon. The first doctor fixed my tooth which is
 
 # 19 August - Saturday - Yerevan - 324 day of immigration
 
-I got sick today. I eat something bad yestarday. I had fever for whole night. I eat medications. So, I am in the bad for whole day. When I told that I want to have a free day I didn't mean that. At the same  time  I feel much better now. It's about 8pm o'clock. I also learned Spanish again today. I still try to study it bcause I just like it. Maybe it will give me some benefits. I don't know.
+I got sick today. I eat something bad yesterday. I had fever for whole night. I eat medications. So, I am in the bad for whole day. When I told that I want to have a free day I didn't mean that. At the same  time  I feel much better now. It's about 8pm o'clock. I also learned Spanish again today. I still try to study it because I just like it. Maybe it will give me some benefits. I don't know.
