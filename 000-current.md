@@ -72,4 +72,4 @@ Today I visited my dentist and surgeon. The first doctor fixed my tooth which is
 
 # 19 August - Saturday - Yerevan - 324 day of immigration
 
-I got sick today.
+I got sick today. I eat something bad yestarday.
