@@ -75,3 +75,5 @@ Today I visited my dentist and surgeon. The first doctor fixed my tooth which is
 I got sick today. I eat something bad yesterday. I had fever for whole night. I eat medications. So, I am in the bad for whole day. When I told that I want to have a free day I didn't mean that. At the same  time  I feel much better now. It's about 8pm o'clock. I also learned Spanish again today. I still try to study it because I just like it. Maybe it will give me some benefits. I don't know. It's really hard for me write. The brain is fucked by this poisoning.
 
 # 20 August - Sunday - Yerevan - 325 day of immigration
+
+Today I feel much better.
