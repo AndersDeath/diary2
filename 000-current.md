@@ -76,4 +76,4 @@ I got sick today. I eat something bad yesterday. I had fever for whole night. I 
 
 # 20 August - Sunday - Yerevan - 325 day of immigration
 
-Today I feel much better. It was just poisoning, not more. We tried to do some cool stuff today but for some reasons the day was absolutely boring. However we went fo a walk. That was nice. Also we were in the city center. I didn't feel perfect and my mood is aweful today.
+Today I feel much better. It was just poisoning, not more. We tried to do some cool stuff today but for some reasons the day was absolutely boring. However we went fo a walk. That was nice. Also we were in the city center. I didn't feel perfect and my mood is awful today.
