@@ -76,4 +76,4 @@ I got sick today. I eat something bad yesterday. I had fever for whole night. I 
 
 # 20 August - Sunday - Yerevan - 325 day of immigration
 
-Today I feel much better.
+Today I feel much better. It was just poisoning, not more.
