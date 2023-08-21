@@ -80,4 +80,4 @@ Today I feel much better. It was just poisoning, not more. We tried to do some c
 
 # 21 August - Monday - Yerevan - 326 day of immigration
 
-Ksusha felt really bad.
+Ksusha felt really bad. She got poisoned like me and she vomited for all night.
