@@ -84,4 +84,4 @@ Ksusha felt really bad. She got poisoned like me and she vomited for all night. 
 
 # 22 August - Tuesday - Yerevan - 327 day of immigration
 
-Today we took our documents to BLS. So, the process has been started. If we get visas, we can try to move to Berlin. This city is basically our main goal. From documents perspective I need only to get latest letter of intent and then I can ask for this status in Europe. What will be further I don't know. I hope that everything will be good.
+Today we took our documents to BLS. So, the process has been started. If we get visas, we can try to move to Berlin. This city is basically our main goal. From documents perspective I need only to get latest letter of intent and then I can ask for this status in Europe. What will be further I don't know. I hope that everything will be good. It's hard to predict.
