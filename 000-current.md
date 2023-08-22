@@ -84,4 +84,4 @@ Ksusha felt really bad. She got poisoned like me and she vomited for all night. 
 
 # 22 August - Tuesday - Yerevan - 327 day of immigration
 
-Today we took our documents to BLS
+Today we took our documents to BLS. So, the process has been started.
