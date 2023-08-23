@@ -88,4 +88,4 @@ Today we took our documents to BLS. So, the process has been started. If we get 
 
 # 23 August - Wednesday - Yerevan - 328 day of immigration
 
-I visited a podolog today.
+I visited a podolog today. She treated my heels.
