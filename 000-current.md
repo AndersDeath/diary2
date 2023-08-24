@@ -91,3 +91,5 @@ Today we took our documents to BLS. So, the process has been started. If we get 
 I visited a Podolog today. She treated my heels. My brother's birthday was yesterday. it's nice and texted to him. Honestly I feel huge break with family. It's hard. All other time I was fighting with laziness. It was hard to work today. I did my best but it wasn't easy. So, now I feel better but still want to sleep and do nothing. In general nothing happened today. I overslept and just worked. The shot walk is waiting for me. Me and Ksusha will go to the city center shortly. The first year of immigration is very close. I will celebrate it. It's higher chance that i will do it in Yerevan.
 
 # 24 August - Thursday - Yerevan - 329 day of immigration
+
+Y
