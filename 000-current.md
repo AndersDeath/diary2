@@ -92,4 +92,4 @@ I visited a Podolog today. She treated my heels. My brother's birthday was yeste
 
 # 24 August - Thursday - Yerevan - 329 day of immigration
 
-Y
+Everything is going well. 
