@@ -92,4 +92,4 @@ I visited a Podolog today. She treated my heels. My brother's birthday was yeste
 
 # 24 August - Thursday - Yerevan - 329 day of immigration
 
-Everything is going well. I had an interesting call with one company today that is looking for an engineer. This company actually help people with resting apartments. Even more. Some people gives special documents for getting residency permit. It looks like we will get thins opportunity and rent our first Berlins apartments this way. I like it.
+Everything is going well. I had an interesting call with one company today that is looking for an engineer. This company actually help people with resting apartments. Even more. Some people gives special documents for getting residency permit. It looks like we will get thins opportunity and rent our first Berlins apartments this way. I like it. The only problem is getting a visa.
