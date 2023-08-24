@@ -92,4 +92,4 @@ I visited a Podolog today. She treated my heels. My brother's birthday was yeste
 
 # 24 August - Thursday - Yerevan - 329 day of immigration
 
-Everything is going well. I had an interesting call with one company today that is looking for an engineer.
+Everything is going well. I had an interesting call with one company today that is looking for an engineer. This company actually help people
