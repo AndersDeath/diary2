@@ -96,4 +96,4 @@ Everything is going well. I had an interesting call with one company today that 
 
 # 25 August - Friday - Yerevan - 330 day of immigration
 
-I actually got an offer from XU company. It looks quite good and I suppose that it will be good opportunity for me. I need to understand what I really want. I want to move to Europe. It's a fact.
+I actually got an offer from XU company. It looks quite good and I suppose that it will be good opportunity for me. I need to understand what I really want. I want to move to Europe. It's a fact. At the same time I don't want to loose money.
