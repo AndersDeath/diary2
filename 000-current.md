@@ -100,4 +100,4 @@ I actually got an offer from XU company. It looks quite good and I suppose that 
 
 # 26 August - Saturday - Yerevan - 331 day of immigration
 
-This day was good.
+This day was good. We were waling and got cheat meal that I really like to have.
