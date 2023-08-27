@@ -103,3 +103,6 @@ I actually got an offer from XU company. It looks quite good and I suppose that 
 This day was good. We were waling and got cheat meal that I really like to have. For instance we were in SAS food court and got pancakes with nuttella and fruits. I really like it. After that we were walking to a new restaurant on Bagramyan avenue. It was nice. There we calculated shares plan that XU proposed to me. It actually not so cool. However it might be good in the future somehow. I don't know. The we were walking to Cascad and just enjoyed a view to Ararat mountains. After that we moved home. I also did some improvements for my portfolio website which is extremely important right now. I still remember about projects that are abandoned. I remember about sharenium that I use on daily basis. Another important project was a readme reactjs application. I also don't have time for it but I still remember about my plans. I want to make it as a part of my portfolio. I actually have tons of code pieces that should be formed to portflolio examples. I will do it gradually. It's huge and important part of my career growth.
 
 # 27 August - Sunday - Yerevan - 332 day of immigration
+
+
+We were in Botanic garden today.
