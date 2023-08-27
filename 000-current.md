@@ -104,4 +104,4 @@ This day was good. We were waling and got cheat meal that I really like to have.
 
 # 27 August - Sunday - Yerevan - 332 day of immigration
 
-We were in Botanic garden today. It's cool and calm place. One of my favourites in Yerevan.  Also we were walking. Additinally I was working on backend abstract for tomorrow's interview. I need to recall some conceptions for it. Tomorrow I need to recall a lot of things before the interivew. It's good place for work but I don't know. I don't believe in my skills. It's really hard question for me. I always fuck up interviews because of hard skills.
+We were in Botanic garden today. It's cool and calm place. One of my favourites in Yerevan.  Also we were walking. Additinally I was working on backend abstract for tomorrow's interview. I need to recall some conceptions for it. Tomorrow I need to recall a lot of things before the interivew. It's good place for work but I don't know. I don't believe in my skills. It's really hard question for me. I always fuck up interviews because of hard skills. I am very bad in it.
