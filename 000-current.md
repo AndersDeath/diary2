@@ -104,5 +104,4 @@ This day was good. We were waling and got cheat meal that I really like to have.
 
 # 27 August - Sunday - Yerevan - 332 day of immigration
 
-
-We were in Botanic garden today. It's cool and calm place.
+We were in Botanic garden today. It's cool and calm place. One of my favourites in Yerevan. 
