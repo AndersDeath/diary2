@@ -108,4 +108,4 @@ We were in Botanic garden today. It's cool and calm place. One of my favourites 
 
 # 28 August - Monday - Yerevan - 333 day of immigration
 
-Today I had actually two cool interviews with different companies. The call win wunderflats looks very high potential. Unfortunately the interviewing process will be quite long. At the same time another company has only two steps. The first one is technical interview and the second once is cultural. Wunderflats has 4 steps after todays the second.
+Today I had actually two cool interviews with different companies. The call win wunderflats looks very high potential. Unfortunately the interviewing process will be quite long. At the same time another company has only two steps. The first one is technical interview and the second once is cultural. Wunderflats has 4 steps after todays the second. In sum they have 6 steps that is very long.
