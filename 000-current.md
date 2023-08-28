@@ -108,4 +108,4 @@ We were in Botanic garden today. It's cool and calm place. One of my favourites 
 
 # 28 August - Monday - Yerevan - 333 day of immigration
 
-Today I had actually two cool interviews with different companies. The call win wunderflats looks very potentional.
+Today I had actually two cool interviews with different companies. The call win wunderflats looks very potentional. unfortuntely the interwieving process will be quite long.
