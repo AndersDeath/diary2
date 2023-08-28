@@ -107,3 +107,5 @@ This day was good. We were waling and got cheat meal that I really like to have.
 We were in Botanic garden today. It's cool and calm place. One of my favourites in Yerevan.  Also we were walking. Additinally I was working on backend abstract for tomorrow's interview. I need to recall some conceptions for it. Tomorrow I need to recall a lot of things before the interivew. It's good place for work but I don't know. I don't believe in my skills. It's really hard question for me. I always fuck up interviews because of hard skills. I am very bad in it. I don't use all this fucking theory in my work and it's why I fuck up every time on every interview. I agree that I got an offer but it doesn't treat me. I still feel bad.
 
 # 28 August - Monday - Yerevan - 333 day of immigration
+
+Today I had actually two cool interviews with different companies/
