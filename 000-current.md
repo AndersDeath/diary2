@@ -116,4 +116,4 @@ Usually I don't do notes in the morning. Today is an exception. the thing is tha
 
 So, I changed time in order to same consistent datetimes in my diary. Now I will describe the rest of the 29 August.
 
-We drove well thorough Sevan lake. It was 3.5 hours trip
+We drove well thorough Sevan lake. It was 3.5 hours trip. It was hard but the nature here in Armenia
