@@ -112,4 +112,4 @@ Today I had actually two cool interviews with different companies. The call win 
 
 # 29 August - Tuesday - Yerevan - 334 day of immigration
 
-Usually I don't do notes in the morning. Today is an exception. the thing is that 
+Usually I don't do notes in the morning. Today is an exception. the thing is that I gonna to mountains without laptop.
