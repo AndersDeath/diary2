@@ -114,4 +114,4 @@ Today I had actually two cool interviews with different companies. The call win 
 
 Usually I don't do notes in the morning. Today is an exception. the thing is that I gonna to mountains without laptop. I consciously leave this thing at home. I will live without it for three days. Today, Wednesday and Thursday I will be offline mostly. It's some new experience for me. Why I write this notes? Because I don't thing that I could do it in the evening. Probably yes, but I am not sure. In one hour I need to take a car and then come back home and bring Ksusha.
 
-So, I changed time in order
+So, I changed time in order to same consistent datetimes in my diary.
