@@ -118,4 +118,4 @@ So, I changed time in order to same consistent datetimes in my diary. Now I will
 
 We drove well thorough Sevan lake. It was 3.5 hours trip. It was hard but the nature here in Armenia is extremely beautiful. Mountains are amazing. The house in the spot where we lived was just a wooden triangle with nice bad but without any significant stuff. I think that place was overpriced. In fact all prices in Armenia are to much. The service is not so good and it is just a truth, Elegis Village Resort is the name of place. 
 
-# 29 August - Wedn - Yerevan - 334 day of immigration
+# 29 August - Wednesday - Yerevan - 335 day of immigration
