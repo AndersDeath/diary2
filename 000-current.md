@@ -120,4 +120,4 @@ We drove well thorough Sevan lake. It was 3.5 hours trip. It was hard but the na
 
 # 30 August - Wednesday - Yerevan - 335 day of immigration
 
-Today I was living completely without laptop. I tried to be relaxed a stuff. We were in Tatev monastery which is one of the most important places of interest in Armenia. This place also has a specific sky road. I don't remember it in English but it's a cabin on the rope that moves people from place to place. This particular road was about 6 kilometers that is rare situation. I really enjoyed that road.
+Today I was living completely without laptop. I tried to be relaxed a stuff. We were in Tatev monastery which is one of the most important places of interest in Armenia. This place also has a specific sky road. I don't remember it in English but it's a cabin on the rope that moves people from place to place. This particular road was about 6 kilometers that is rare situation. I really enjoyed that road. We spent more that 2.40 hour in the car in one direction.
