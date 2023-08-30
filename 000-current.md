@@ -120,4 +120,4 @@ We drove well thorough Sevan lake. It was 3.5 hours trip. It was hard but the na
 
 # 30 August - Wednesday - Yerevan - 335 day of immigration
 
-Today I was living complitely without laptop.
+Today I was living complitely without laptop. I tried to be relaxed a stuff.
