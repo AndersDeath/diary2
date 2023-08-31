@@ -124,4 +124,4 @@ Today I was living completely without laptop. I tried to be relaxed a stuff. We 
 
 # 31 August - Thursday - Yerevan - 336 day of immigration
 
-We went back home today. The trip was really cool. I will remember it. I returned a car and resolved all obligations I had. So about the place where we were. The nice dog lives here. She has two puppies that are also nice and very friendly. Funny cat lives there as well. He is still a kitty and very funny. Today I also did nothing. Tomorrow I will proceed working on my portfolio and test tasks.
+We went back home today. The trip was really cool. I will remember it. I returned a car and resolved all obligations I had. So about the place where we were. The nice dog lives here. She has two puppies that are also nice and very friendly. Funny cat lives there as well. He is still a kitty and very funny. Today I also did nothing. Tomorrow I will proceed working on my portfolio and test tasks. I will try to push things further with Wunderflats.
