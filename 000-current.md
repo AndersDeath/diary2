@@ -124,4 +124,4 @@ Today I was living completely without laptop. I tried to be relaxed a stuff. We 
 
 # 31 August - Thursday - Yerevan - 336 day of immigration
 
-We went back home today.
+We went back home today. The trip was really cool.
