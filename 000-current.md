@@ -128,4 +128,4 @@ We went back home today. The trip was really cool. I will remember it. I returne
 
 # 01 September - Friday - Yerevan - 337 day of immigration
 
-The 
+The summer has gone.
