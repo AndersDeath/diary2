@@ -5,4 +5,4 @@ The summer has gone. I did a test task for wunderflats today. I enjoyed this cod
 
 # 02 September - Saturday - Yerevan - 338 day of immigration
 
-So, Today I was in dentist's cabinet again. Everything went well and I will probably save this tooth. Me and Ksusha also were walking a bit in the city center. The hardest thing is the weather. Today was about 35 degrees. By the way the autumn is already here. It's absolutely impossible heat for Saint-Petersburg.
+So, Today I was in dentist's cabinet again. Everything went well and I will probably save this tooth. Me and Ksusha also were walking a bit in the city center. The hardest thing is the weather. Today was about 35 degrees. By the way the autumn is already here. It's absolutely impossible heat for Saint-Petersburg. Despite this fact I miss home.
