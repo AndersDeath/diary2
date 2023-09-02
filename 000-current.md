@@ -4,3 +4,5 @@ The summer has gone. I did a test task for wunderflats today. I enjoyed this cod
 
 
 # 02 September - Saturday - Yerevan - 338 day of immigration
+
+So, Today I was in dentist's 
