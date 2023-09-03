@@ -9,4 +9,4 @@ So, Today I was in dentist's cabinet again. Everything went well and I will prob
 
 # 03 September - Sunday - Yerevan - 339 day of immigration
 
-Today is a final day of mu current vacation. I rested a bit and this is good. I even returned to meditation and yoga. Only one week and I found power for it again.
+Today is a final day of mu current vacation. I rested a bit and this is good. I even returned to meditation and yoga. Only one week and I found power for it again. I also reviewed a contract with XU company.
