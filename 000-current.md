@@ -13,4 +13,4 @@ Today is a final day of mu current vacation. I rested a bit and this is good. I 
 
 # 04 September - Monday - Yerevan - 340 day of immigration
 
-The first working day was nice and hard. Unfortunately I didn't get an answer from 
+The first working day was nice and hard. Unfortunately I didn't get an answer from the wunderflats.
