@@ -17,4 +17,4 @@ The first working day was nice and hard. Unfortunately I didn't get an answer fr
 
 # 05 September - Tuesday - Yerevan - 341 day of immigration
 
-This working day finally finished. I fucked up today's interview.
+This working day finally finished. I fucked up today's interview. I could not do a task and I also 
