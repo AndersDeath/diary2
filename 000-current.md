@@ -16,3 +16,5 @@ Today is a final day of mu current vacation. I rested a bit and this is good. I 
 The first working day was nice and hard. Unfortunately I didn't get an answer from the wunderflats. Maybe tomorrow they will text something to me. I found that I had a plan to write an article about how to get data from github. So, I refactored code a bit and when I have free time the writing process will be started. I have some plan to become an author on hackernoon. Anyway I also found a way how to demonstrate some important info on my portfolio website. In general day was hard but a bit boring. All these steps are quite tiresome.
 
 # 05 September - Tuesday - Yerevan - 341 day of immigration
+
+This working day finally finished.
