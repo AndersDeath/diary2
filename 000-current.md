@@ -17,4 +17,4 @@ The first working day was nice and hard. Unfortunately I didn't get an answer fr
 
 # 05 September - Tuesday - Yerevan - 341 day of immigration
 
-This working day finally finished. I fucked up today's interview. I could not do a task and I also spoke a lot of shit. so, I am upset. Anyway I did something good today despite the fact that I wasn't in good mood. Yesterday I felt nice, but today I am bad. It's bullshit. Because of that interview I don't want to do anything. I did everything wrong. Anyway it's good lesson for me. I am really want to finish all this horing process as soon as possible. 
+This working day finally finished. I fucked up today's interview. I could not do a task and I also spoke a lot of shit. so, I am upset. Anyway I did something good today despite the fact that I wasn't in good mood. Yesterday I felt nice, but today I am bad. It's bullshit. Because of that interview I don't want to do anything. I did everything wrong. Anyway it's good lesson for me. I am really want to finish all this hiring process as soon as possible. 
