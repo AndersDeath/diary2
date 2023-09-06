@@ -21,4 +21,4 @@ This working day finally finished. I fucked up today's interview. I could not do
 
 # 06 September - Wednesday - Yerevan - 342 day of immigration
 
-The day was nice and hard. I even did something for drsmile. Ususally it's hard.
+The day was nice and hard. I even did something for drsmile. Ususally it's hard. I was in Podologist cabinet
