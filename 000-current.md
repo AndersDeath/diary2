@@ -25,4 +25,4 @@ The day was nice and hard. I even did something for drsmile. Ususally it's hard.
 
 # 07 September - Thursday - Yerevan - 343 day of immigration
 
-So, I got an invitation to wunderflats.
+So, I got an invitation to wunderflats. I will have a technical call tomorrow.
