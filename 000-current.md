@@ -25,4 +25,4 @@ The day was nice and hard. I even did something for drsmile. Ususally it's hard.
 
 # 07 September - Thursday - Yerevan - 343 day of immigration
 
-So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I hope everything will be good. Also DRS MILE again didn't send money to me.
+So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I hope everything will be good. Also DRS MILE again didn't send money to me. It's awful bullshit that destroyrs me.
