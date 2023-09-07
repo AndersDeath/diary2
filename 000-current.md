@@ -24,3 +24,5 @@ This working day finally finished. I fucked up today's interview. I could not do
 The day was nice and hard. I even did something for drsmile. Ususally it's hard. I was in Podologist cabinet she performed procedures on my legs. I hope that I will be ok soon and will not think about current problem. I hate it and I am tiered of it. also I had two interviews today. the first one was with startup and another one with General electric healthcare division. It was interesting but long. I did my best. I also got a rejection for yesterday's interview. I would be really surprised if I passed it. Everything finished like I expected - rejection. 
 
 # 07 September - Thursday - Yerevan - 343 day of immigration
+
+So, I got an invitation to wunderflats.
