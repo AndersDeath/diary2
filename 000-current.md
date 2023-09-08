@@ -29,4 +29,4 @@ So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I
 
 # 08 September - Friday - Yerevan - 344 day of immigration
 
-So, I had an interview with Wunderflats today. It was absolutely controversial. I don't expect a good result. i hope they will give me an answer on monday. I also finally got money from fucking financial department. I also updated portfolio webste
+So, I had an interview with Wunderflats today. It was absolutely controversial. I don't expect a good result. i hope they will give me an answer on monday. I also finally got money from fucking financial department. I also updated portfolio website.
