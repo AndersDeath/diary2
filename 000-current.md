@@ -29,4 +29,4 @@ So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I
 
 # 08 September - Friday - Yerevan - 344 day of immigration
 
-So, I had an interview with Wunderflats today.
+So, I had an interview with Wunderflats today. It was absolutely controversial.
