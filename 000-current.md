@@ -27,4 +27,4 @@ The day was nice and hard. I even did something for drsmile. Usually it's hard. 
 
 So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I hope everything will be good. Also DRS MILE again didn't send money to me. It's awful bullshit that destroys me. I am happy that this will be finished soon. I don't want to be there anymore. The product  turned to moe interesting direction, but management level sucks. Besides that I improved portfolio website significantly. Tomorrow I will proceed working on it because I cannot do anything that are related to DR SMILE. I pissed of the money situation. I also improved holy theory project a bit and created two other scripts that generate html and markdown websites.
 
-# 08 September - Thursday - Yerevan - 344 day of immigration
+# 08 September - Friday - Yerevan - 344 day of immigration
