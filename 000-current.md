@@ -30,3 +30,5 @@ So, I got an invitation to Wunderflats. I will have a technical call tomorrow. I
 # 08 September - Friday - Yerevan - 344 day of immigration
 
 So, I had an interview with Wunderflats today. It was absolutely controversial. I don't expect a good result. i hope they will give me an answer on monday. I also finally got money from fucking financial department. I also updated portfolio website. I still working on articles that I will finish soon. THis is extremely important. I have much more time because the number of interviews decreased significantly. However I pissed of DR SMILE again. This situation with money, absence of answer about three years working vacation. I even think bad about my shared plan that they have to me to me after december in January. Bullshit all this stuff. I just don't believe to them and I will be extremely surprised if they send that paycheck to me.
+
+# 09 September - Saturday - Yerevan - 345 day of immigration
