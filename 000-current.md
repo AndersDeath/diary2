@@ -33,4 +33,4 @@ So, I had an interview with Wunderflats today. It was absolutely controversial. 
 
 # 09 September - Saturday - Yerevan - 345 day of immigration
 
-Today was a nice holiday. I visited my dentist. She healed my another tooth. It's cool. Me and Ksusha also were walking in the city center as usual.
+Today was a nice holiday. I visited my dentist. She healed my another tooth. It's cool. Me and Ksusha also were walking in the city center as usual. After that I called to Oleg finally.
