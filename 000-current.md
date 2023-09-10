@@ -36,4 +36,4 @@ Today was a nice holiday. I visited my dentist. She healed my another tooth. It'
 
 # 10 September - Sunday - Yerevan - 346 day of immigration
 
-This day was nice. we were walking, I stared editing video about Barcelona finally. Tomorrow will be good day all other thinks with happer.
+This day was nice. we were walking, I stared editing video about Barcelona finally. Tomorrow will be good day all other thinks with happen
