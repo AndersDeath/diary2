@@ -40,4 +40,4 @@ This day was nice. we were walking, I stared editing video about Barcelona final
 
 # 11 September - Monday - Yerevan - 347 day of immigration
 
-I fucked up Wunderflats.
+I fucked up Wunderflats. I didn't pass technical interview.
