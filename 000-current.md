@@ -40,4 +40,4 @@ This day was nice. we were walking, I stared editing video about Barcelona final
 
 # 11 September - Monday - Yerevan - 347 day of immigration
 
-I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and fucked this up. It's so stupid. I am really disappointed because I had hope. In fact my xu offer is't the best think that I want to have but I am so tiered of this configuration of life. So, anyway I need to sign a contract with XU and then move to Berlin. They will be my ticket to Germany.
+I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and fucked this up. It's so stupid. I am really disappointed because I had hope. In fact my xu offer is't the best think that I want to have but I am so tiered of this configuration of life. So, anyway I need to sign a contract with XU and then move to Berlin. They will be my ticket to Germany. after some rest and preparations I will proceed looking for managerial position.
