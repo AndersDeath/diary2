@@ -42,3 +42,6 @@ This day was nice. we were walking, I stared editing video about Barcelona final
 
 I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and fucked this up. It's so stupid. I am really disappointed because I had hope. In fact my xu offer is't the best think that I want to have but I am so tiered of this configuration of life. So, anyway I need to sign a contract with XU and then move to Berlin. They will be my ticket to Germany. after some rest and preparations I will proceed looking for managerial position. my plan is to relocate my body, make documents and find another place for work. It will be relatively simple I suppose. In general this day was good but I was nervous because of waiting some answer from wunderflats. I improved some important parts of my portfolio and proceeded working on github article. I will release all this things soon. I want to buy bolshakov.tech and to place my portfolio there. So yes. Another good news that our passports are going to us from Moscow. BLS will receive them soon. After that I need to take my russian passport from embassy and then all will be good.
 
+# 12 September - Tuesday - Yerevan - 348 day of immigration
+
+18.
