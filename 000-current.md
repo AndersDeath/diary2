@@ -44,4 +44,4 @@ I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and f
 
 # 12 September - Tuesday - Yerevan - 348 day of immigration
 
-18.
+18.45 Yerevan's time. I signed a contract with The XU.
