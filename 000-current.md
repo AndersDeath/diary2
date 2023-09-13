@@ -48,4 +48,4 @@ I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and f
 
 # 13 September - Wednesday - Yerevan - 349 day of immigration
 
-The day was long and nice.
+The day was long and nice. I was implementing some stuff for DR SMILE and was working of portfolio.
