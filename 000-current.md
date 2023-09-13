@@ -48,4 +48,4 @@ I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and f
 
 # 13 September - Wednesday - Yerevan - 349 day of immigration
 
-The day was long and nice. I was implementing some stuff for DR SMILE and was working of portfolio. I also need to prepare some code for demonstration to Oxolo company. I will finish with this tomorrow. I am also going to Dentist tomorrow. It will be control checkup after extraction of three teeth.
+The day was long and nice. I was implementing some stuff for DR SMILE and was working of portfolio. I also need to prepare some code for demonstration to Oxolo company. I will finish with this tomorrow. I am also going to Dentist tomorrow. It will be control checkup after extraction of three teeth. Additional
