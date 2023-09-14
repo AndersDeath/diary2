@@ -52,4 +52,4 @@ The day was long and nice. I was implementing some stuff for DR SMILE and was wo
 
 # 14 September - Thursday - Yerevan - 350 day of immigration
 
-Today we got visas to Spain. They gave us them for one months. Also we are about to start applying for a working visa to Germany. It will be interesting and challenging thing. I also closed a couple of tasks for DR SMILE which is nice. Honestly this day finished so fast that I don't know what to add. The other thing is that I was in Dentist office and it's good. The first half of the day we were working from Cafe and it's cool. I still cannot understand that I will live in Berlin. It's so weird.
+Today we got visas to Spain. They gave us them for one months. Also we are about to start applying for a working visa to Germany. It will be interesting and challenging thing. I also closed a couple of tasks for DR SMILE which is nice. Honestly this day finished so fast that I don't know what to add. The other thing is that I was in Dentist office and it's good. The first half of the day we were working from Cafe and it's cool. I still cannot understand that I will live in Berlin. It's so weird. I should be honest to you.
