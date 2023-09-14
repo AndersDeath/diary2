@@ -52,4 +52,4 @@ The day was long and nice. I was implementing some stuff for DR SMILE and was wo
 
 # 14 September - Thursday - Yerevan - 350 day of immigration
 
-Today we got visas to Spain. they gave us them for one months.
+Today we got visas to Spain. They gave us them for one months.
