@@ -51,3 +51,5 @@ I fucked up Wunderflats. I didn't pass technical interview. I wasn't ready and f
 The day was long and nice. I was implementing some stuff for DR SMILE and was working of portfolio. I also need to prepare some code for demonstration to Oxolo company. I will finish with this tomorrow. I am also going to Dentist tomorrow. It will be control checkup after extraction of three teeth. I am quite tired and stuff. I also started doing some sport again. I don't feel anything about it yet, but maybe it will be good thing on long distance. I don't like sport and it's really hard for me to introduce it to my daily life. The weather in Yerevan became cold. It's worse than I expected. 35 degrees have gone and now it's 15 degrees outside. Huge difference isn't it?
 
 # 14 September - Thursday - Yerevan - 350 day of immigration
+
+Today we got visas to Spain.
