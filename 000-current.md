@@ -56,4 +56,4 @@ Today we got visas to Spain. They gave us them for one months. Also we are about
 
 # 15 September - Friday - Yerevan - 351 day of immigration
 
-Finally today is Friday. I am a bit tiered as usual. I did a lot of work today. I was working on portfolio and other stuff. I decided to translate my two articles written in Russian to English.
+Finally today is Friday. I am a bit tiered as usual. I did a lot of work today. I was working on portfolio and other stuff. I decided to translate my two articles written in Russian to English. I also was coding a bit.
