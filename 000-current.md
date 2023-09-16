@@ -58,4 +58,4 @@ Today we got visas to Spain. They gave us them for one months. Also we are about
 
 Finally today is Friday. I am a bit tiered as usual. I did a lot of work today. I was working on portfolio and other stuff. I decided to translate my two articles written in Russian to English. I also was coding a bit. I also had a conversation with a product manager from General electric. He shared some cool insights to me. In common it's conversation was nice. The day was calm and hard. I am happy that it finished.
 
-# 16 September -  - Yerevan - 351 day of immigration
+# 16 September - Saturday - Yerevan - 352 day of immigration
