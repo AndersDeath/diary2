@@ -60,4 +60,4 @@ Finally today is Friday. I am a bit tiered as usual. I did a lot of work today. 
 
 # 16 September - Saturday - Yerevan - 352 day of immigration
 
-I visited barber today.
+I visited barber today. It's high probability that 
