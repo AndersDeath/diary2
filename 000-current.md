@@ -64,4 +64,4 @@ I visited barber today. It's high probability that I will visit him one more tim
 
 # 17 September - Sunday - Yerevan - 353 day of immigration
 
-THis day wasn't nice. I felt bad. My back is in bad condition. It hurts. I need to start doing sport again. I will do it tomorrow morning. It's an important thing. I don't pay enough attention to my body. I am 35 years old and it's the edge when I need to start doing something with it. Additionally I was working a lot on one of my articles. I also changed structure of Holy Theory. I made architectural mistake initially.
+THis day wasn't nice. I felt bad. My back is in bad condition. It hurts. I need to start doing sport again. I will do it tomorrow morning. It's an important thing. I don't pay enough attention to my body. I am 35 years old and it's the edge when I need to start doing something with it. Additionally I was working a lot on one of my articles. I also changed structure of Holy Theory. I made architectural mistake initially and now It's a time to fix it.
