@@ -64,4 +64,4 @@ I visited barber today. It's high probability that I will visit him one more tim
 
 # 17 September - Sunday - Yerevan - 353 day of immigration
 
-THis day wasn't nice. I felt bad.
+THis day wasn't nice. I felt bad. My back is in bad conditions.
