@@ -65,3 +65,5 @@ I visited barber today. It's high probability that I will visit him one more tim
 # 17 September - Sunday - Yerevan - 353 day of immigration
 
 THis day wasn't nice. I felt bad. My back is in bad condition. It hurts. I need to start doing sport again. I will do it tomorrow morning. It's an important thing. I don't pay enough attention to my body. I am 35 years old and it's the edge when I need to start doing something with it. Additionally I was working a lot on one of my articles. I also changed structure of Holy Theory. I made architectural mistake initially and now It's a time to fix it. Ksusha did a great thing and prepared documents for getting D visa and blue card. She helps me a lot. We also was walking today and was sitting in Syrovarnya. It's an expensive restaurant in the city center.
+
+# 18 September - Monday - Yerevan - 354 day of immigration
