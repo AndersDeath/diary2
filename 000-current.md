@@ -68,4 +68,4 @@ THis day wasn't nice. I felt bad. My back is in bad condition. It hurts. I need 
 
 # 18 September - Monday - Yerevan - 354 day of immigration
 
-After getting thing that I will leave DR SMiLE
+After getting thing that I will leave DR SMiLE it becomes harder for me to make tasks.
