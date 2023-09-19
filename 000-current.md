@@ -72,4 +72,4 @@ After getting thing that I will leave DR SMiLE it becomes harder for me to make 
 
 # 19 September - Tuesday - Yerevan - 355 day of immigration
 
-THis day was nice. I finally got my second passport in Russian embassy. It was really easy. I also bought a present for Ksusha. I will give her a book and a small bag for little things. The another bad thing happened today. Azerbaidzhan attacked Artzakh. It's a armenian populated place and agrued territory in this region. I got passport and after that a huge crowd blocked Russian embassy. They force russian peacemakers to start doing something in or
+THis day was nice. I finally got my second passport in Russian embassy. It was really easy. I also bought a present for Ksusha. I will give her a book and a small bag for little things. The another bad thing happened today. Azerbaidzhan attacked Artzakh. It's a armenian populated place and agrued territory in this region. I got passport and after that a huge crowd blocked Russian embassy. They force russian peacemakers to start doing something in order to stop this attack.
