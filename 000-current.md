@@ -72,4 +72,4 @@ After getting thing that I will leave DR SMiLE it becomes harder for me to make 
 
 # 19 September - Tuesday - Yerevan - 355 day of immigration
 
-THis day was nice.
+THis day was nice. I finally got my second passport in Russian embassy.
