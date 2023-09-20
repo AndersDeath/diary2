@@ -76,4 +76,4 @@ THis day was nice. I finally got my second passport in Russian embassy. It was r
 
 # 20 September - Wednesday - Yerevan - 356 day of immigration
 
-First layoffs happaned.
+First layoffs happened. I lost two members in my team. Ryan and Anton
