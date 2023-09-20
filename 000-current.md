@@ -76,4 +76,4 @@ THis day was nice. I finally got my second passport in Russian embassy. It was r
 
 # 20 September - Wednesday - Yerevan - 356 day of immigration
 
-First layoffs happened. I lost two members in my team. Ryan and Anton will not work in the team. It's bad for me because I will have to support the majority of managerial tasks that I moved to them. It's huge loss for me. I need to work in this env for the next two months and hopefully I will be in another company. Additionally DRSMILE closed business in Poland.
+First layoffs happened. I lost two members in my team. Ryan and Anton will not work in the team. It's bad for me because I will have to support the majority of managerial tasks that I moved to them. It's huge loss for me. I need to work in this env for the next two months and hopefully I will be in another company. Additionally DRSMILE closed business in Poland. A polish guy destroyed their business there by facebook group.
