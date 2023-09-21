@@ -80,4 +80,4 @@ First layoffs happened. I lost two members in my team. Ryan and Anton will not w
 
 # 21 September - Thursday - Yerevan - 357 day of immigration
 
-Well, the day is almost finished.
+Well, the day is almost finished. For a some period of time I tried to understand what I can do in the situation.
