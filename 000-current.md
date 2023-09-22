@@ -84,3 +84,4 @@ Well, the day is almost finished. For a some period of time I tried to understan
 
 # 22 September - Friday - Yerevan - 358 day of immigration
 
+They kicked me from lead position.
