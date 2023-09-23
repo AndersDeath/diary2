@@ -88,4 +88,4 @@ They kicked me from lead position. It's sad but not a huge problem. I got an app
 
 # 23 September - Saturday - Yerevan - 359 day of immigration
 
-I experienced huge pain in my head today. It's something crazy. I wanted to drink a small beer bottle in Hard Rock cafe but I got just Pepsi and burger. In general this day was dedicated to preparations for moving to Germany. I learned how insurance works there 
+I experienced huge pain in my head today. It's something crazy. I wanted to drink a small beer bottle in Hard Rock cafe but I got just Pepsi and burger. In general this day was dedicated to preparations for moving to Germany. I learned how insurance works there and booked a Berlin's hotel for a month. 
