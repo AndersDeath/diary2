@@ -88,4 +88,4 @@ They kicked me from lead position. It's sad but not a huge problem. I got an app
 
 # 23 September - Saturday - Yerevan - 359 day of immigration
 
-I experienced 
+I experienced huge pain in my head today. 
