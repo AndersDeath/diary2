@@ -92,4 +92,4 @@ I experienced huge pain in my head today. It's something crazy. I wanted to drin
 
 # 24 September - Sunday - Yerevan - 360 day of immigration
 
-I feel headache 
+I feel headache for the second day.
