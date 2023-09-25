@@ -96,4 +96,4 @@ I feel headache for the second day. I was thinking about Germany for the whole d
 
 # 25 September - Monday - Yerevan - 361 day of immigration
 
-Today I just was working on my own stuff. I finally back to work on Github article. I finished with the first draft. Tomorrow I will working on text grooming. 
+Today I just was working on my own stuff. I finally back to work on Github article. I finished with the first draft. Tomorrow I will working on text grooming. Additionally I released another part of holy theory.
