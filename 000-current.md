@@ -100,4 +100,4 @@ Today I just was working on my own stuff. I finally back to work on Github artic
 
 # 26 September - Tuesday - Yerevan - 362 day of immigration
 
-the day finished and I am happy about it. I was working on some portfolio stuff today. Besides that I finished some tasks for DR SMILE. The atmosphere is still heavy there. It was a huge shock for everybody. However I organized some activities for Ksushas birthday. I also prepared a present for her.
+the day finished and I am happy about it. I was working on some portfolio stuff today. Besides that I finished some tasks for DR SMILE. The atmosphere is still heavy there. It was a huge shock for everybody. However I organized some activities for Ksushas birthday. I also prepared a present for her. I will do all stuff about that tomorrow.
