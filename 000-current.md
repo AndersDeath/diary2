@@ -100,4 +100,4 @@ Today I just was working on my own stuff. I finally back to work on Github artic
 
 # 26 September - Tuesday - Yerevan - 362 day of immigration
 
-the day finished and I am happy about it.
+the day finished and I am happy about it. I was working on some portfolio stuff today.
