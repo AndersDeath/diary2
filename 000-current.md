@@ -104,4 +104,4 @@ the day finished and I am happy about it. I was working on some portfolio stuff 
 
 # 27 September - Wednesday - Yerevan - 363 day of immigration
 
-Today is Ksusha's birthday. I presented a book and small purse to her. Additionally I bought flowers. They look nice. I also was in Dentist office today. She fixed another two teeth. It was the last such visit for me be
+Today is Ksusha's birthday. I presented a book and small purse to her. Additionally I bought flowers. They look nice. I also was in Dentist office today. She fixed another two teeth. It was the last such visit for me before moving to Berlin.
