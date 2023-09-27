@@ -104,4 +104,4 @@ the day finished and I am happy about it. I was working on some portfolio stuff 
 
 # 27 September - Wednesday - Yerevan - 363 day of immigration
 
-Today is Ksusha's birthday.
+Today is Ksusha's birthday. I presented a book and small purse to her.
