@@ -108,3 +108,4 @@ Today is Ksusha's birthday. I presented a book and small purse to her. Additiona
 
 # 28 September - Thursday - Yerevan - 364 day of immigration
 
+I am still in shock of free time amount I currently have.
