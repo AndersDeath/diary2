@@ -112,4 +112,4 @@ I am still in shock of free time amount I currently have. It's something amazing
 
 # 29 September - Friday - Yerevan - 365 day of immigration
 
-Today is my 365th day of immigration and tomorrow I am flying to Saint-Petersburg. I will no count it as coming back because it will be a business trip. I need to bring my documents to Germany visa center and then go back home - Yerevan. I was working for a whole day on some interesting features and also I wrote a bit code. Maybe it everything is ok I will work on airplane a bit.
+Today is my 365th day of immigration and tomorrow I am flying to Saint-Petersburg. I will no count it as coming back because it will be a business trip. I need to bring my documents to Germany visa center and then go back home - Yerevan. I was working for a whole day on some interesting features and also I wrote a bit code. Maybe it everything is ok I will work on airplane a bit. Actually everything looks nice. I 
