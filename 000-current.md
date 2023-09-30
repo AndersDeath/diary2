@@ -116,4 +116,4 @@ Today is my 365th day of immigration and tomorrow I am flying to Saint-Petersbur
 
 # 30 September - Saturday - Yerevan - Saint-Petersburg - 366 day of immigration
 
-So, I am sitting in the airport now. The boarding is quite soon and in several hours I will be in my home city. I
+So, I am sitting in the airport now. The boarding is quite soon and in several hours I will be in my home city. I spent more time on immigration control.
