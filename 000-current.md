@@ -1,3 +1,3 @@
 # 01 October - Sunday - Saint-Petersburg - 367 day of immigration
 
-I met Mom and aunt Anya today.
+I met Mom and aunt Anya today. I was happy to see them.
