@@ -4,4 +4,4 @@ I met Mom and aunt Anya today. I was happy to see them. I met mother in the city
 
 # 02 October - Monday - Saint-Petersburg - Rzhev - 368 day of immigration
 
-So, My application is in visa center. We spent 2.5 hours there. It was really crazy. One hour was burned for checking my document pocket and another 40 minutes for getting fingerprints. Other minutes were burned for waiting, payments and wait
+So, My application is in visa center. We spent 2.5 hours there. It was really crazy. One hour was burned for checking my document pocket and another 40 minutes for getting fingerprints. Other minutes were burned for waiting, payments and waiting, waiting,
