@@ -8,4 +8,4 @@ So, My application is in visa center. We spent 2.5 hours there. It was really cr
 
 # 03 October - Tuesday - Rzhev - 369 day of immigration
 
-Today I was working on my portfolio a lot. The scope from DS is still unclear.
+Today I was working on my portfolio a lot. The scope from DS is still unclear. I just ignore a lot of things there. 
