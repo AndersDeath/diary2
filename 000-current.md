@@ -8,4 +8,4 @@ So, My application is in visa center. We spent 2.5 hours there. It was really cr
 
 # 03 October - Tuesday - Rzhev - 369 day of immigration
 
-Today I was working on my portfolio a lot. The scope from DS is still unclear. I just ignore a lot of things there. Maybe today someone can give me a direction for work. I don't care anymore. Fuck them. Also ME and Ksusha were in Arabica cafe which is in the city center of Rzhev. It's nice place with average food but with great coffee. It's one of the best cafes I even been. After that we visited Ksusha's grandmother. She is 80 years old but looks good despite the cancer disease . She is 
+Today I was working on my portfolio a lot. The scope from DS is still unclear. I just ignore a lot of things there. Maybe today someone can give me a direction for work. I don't care anymore. Fuck them. Also ME and Ksusha were in Arabica cafe which is in the city center of Rzhev. It's nice place with average food but with great coffee. It's one of the best cafes I even been. After that we visited Ksusha's grandmother. She is 80 years old but looks good despite the cancer disease . She is in remission now.
