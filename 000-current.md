@@ -12,4 +12,4 @@ Today I was working on my portfolio a lot. The scope from DS is still unclear. I
 
 # 04 October - Tuesday - Rzhev - Moscow- 370 day of immigration
 
-So, I am writing these lines sitting on
+So, I am writing these lines sitting on chair in Rzhev.
