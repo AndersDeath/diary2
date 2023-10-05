@@ -16,4 +16,4 @@ So, I am writing these lines sitting on chair in Rzhev. In 30 minutes we are goi
 
 # 05 October - Thursday - Moscow - Yerevan- 371 day of immigration
 
-I woke in Maxima hotel at Domodedovo airport. It's quite nice place for waiting for a flight when you don't want to wait something.
+I woke in Maxima hotel at Domodedovo airport. It's quite nice place for waiting for a flight when you don't want to pay a lot of money withing Moscow.
