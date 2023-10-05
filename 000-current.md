@@ -16,4 +16,4 @@ So, I am writing these lines sitting on chair in Rzhev. In 30 minutes we are goi
 
 # 05 October - Thursday - Moscow - Yerevan- 371 day of immigration
 
-I woke in Maxima hotel at Domodedovo airport. It's quite nice place for waiting for a flight when you don't want to pay a lot of money withing Moscow. I crossed both Russian and Armenian borders very well. I didn't have any problems. However an officer on Armenian border had doubts about Ksushas passport. The problem is
+I woke in Maxima hotel at Domodedovo airport. It's quite nice place for waiting for a flight when you don't want to pay a lot of money withing Moscow. I crossed both Russian and Armenian borders very well. I didn't have any problems. However an officer on Armenian border had doubts about Ksushas passport. The problem is that some of them don't
