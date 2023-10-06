@@ -24,4 +24,4 @@ Additionally I felt really bad in a plane today. The air pressure changes signif
 
 # 06 October - Friday - Yerevan - 372 day of immigration
 
-I still feel bad.
+I still feel bad. This cold is annoying me.
