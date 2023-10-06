@@ -24,4 +24,4 @@ Additionally I felt really bad in a plane today. The air pressure changes signif
 
 # 06 October - Friday - Yerevan - 372 day of immigration
 
-I still feel bad. This cold is annoying me, but Friday makes me happy. Today I finished a lot of tasks. Despite of my condition I was productive. I am happy about that because
+I still feel bad. This cold is annoying me, but Friday makes me happy. Today I finished a lot of tasks. Despite of my condition I was productive. I am happy about that because yesterday I though that I would die.
