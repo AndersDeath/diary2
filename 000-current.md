@@ -23,3 +23,5 @@ Also I need to add couple of sentences about yesterday's road from Moscow to Rzh
 Additionally I felt really bad in a plane today. The air pressure changes significantly plus runny nose bothered me. Finally I experienced huge pain in my eyes. It was so horrible. Hopefully I had some painkillers that helped me. I need to start doing sport again. I feel how It became hard for me to live in this body.
 
 # 06 October - Friday - Yerevan - 372 day of immigration
+
+I still feel bad.
