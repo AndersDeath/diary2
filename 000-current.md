@@ -26,4 +26,4 @@ Additionally I felt really bad in a plane today. The air pressure changes signif
 
 I still feel bad. This cold is annoying me, but Friday makes me happy. Today I finished a lot of tasks. Despite of my condition I was productive. I am happy about that because yesterday I though that I would die. I felt so bad in airplane. In general, I groomed my github a bit and found several candidates for portfolio. Additionally I created a monorepo that I will use for xu preparations. I need to recall some principles of working in this setup. Especially how to organize deploy and other things. Unfortunately I also have to recall how Angular works. I gradually migrating to Reactjs but XU works with Angular. Also I need to recall how to work with Nestjs. A lot of things should be done. All this shit is important. I need to work well and then leave the company. MY reputation is the most important thing here.
 
-# 07 October - Friday - Yerevan - 372 day of immigration
+# 07 October - Saturday - Yerevan - 373 day of immigration
