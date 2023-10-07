@@ -28,4 +28,4 @@ I still feel bad. This cold is annoying me, but Friday makes me happy. Today I f
 
 # 07 October - Saturday - Yerevan - 373 day of immigration
 
-Today I didn't feel well again. My illness is still going on. I wish to be better tomorrow. however I found some energy for working on my article today. Also me and Ksusha prepared a schedule for German lessons. We are going to start learning this language from the next week.
+Today I didn't feel well again. My illness is still going on. I wish to be better tomorrow. however I found some energy for working on my article today. Also me and Ksusha prepared a schedule for German lessons. We are going to start learning this language from the next week. I'll do it actually from monday. I will learn
