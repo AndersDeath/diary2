@@ -32,4 +32,4 @@ Today I didn't feel well again. My illness is still going on. I wish to be bette
 
 # 08 October - Sunday - Yerevan - 374 day of immigration
 
-The classic Sunday has been finished. I did a lot of programming things and spent a lot of time with Ksusha. Kushas's mother presented 100 dollars to me and Ksusha for our birthdays. So, Today we were in cosmetic shops and was looking for some cool things for Ksusha. I ordered apple pencil on Wildberries. In 20 days it will be here. I hope that this thing will be useful for me. I will see.  
+The classic Sunday has been finished. I did a lot of programming things and spent a lot of time with Ksusha. Kushas's mother presented 100 dollars to me and Ksusha for our birthdays. So, Today we were in cosmetic shops and was looking for some cool things for Ksusha. I ordered apple pencil on Wildberries. In 20 days it will be here. I hope that this thing will be useful for me. I will see. About illness. I 
