@@ -32,4 +32,4 @@ Today I didn't feel well again. My illness is still going on. I wish to be bette
 
 # 08 October - Sunday - Yerevan - 374 day of immigration
 
-The classic Sunday has been finished. I did a lot of programming things and spent a lot of time with Ksusha.
+The classic Sunday has been finished. I did a lot of programming things and spent a lot of time with Ksusha. Kushas's mother presented 100 dollars to me and Ksusha for our birthdays.
