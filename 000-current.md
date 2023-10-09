@@ -36,4 +36,4 @@ The classic Sunday has been finished. I did a lot of programming things and spen
 
 # 09 October - Monday - Yerevan - 375 day of immigration
 
-Today I was working hard on Backend topics. I am going to have an interview tomorrow with one of companies.
+Today I was working hard on Backend topics. I am going to have an interview tomorrow with one of companies. I have no clue what I will have there but
