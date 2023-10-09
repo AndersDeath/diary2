@@ -36,4 +36,4 @@ The classic Sunday has been finished. I did a lot of programming things and spen
 
 # 09 October - Monday - Yerevan - 375 day of immigration
 
-Today I was working hard on Backend topics. I am going to have an interview tomorrow with one of companies. I have no clue what I will have there but maybe something good will happen. Additionally I was coding and fighting with graphql. I need to understand how to set up it on the backend side. The main thing for today is that I had the first German lesson in the morning. It was nice but quite useless because I know almost everything
+Today I was working hard on Backend topics. I am going to have an interview tomorrow with one of companies. I have no clue what I will have there but maybe something good will happen. Additionally I was coding and fighting with graphql. I need to understand how to set up it on the backend side. The main thing for today is that I had the first German lesson in the morning. It was nice but quite useless because I know almost everything I heard on that videos.
