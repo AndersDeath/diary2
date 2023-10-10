@@ -40,3 +40,4 @@ Today I was working hard on Backend topics. I am going to have an interview tomo
 
 # 10 October - Tuesday - Yerevan - 376 day of immigration
 
+Unfortunately I still feel bad.
