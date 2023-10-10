@@ -38,4 +38,4 @@ The classic Sunday has been finished. I did a lot of programming things and spen
 
 Today I was working hard on Backend topics. I am going to have an interview tomorrow with one of companies. I have no clue what I will have there but maybe something good will happen. Additionally I was coding and fighting with graphql. I need to understand how to set up it on the backend side. The main thing for today is that I had the first German lesson in the morning. It was nice but quite useless because I know almost everything I heard on that videos. However I know that something interesting will start soon. Additional cool thing is tha the course price is 3 dollars for me. 1.5 dollard for me and Ksusha. I like this kind of things. In general the day was nice I am tiered and want to have a rest. I will do it just after finishing writing this lines. Sometimes I think that this diary is the most boring thing is this universe.
 
-# 10 October - Monday - Yerevan - 376 day of immigration
+# 10 October - Tuesday - Yerevan - 376 day of immigration
