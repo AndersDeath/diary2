@@ -44,4 +44,4 @@ Unfortunately I still feel bad. This illness cannot leave me alone. However I wa
 
 # 11 October - Wednesday - Yerevan - 377 day of immigration
 
-Fucking shit, I still feel sick.
+Fucking shit, I still feel abd.
