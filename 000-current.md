@@ -48,3 +48,4 @@ Fucking shit, I still feel bad. I hate it. However tasks are still with me and I
 
 # 12 October - Thursday - Yerevan - 378 day of immigration
 
+Today I did a lot of things. I suppz
