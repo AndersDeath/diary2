@@ -47,3 +47,4 @@ Unfortunately I still feel bad. This illness cannot leave me alone. However I wa
 Fucking shit, I still feel bad. I hate it. However tasks are still with me and I have to do them. Today I was trying to understand things about Graphql. I thing that I understand some basics and it's nice. Additionally I started working on actual book. It's also cool. In the first part of the day I had a Spanish lesson. I decided to proceed learning it despite the shift of my focus to German. It's big and important thing. Also I feel how more time I have now for my own tasks. Absence of leading tasks make me happier. It's like to be on vacation. It's incredible. Very shortly we are going to walk with Ksusha. The weather is relatively fine and we didn't go out yesterday. MAybe I will write some lines after this, but I am not sure.
 
 # 12 October - Thursday - Yerevan - 378 day of immigration
+
