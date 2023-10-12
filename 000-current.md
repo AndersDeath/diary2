@@ -48,4 +48,4 @@ Fucking shit, I still feel bad. I hate it. However tasks are still with me and I
 
 # 12 October - Thursday - Yerevan - 378 day of immigration
 
-Today I did a lot of things. I suppose it's the most favorite phrase in this diary. However, I understood some stuff from GraphQL things. It was hard and unusual. At the same time it's necessary to have this backend crush course for me. I still think a lot about my future
+Today I did a lot of things. I suppose it's the most favorite phrase in this diary. However, I understood some stuff from GraphQL things. It was hard and unusual. At the same time it's necessary to have this backend crush course for me. I still think a lot about my future.
