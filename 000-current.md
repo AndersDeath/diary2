@@ -52,4 +52,4 @@ Today I did a lot of things. I suppose it's the most favorite phrase in this dia
 
 # 13 October - Friday - Yerevan - 379 day of immigration
 
-So, I finally understood how to resolve some queries to graphql. It's really cool and nice. I've been doing some preparations fo XU company. If everything is ok with visa I will start working with backend soon.
+So, I finally understood how to resolve some queries to graphql. It's really cool and nice. I've been doing some preparations fo XU company. If everything is ok with visa I will start working with backend soon. Initially I was sceptic about 
