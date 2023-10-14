@@ -56,4 +56,4 @@ So, I finally understood how to resolve some queries to graphql. It's really coo
 
 # 14 October - Saturday - Yerevan - 380 day of immigration
 
-As you know Saturday is a cheat meal day. Only then I eat 
+As you know Saturday is a cheat meal day. Only then I eat bread and 
