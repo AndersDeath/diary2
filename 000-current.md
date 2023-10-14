@@ -56,4 +56,4 @@ So, I finally understood how to resolve some queries to graphql. It's really coo
 
 # 14 October - Saturday - Yerevan - 380 day of immigration
 
-As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and drink soda, and coffee. The first reason is that I don't want to be fat the second one is that bread is bad for teeth, and the third one it that 
+As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and drink soda, and coffee. The first reason is that I don't want to be fat the second one is that bread is bad for teeth, and the third one is that I don't want to have diabetes
