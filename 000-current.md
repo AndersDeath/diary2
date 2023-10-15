@@ -60,4 +60,4 @@ As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and dri
 
 # 15 October - Sunday - Yerevan - 381 day of immigration
 
-So, Today I cleaned my apartment
+So, Today I cleaned my apartment and did some other usual things.
