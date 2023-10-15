@@ -60,4 +60,4 @@ As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and dri
 
 # 15 October - Sunday - Yerevan - 381 day of immigration
 
-So, Today I cleaned my apartment and did some other usual things. The best activity today was proceeding editing of Barcelona video. It looks like that I finish doing it soon.
+So, Today I cleaned my apartment and did some other usual things. The best activity today was proceeding editing of Barcelona video. It looks like that I finish doing it soon. Also I updated my article that I working on.
