@@ -60,4 +60,4 @@ As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and dri
 
 # 15 October - Sunday - Yerevan - 381 day of immigration
 
-So, today I cleaned my apartment and did some other usual things. The best activity today was continuing to edit the Barcelona video. It looks like I'll finish it soon. Also, I updated my article that I'm working on. I even tried to copy some lines to Hacker Noon. I am going to publish it there, and I'm also very close to finishing my work on it. Me and Ksusha also were walking using new route. It was nice. Yeserday we were walking in local Victory park, Finally I took some photos
+So, today I cleaned my apartment and did some other usual things. The best activity today was continuing to edit the Barcelona video. It looks like I'll finish it soon. Also, I updated my article that I'm working on. I even tried to copy some lines to Hacker Noon. I am going to publish it there, and I'm also very close to finishing my work on it. Me and Ksusha also were walking using new route. It was nice. Yeserday we were walking in local Victory park, Finally I took some photos of Mother Armenia monument
