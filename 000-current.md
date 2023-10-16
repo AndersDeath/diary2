@@ -64,4 +64,4 @@ So, today I cleaned my apartment and did some other usual things. The best activ
 
 # 16 October - Monday - Yerevan - 382 day of immigration
 
-Today was a really hard and stressful day. Ksushas sister got pregnant recently but today she miscarried. It's really hard thing to carry. I hope she will be ok soon. It was quite short pregnancy, for about a month. Anyway it is bas and scary. We will get some news from her side today I suppose. I don't know what is happening right now. From another side I got apple pencil today. It's surprisingly useful thing in my case. 
+Today was a really hard and stressful day. Ksushas sister got pregnant recently but today she miscarried. It's really hard thing to carry. I hope she will be ok soon. It was quite short pregnancy, for about a month. Anyway it is bas and scary. We will get some news from her side today I suppose. I don't know what is happening right now. From another side I got apple pencil today. It's surprisingly useful thing in my case. It is mush better that molescin or something like this. 
