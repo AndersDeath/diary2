@@ -61,3 +61,5 @@ As you know Saturday is a cheat meal day. Only then I eat bread, sweets, and dri
 # 15 October - Sunday - Yerevan - 381 day of immigration
 
 So, today I cleaned my apartment and did some other usual things. The best activity today was continuing to edit the Barcelona video. It looks like I'll finish it soon. Also, I updated my article that I'm working on. I even tried to copy some lines to Hacker Noon. I am going to publish it there, and I'm also very close to finishing my work on it. Me and Ksusha also were walking using new route. It was nice. Yesterday we were walking in local Victory park, Finally I took some photos of Mother Armenia monument. Also yesterday was a Yerevan birthday. Some balloons were flying above in the sky. It was nice and beautiful. Another cool thing about Armenia is the weather. It's always cool. It's much better that in Saint-P. I heard that yesterday it was raining horizontally. Another amazing thing for me is that today is 17 degrees. It's amazingly warm weather for me. I really like it. So, yes. Also I did german homework today and some other minor things.
+
+# 16 October - Monday - Yerevan - 382 day of immigration
