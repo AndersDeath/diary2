@@ -64,4 +64,4 @@ So, today I cleaned my apartment and did some other usual things. The best activ
 
 # 16 October - Monday - Yerevan - 382 day of immigration
 
-Today was a really hard and stressful day. Ksushas sister got pregnant recently but today she miscarried. It's really hard thing to carry. 
+Today was a really hard and stressful day. Ksushas sister got pregnant recently but today she miscarried. It's really hard thing to carry. I hope she will be ok soon. 
