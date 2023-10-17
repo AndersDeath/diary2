@@ -68,4 +68,4 @@ Today was a really hard and stressful day. Ksushas sister got pregnant recently 
 
 # 17 October - Tuesday - Yerevan - 383 day of immigration
 
-This day was quite pleasant. I did a lot of things. I was working on my article, holy theory project, some additional features for future articles, and more. I really enjoy such calm days.
+This day was quite pleasant. I did a lot of things. I was working on my article, holy theory project, some additional features for future articles, and more. I really enjoy such calm days. After stealing of my leading responcibilities I feel much 
