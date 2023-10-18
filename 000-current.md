@@ -72,4 +72,4 @@ This day was quite pleasant. I did a lot of things. I was working on my article,
 
 # 18 October - Wednesday - Yerevan - 384 day of immigration
 
-Today I woke up because of disgusting smell from fucking pipes in this apartments. The place that I rent is quite nice but everything is related to pipes and
+Today I woke up because of disgusting smell from fucking pipes in this apartments. The place that I rent is quite nice but everything is related to pipes and sewerage
