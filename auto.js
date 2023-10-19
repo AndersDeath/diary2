@@ -22,6 +22,7 @@ setInterval(() => {
 }, 5000)
 
 process.on('SIGKILL', function(code) {
+    console.log('sdsd');
     exec("./push.sh", (error, stdout, stderr) => {
         if (error) {
             console.log(`error: ${error.message}`);
