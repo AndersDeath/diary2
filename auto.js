@@ -21,7 +21,7 @@ setInterval(() => {
     commit();
 }, 5000)
 
-process.on('exit', function(code) {
+process.on('SIGKILL', function(code) {
     exec("./push.sh", (error, stdout, stderr) => {
         if (error) {
             console.log(`error: ${error.message}`);
