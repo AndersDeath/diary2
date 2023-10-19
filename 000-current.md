@@ -76,4 +76,4 @@ Today I woke up because of disgusting smell from fucking pipes in this apartment
 
 # 19 October - Thursday - Yerevan - 385 day of immigration
 
-The good news have come. Both mine and Ksusha's passports were sent to courier agency. I suppose that we will know something interesting about our visas soon. I really hope that they didn't reject us. In other case it will be harmful and painful for us. I will not go to Berlin without Ksusha. This is crucial thing. Besides that I visited podologist today.  
+The good news have come. Both mine and Ksusha's passports were sent to courier agency. I suppose that we will know something interesting about our visas soon. I really hope that they didn't reject us. In other case it will be harmful and painful for us. I will not go to Berlin without Ksusha. This is crucial thing. Besides that I visited podologist today. She freezed my   
