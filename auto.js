@@ -21,17 +21,13 @@ setInterval(() => {
     commit();
 }, 5000)
 
-process.on('SIGKILL', function(code) {
-    console.log('sdsd');
-    exec("./push.sh", (error, stdout, stderr) => {
-        if (error) {
-            console.log(`error: ${error.message}`);
-            return;
-        }
-        if (stderr) {
-            console.log(`stderr: ${stderr}`);
-            return;
-        }
-        console.log(`stdout: ${stdout}`);
-    });
+
+let callAmount = 0;
+process.on('SIGINT', function () {
+    if (callAmount < 1) {
+
+        setTimeout(() => process.exit(0), 1000);
+    }
+
+    callAmount++;
 });
