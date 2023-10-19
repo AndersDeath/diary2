@@ -76,3 +76,4 @@ Today I woke up because of disgusting smell from fucking pipes in this apartment
 
 # 19 October - Thursday - Yerevan - 385 day of immigration
 
+The good news have come.
