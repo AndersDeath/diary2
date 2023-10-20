@@ -80,4 +80,4 @@ The good news have come. Both mine and Ksusha's passports were sent to courier a
 
 # 20 October - Friday - Yerevan - 386 day of immigration
 
-It's Friday. I am happy to have it. I am exhausted. this week was really hard. Today I was working on graphql setup again. Everything looks fine and probably the work on this stuff will be done soon. It's not the first time when I work
+It's Friday. I am happy to have it. I am exhausted. this week was really hard. Today I was working on graphql setup again. Everything looks fine and probably the work on this stuff will be done soon. It's not the first time when I work with this technologies but still.
