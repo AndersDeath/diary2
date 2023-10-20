@@ -80,4 +80,4 @@ The good news have come. Both mine and Ksusha's passports were sent to courier a
 
 # 20 October - Friday - Yerevan - 386 day of immigration
 
-It's Friday.
+It's Friday. I am happy to have it.
