@@ -84,4 +84,4 @@ It's Friday. I am happy to have it. I am exhausted. this week was really hard. T
 
 # 21 October - Saturday - Yerevan - 387 day of immigration
 
-So, This day was a cl
+So, This day was filled by
