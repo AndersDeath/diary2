@@ -84,4 +84,4 @@ It's Friday. I am happy to have it. I am exhausted. this week was really hard. T
 
 # 21 October - Saturday - Yerevan - 387 day of immigration
 
-So, This day was filled by doing nothing. I woke up in the morning, walked to a cafe and bought breakfast.
+So, This day was filled by doing nothing. I woke up in the morning, walked to a cafe and bought breakfast. After this I visited my barber
