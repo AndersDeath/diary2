@@ -88,4 +88,4 @@ So, This day was filled by doing nothing. I woke up in the morning, walked to a 
 
 # 22 October - Sunday - Yerevan - 388 day of immigration
 
-The weekend has been finished. I am sad. These two days were really cool and nice. We walked a lot, ate tasty food, and almost did nothing. Today we went back from the city center to our apartments. The weather is colder in the night now. I had to turn on heating system. It's expensive for sure, but I'm ready to pay. Surprisingly the weather in Yerevan is similar to Berlin's one.
+The weekend has been finished. I am sad. These two days were really cool and nice. We walked a lot, ate tasty food, and almost did nothing. Today we went back from the city center to our apartments. The weather is colder in the night now. I had to turn on heating system. It's expensive for sure, but I'm ready to pay. Surprisingly the weather in Yerevan is similar to Berlin's one. It's really cool and big surprise for me.
