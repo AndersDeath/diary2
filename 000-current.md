@@ -88,4 +88,4 @@ So, This day was filled by doing nothing. I woke up in the morning, walked to a 
 
 # 22 October - Sunday - Yerevan - 388 day of immigration
 
-The weekend has been finished. I am sad. These two days were really cool and nice. We walked a lot, ate tasty food, and almost did nothing.
+The weekend has been finished. I am sad. These two days were really cool and nice. We walked a lot, ate tasty food, and almost did nothing. Today we went back from the city center to our apartments.
