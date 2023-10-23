@@ -92,4 +92,4 @@ The weekend has been finished. I am sad. These two days were really cool and nic
 
 # 23 October - Monday - Yerevan - 389 day of immigration
 
-Well, I got visa. Unfortunately it's not a blue card. It's just standard working visa. It means that I should go to local office after november and ask fo blue card. It also means that a lot of other people will be there and some queue will fuck me. Anyway. It's a good result. The most important thing is that Ksusha also got visa for a year. It's amazing.
+Well, I got visa. Unfortunately it's not a blue card. It's just standard working visa. It means that I should go to local office after november and ask fo blue card. It also means that a lot of other people will be there and some queue will fuck me. Anyway. It's a good result. The most important thing is that Ksusha also got visa for a year. It's amazing. We will go there together.
