@@ -92,4 +92,4 @@ The weekend has been finished. I am sad. These two days were really cool and nic
 
 # 23 October - Monday - Yerevan - 389 day of immigration
 
-Well, I got visa.
+Well, I got visa. Unfortunately it's not a blue card.
