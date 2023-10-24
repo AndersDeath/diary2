@@ -96,4 +96,4 @@ Well, I got visa. Unfortunately it's not a blue card. It's just standard working
 
 # 24 October - Tuesday - Yerevan - 390 day of immigration
 
-So, Today I was working of whole day. I was fighting to Graphql and other problems. In the morning I met my Surgeon and everything looks good I am going to 
+So, Today I was working of whole day. I was fighting to Graphql and other problems. In the morning I met my Surgeon and everything looks good I am going to an operation next monday.
