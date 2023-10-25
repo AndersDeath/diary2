@@ -100,4 +100,4 @@ So, Today I was working of whole day. I was fighting to Graphql and other proble
 
 # 25 October - Wednesday - Yerevan - 391 day of immigration
 
-This day was nice. We found apartments. It will be quite expensive 1500 euros per months. It's really crazy. From other side I didn't do anything significant today.
+This day was nice. We found apartments. It will be quite expensive 1500 euros per months. It's really crazy. From other side I didn't do anything significant today. I fixed some issues for DR SMILE and 
