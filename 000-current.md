@@ -99,3 +99,5 @@ Well, I got visa. Unfortunately it's not a blue card. It's just standard working
 So, Today I was working of whole day. I was fighting to Graphql and other problems. In the morning I met my Surgeon and everything looks good I am going to an operation next monday. I suppose it will be the last prosthetic surgery. I don't feel nice about it in general but I have to do it. Also we were looking for an apartments in Berlin today. It's not easy thing honestly. It's something crazy. You cannot just rent a place, you have to wait for a confirmation and have other potential risks. However I need to find the place for a living. I will do it I have do doubts. Germany is a nice place for starting a new life. MAybe not a "new" I don't like this definition because each life is unique and there is not any ways to split it. This figure of speak annoys me. So stupid. So, germany is nice for proceeding the career and looking for new possibilities in life. I will definitely try to squeeze everything from the place.
 
 # 25 October - Wednesday - Yerevan - 391 day of immigration
+
+This day was nice.
