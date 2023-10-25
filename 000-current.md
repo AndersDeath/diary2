@@ -100,4 +100,4 @@ So, Today I was working of whole day. I was fighting to Graphql and other proble
 
 # 25 October - Wednesday - Yerevan - 391 day of immigration
 
-This day was nice. We found apartments. It will be quite expensive 1500 euros per months. It's really crazy. From other side I didn't do anything significant today. I fixed some issues for DR SMILE and added some new features in holy theory. Additionally I updated my graphql clark setup which is also cool. We are going to have a dinner now. We will go to SAS. It's not so close place to us but I will
+This day was nice. We found apartments. It will be quite expensive 1500 euros per months. It's really crazy. From other side I didn't do anything significant today. I fixed some issues for DR SMILE and added some new features in holy theory. Additionally I updated my graphql clark setup which is also cool. We are going to have a dinner now. We will go to SAS. It's not so close place to us but I will be happy to walk a bit.
