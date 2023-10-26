@@ -104,4 +104,4 @@ This day was nice. We found apartments. It will be quite expensive 1500 euros pe
 
 # 26 October - Thursday - Yerevan - 392 day of immigration
 
-This day was nice. I was coding for whole day and also prepared some things for the future.
+This day was nice. I was coding for whole day and also prepared some things for the future. I want to start some hobby for a quite long time.
