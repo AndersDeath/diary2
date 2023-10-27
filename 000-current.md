@@ -108,4 +108,4 @@ This day was nice. I was coding for whole day and also prepared some things for 
 
 # 27 October - Friday - Yerevan - 393 day of immigration
 
-Today I did nothing. It's pretty unique situation for me. Mentally I don't 
+Today I did nothing. It's pretty unique situation for me. Mentally I don't work for DR SMILE anymore.
