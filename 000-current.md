@@ -112,4 +112,4 @@ Today I did nothing. It's pretty unique situation for me. Mentally I don't work 
 
 # 28 October - Saturday - Yerevan - 394 day of immigration
 
-This day I did nothing. Usually Saturday is a sacred day when I just have a rest. So, this day was a type. Me and Ksusha were in Saryana museum. I was impressed especially from color selection. It was really cool! After that we had a dinner in Hard Rock cafe. I mentioned many time that it's the best burger place in Yerevan. Also we were in Keta market in the city center. This time it was in Opera theater. I bought a couple of souvenirs there. I usually don't do it but this time it was nice.
+This day I did nothing. Usually Saturday is a sacred day when I just have a rest. So, this day was a type. Me and Ksusha were in Saryana museum. I was impressed especially from color selection. It was really cool! After that we had a dinner in Hard Rock cafe. I mentioned many time that it's the best burger place in Yerevan. Also we were in Keta market in the city center. This time it was in Opera theater. I bought a couple of souvenirs there. I usually don't do it but this time I decided to allow it for myself.
