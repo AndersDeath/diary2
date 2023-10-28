@@ -112,4 +112,4 @@ Today I did nothing. It's pretty unique situation for me. Mentally I don't work 
 
 # 28 October - Saturday - Yerevan - 394 day of immigration
 
-This day I did nothing. Usually Saturday is a sacred day when I just have a rest.
+This day I did nothing. Usually Saturday is a sacred day when I just have a rest. So,
