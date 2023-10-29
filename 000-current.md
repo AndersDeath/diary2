@@ -116,4 +116,4 @@ This day I did nothing. Usually Saturday is a sacred day when I just have a rest
 
 # 29 October - Sunday - Yerevan - 395 day of immigration
 
-Today I was working for almost half of the day on test task for one company that 
+Today I was working for almost half of the day on test task for one company whose name I don't remember.
