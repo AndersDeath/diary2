@@ -116,4 +116,4 @@ This day I did nothing. Usually Saturday is a sacred day when I just have a rest
 
 # 29 October - Sunday - Yerevan - 395 day of immigration
 
-Today I was working for almost half of the day on test task for one company whose name I don't remember. It was nice task that encouraged me to recall Angular a bit. I will definitely reuse this code for another task. After this activity we went for a walk. One place on Saryana street has very nice wine and we wanted to visit it for a very long time, so, we did it today.
+Today I was working for almost half of the day on test task for one company whose name I don't remember. It was nice task that encouraged me to recall Angular a bit. I will definitely reuse this code for another task. After this activity we went for a walk. One place on Saryana street has very nice wine and we wanted to visit it for a very long time, so, we did it today. Just after it I got a cup of nice 
