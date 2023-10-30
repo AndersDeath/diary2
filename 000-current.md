@@ -120,4 +120,4 @@ Today I was working for almost half of the day on test task for one company whos
 
 # 30 October - Monday - Yerevan - 396 day of immigration
 
-I had a surgery today and finally got two another prosthetics and this is a finish. I am happy about that. After that I came back home and had a nap. In generally I don't feel good today unfortunately. The reason is the surgery. However I did everything I had to do like release of holy theory. 
+I had a surgery today and finally got two another prosthetics and this is a finish. I am happy about that. After that I came back home and had a nap. In generally I don't feel good today unfortunately. The reason is the surgery. However I did everything I had to do like release of holy theory. I made a shot post 
