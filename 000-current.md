@@ -120,3 +120,4 @@ Today I was working for almost half of the day on test task for one company whos
 
 # 30 October - Monday - Yerevan - 396 day of immigration
 
+I had a surgery
