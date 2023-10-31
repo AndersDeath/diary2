@@ -122,4 +122,4 @@ Today I was working for almost half of the day on test task for one company whos
 
 I had a surgery today and finally got two another prosthetics and this is a finish. I am happy about that. After that I came back home and had a nap. In generally I don't feel good today unfortunately. The reason is the surgery. However I did everything I had to do like release of holy theory. I made a shot post as usual and published it on all platforms. Also I watched some german videos. So the vacation has been started and my focus for these future days is to finish with all things I had to finish. Tomorrow I will start doing it. I feel huge relief after screwing in these two latest prosthetics. It's so cool. Now I need only to restore full smile. I don't know how I will handle it in the future when I live in Germany but still maybe I will find ways to finish with treatment. The life is good again. I enjoy my life more and more. I am really exited about Germany. I hope everything will be good. Will see.
 
-# 31 October - Monday - Yerevan - 396 day of immigration
+# 31 October - Tuesday - Yerevan - 397 day of immigration
