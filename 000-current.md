@@ -124,4 +124,4 @@ I had a surgery today and finally got two another prosthetics and this is a fini
 
 # 31 October - Tuesday - Yerevan - 397 day of immigration
 
-Oh, I enjoy my life. Especially today. I just did everything I wanted to do. It's so cool. I update holy theory, came up with idea about database for one of the projects, updated an article that I've been working fo several months,
+Oh, I enjoy my life. Especially today. I just did everything I wanted to do. It's so cool. I update holy theory, came up with idea about database for one of the projects, updated an article that I've been working fo several months, edite barcelona video,
