@@ -128,4 +128,4 @@ Oh, I enjoy my life. Especially today. I just did everything I wanted to do. It'
 
 # 01 November - Wednesday - Yerevan - 398 day of immigration
 
-Today I was working on entities for my nx setup. It was interesting and nice. I
+Today I was working on entities for my nx setup. It was interesting and nice. I'm going to finish working on it.
