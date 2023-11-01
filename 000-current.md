@@ -128,3 +128,4 @@ Oh, I enjoy my life. Especially today. I just did everything I wanted to do. It'
 
 # 01 November - Wednesday - Yerevan - 398 day of immigration
 
+Today I was working on 
