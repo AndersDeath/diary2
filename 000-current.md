@@ -128,4 +128,4 @@ Oh, I enjoy my life. Especially today. I just did everything I wanted to do. It'
 
 # 01 November - Wednesday - Yerevan - 398 day of immigration
 
-Today I was working on entities for my nx setup. It was interesting and nice. I'm going to finish working on it. BRsided that I was learning German and doing other things. I pissed off of dR SMILE. These morons didn't send money to me again. It makes me really angry. I really want to finish working for them as soon as possible.
+Today I was working on entities for my nx setup. It was interesting and nice. I'm going to finish working on it. BRsided that I was learning German and doing other things. I pissed off of dR SMILE. These morons didn't send money to me again. It makes me really angry. I really want to finish working for them as soon as possible. I pissed off.
