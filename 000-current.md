@@ -4,5 +4,5 @@ Today I was working on entities for my nx setup. It was interesting and nice. I'
 
 # 02 November - Thursday - Yerevan - 399 day of immigration
 
-I feel very angry for an unknown reasons. It's been happening since yesterday. It's really simple for me to go out of temper. I don't like it but 
+I feel very angry for an unknown reasons. It's been happening since yesterday. It's really simple for me to go out of temper. I don't like it but cannot do anything with it.
 
