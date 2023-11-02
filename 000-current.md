@@ -4,3 +4,5 @@ Today I was working on entities for my nx setup. It was interesting and nice. I'
 
 # 02 November - Thursday - Yerevan - 399 day of immigration
 
+I feel very angry
+
