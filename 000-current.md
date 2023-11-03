@@ -9,4 +9,4 @@ I feel very angry for an unknown reasons. It's been happening since yesterday. I
 
 # 03 November - Friday - Yerevan - 400 day of immigration
 
-Oh, 400th day of my immigration. It's interesting. 400 days ago I understood that the war will not end and I have to leave the country. Before that I considered Yerevan as a temporary place for work and waiting for collapse of Russian army, but the war is still here. Also Palestine and Israel are fighting to each other. It's absolutely
+Oh, 400th day of my immigration. It's interesting. 400 days ago I understood that the war will not end and I have to leave the country. Before that I considered Yerevan as a temporary place for work and waiting for collapse of Russian army, but the war is still here. Also Palestine and Israel are fighting to each other. It's absolutely scary situation.
