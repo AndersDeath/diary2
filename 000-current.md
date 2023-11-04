@@ -12,4 +12,4 @@ Oh, 400th day of my immigration. It's interesting. 400 days ago I understood tha
 
 # 04 November - Saturday - Yerevan - 401 day of immigration
 
-THis day was nice. Ksusha did a surgery today.
+THis day was nice. Ksusha did a surgery today. She decided to fix a shape of one of her ears.
