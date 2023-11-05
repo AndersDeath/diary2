@@ -16,4 +16,4 @@ THis day was nice. Ksusha did a surgery today. She decided to fix a shape of one
 
 # 05 November - Sunday - Yerevan - 402 day of immigration
 
-The main thing for today is that I decided to stop the run for commit numbers to github. I realized recently that I make about 50 commits daily with no sense. Simply I do a lot of absolute weird things for no reason. So, I want to keep solid streak in gh but I don't want to have thousands commits yearly. It's just stupid. In general this day was nice. We went for a walk with Ksusha for some long period of time and visited a couple of nice places.
+The main thing for today is that I decided to stop the run for commit numbers to github. I realized recently that I make about 50 commits daily with no sense. Simply I do a lot of absolute weird things for no reason. So, I want to keep solid streak in gh but I don't want to have thousands commits yearly. It's just stupid. In general this day was nice. We went for a walk with Ksusha for some long period of time and visited a couple of nice places. She feels good besides the ear still pains.
