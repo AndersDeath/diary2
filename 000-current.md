@@ -20,4 +20,4 @@ The main thing for today is that I decided to stop the run for commit numbers to
 
 # 06 November - Monday - Yerevan - 403 day of immigration
 
-Today my dentist removed stitches and I am happy about it. I can return my sport activities tomorrow. I am also happy about it.
+Today my dentist removed stitches and I am happy about it. I can return my sport activities tomorrow. I am also happy about it. Fortunately the next surgery will be in several months which is amazing.
