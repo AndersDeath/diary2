@@ -24,4 +24,4 @@ Today my dentist removed stitches and I am happy about it. I can return my sport
 
 # 07 November - Tuesday - Yerevan - 404 day of immigration
 
-I finally informed DR SMILE about my leaving. Everybody got this piece of news well. It wasn't a surprise for anyone. After 
+I finally informed DR SMILE about my leaving. Everybody got this piece of news well. It wasn't a surprise for anyone. So, my motivation package will be payed to me in March probably.
