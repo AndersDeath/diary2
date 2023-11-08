@@ -28,4 +28,4 @@ I finally informed DR SMILE about my leaving. Everybody got this piece of news w
 
 # 08 November - Wednesday - Yerevan - 405 day of immigration
 
-Things go nice. Today I announced my quit to the team.
+Things go nice. Today I announced my quit to the team. Transition period has started.
