@@ -28,4 +28,4 @@ I finally informed DR SMILE about my leaving. Everybody got this piece of news w
 
 # 08 November - Wednesday - Yerevan - 405 day of immigration
 
-Things go nice. Today I announced my quit to the team. Transition period has started. It's important to do everything well and in time. Additionally I signed a rent contract for the temporary apartment in Berlin.
+Things go nice. Today I announced my quit to the team. Transition period has started. It's important to do everything well and in time. Additionally I signed a rent contract for the temporary apartment in Berlin. It's also cool and nice.
