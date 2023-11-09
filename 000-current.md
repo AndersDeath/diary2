@@ -32,4 +32,4 @@ Things go nice. Today I announced my quit to the team. Transition period has sta
 
 # 09 November - Thursday - Yerevan - 406 day of immigration
 
-Today I got 8k euro from bank. We need some cash in Berlin for the first time. So, we decided to do something this way. Also we were walking today in the city center. Additionally I found a way how to terminate a contract with Rostelecom which is nice. I will do this next week. I also finished a lot of things today.
+Today I got 8k euro from bank. We need some cash in Berlin for the first time. So, we decided to do something this way. Also we were walking today in the city center. Additionally I found a way how to terminate a contract with Rostelecom which is nice. I will do this next week. I also finished a lot of things today. The electricity was cut this morning due to 
