@@ -32,4 +32,4 @@ Things go nice. Today I announced my quit to the team. Transition period has sta
 
 # 09 November - Thursday - Yerevan - 406 day of immigration
 
-Today I got 8k euro from bank.
+Today I got 8k euro from bank. We need some cash in Berlin for the first time.
