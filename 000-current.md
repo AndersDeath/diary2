@@ -34,4 +34,4 @@ Things go nice. Today I announced my quit to the team. Transition period has sta
 
 Today I got 8k euro from bank. We need some cash in Berlin for the first time. So, we decided to do something this way. Also we were walking today in the city center. Additionally I found a way how to terminate a contract with Rostelecom which is nice. I will do this next week. I also finished a lot of things today. The electricity was cut this morning due to some incident. So, I edited the github article significantly because of absence of electricity. The supplying was restored shortly and I did some preparation to another interview today. It was nice. In general day was calm and interesting. I also update telegram bot that helps me with words learning. Tomorrow I will publish the update of it.
 
-# 10 November - Thursday - Yerevan - 407 day of immigration
+# 10 November - Friday - Yerevan - 407 day of immigration
