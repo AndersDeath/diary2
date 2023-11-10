@@ -36,4 +36,4 @@ Today I got 8k euro from bank. We need some cash in Berlin for the first time. S
 
 # 10 November - Friday - Yerevan - 407 day of immigration
 
-I was working on PDF generation for most part of the day. It still doesn't work well. Unfortunately I see some problems that are not suppose to be solved easily. It's really sad. However I've been working hard on it. I want to automatizate the building process of the book. It's my main goal. Also I was resolving some issues on DR SMILE side.
+I was working on PDF generation for most part of the day. It still doesn't work well. Unfortunately I see some problems that are not suppose to be solved easily. It's really sad. However I've been working hard on it. I want to automatizate the building process of the book. It's my main goal. Also I was resolving some issues on DR SMILE side. The shit happened with google play.
