@@ -40,4 +40,4 @@ I was working on PDF generation for most part of the day. It still doesn't work 
 
 # 11 November - Saturday - Yerevan - 408 day of immigration
 
-Today we said good buy to local Yerevan's Hard Rock cafe. Unfortunately there is no chance to eat there again this staying in Yerevan. I have cheat meal only by Saturdays. At the same time I have a huge head ache for the whole day. IT's so bad. I feel bad. I got ibuprofen pill,
+Today we said good buy to local Yerevan's Hard Rock cafe. Unfortunately there is no chance to eat there again this staying in Yerevan. I have cheat meal only by Saturdays. At the same time I have a huge head ache for the whole day. IT's so bad. I feel bad. I got ibuprofen pill, maybe it will help.
