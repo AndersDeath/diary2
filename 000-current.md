@@ -42,4 +42,4 @@ I was working on PDF generation for most part of the day. It still doesn't work 
 
 Today we said good buy to local Yerevan's Hard Rock cafe. Unfortunately there is no chance to eat there again this staying in Yerevan. I have cheat meal only by Saturdays. At the same time I have a huge head ache for the whole day. IT's so bad. I feel bad. I got ibuprofen pill, maybe it will help. Cold season is yerevan's area is very polluted. The city is staying in some kind og low area between mountains and when there is no wind all smoke from houses and cars staying just here in the air. You constantly feel this shit and it's also painful for me because I have headache because of the smoke. Last year and two years ago I felt the same.
 
-At the same time the day was nice.
+At the same time the day was nice. We did everyrthing we wanted and enjoyed the city that was out shelter
