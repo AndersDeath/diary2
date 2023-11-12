@@ -46,4 +46,4 @@ At the same time the day was nice. We did everything we wanted and enjoyed the c
 
 # 12 November - Sunday - Yerevan - 409 day of immigration
 
-So, the day extremely weird. Firstly the water supply didn't work in the morning and it was impossible to toilet normally. Secondly, the Deutsche bahn cancelled out train from Dortmund to Berlin and we had to look for another variants. As a result we had to book an hotel in dortmunt where we will sleep and buy another tickets to saturday. I hope that we will have time to go shopping in other case I will be without boots and it will be aweful.
+So, the day extremely weird. Firstly the water supply didn't work in the morning and it was impossible to toilet normally. Secondly, the Deutsche bahn cancelled out train from Dortmund to Berlin and we had to look for another variants. As a result we had to book an hotel in dortmunt where we will sleep and buy another tickets to saturday. I hope that we will have time to go shopping in other case I will be without boots and it will be awful.
