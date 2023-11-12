@@ -46,4 +46,4 @@ At the same time the day was nice. We did everything we wanted and enjoyed the c
 
 # 12 November - Sunday - Yerevan - 409 day of immigration
 
-So, the day extremely wierd.
+So, the day extremely weird.
