@@ -44,4 +44,4 @@ Today we said good buy to local Yerevan's Hard Rock cafe. Unfortunately there is
 
 At the same time the day was nice. We did everything we wanted and enjoyed the city that was out shelter for some time. Yerevan will be in my heart forever. It's absolutely interesting and unique experience that I didn't expect to have in my life. Also I lived in the little country in the middle of mountains and this was so cool. It's much cooler than being somewhere else.
 
-# 11 November - Saturday - Yerevan - 409 day of immigration
+# 12 November - Sunday - Yerevan - 409 day of immigration
