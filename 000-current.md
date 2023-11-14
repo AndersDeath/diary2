@@ -52,4 +52,5 @@ So, the day extremely weird. Firstly the water supply didn't work in the morning
 
 I finally updated my telegram bot that helps me in learning words. It's really cool. I already started learning words using it. It's super primitive system but efficient. Besides that I was working on some DR SMILE stuff and did other things. We spent almost whole day in cafe. We were working from there. Sometimes it's cool to change the place. I am a bit tiered of my apartments but I cannot do anything with them. I just need to wait until friday. I also was talking to my colleges today about sim card in Berlin. They gave me a lot of information that I need to process. I will do it tomorrow. It's time to order something. It's weird to feel that I will live in other place soon. I am really exited and a bit scared.
 
-# 14 November - Monday - Yerevan - 411 day of immigration
+# 14 November - Tuesday - Yerevan - 411 day of immigration
+
