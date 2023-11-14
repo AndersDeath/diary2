@@ -54,3 +54,4 @@ I finally updated my telegram bot that helps me in learning words. It's really c
 
 # 14 November - Tuesday - Yerevan - 411 day of immigration
 
+I got a little bit of alcohol today.
