@@ -54,4 +54,4 @@ I finally updated my telegram bot that helps me in learning words. It's really c
 
 # 14 November - Tuesday - Yerevan - 411 day of immigration
 
-I got a little bit of alcohol today. I feel relaxed and nice. Also I wanted to update some 
+I got a little bit of alcohol today. I feel relaxed and nice. Also I wanted to update some soft for Ksusha on laptop, but it doesn't work.
