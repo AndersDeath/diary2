@@ -54,4 +54,4 @@ I finally updated my telegram bot that helps me in learning words. It's really c
 
 # 14 November - Tuesday - Yerevan - 411 day of immigration
 
-I got a little bit of alcohol today. I feel relaxed and nice. Also I wanted to update some soft for Ksusha on laptop, but it doesn't work. it means that I need to postpone getting rid of my internet for a day. I need to clarify this. I need fast internet connection before I fix the situation with Ksushas programs. Also the day was nice and pretty easy. I visited my podolog and she
+I got a little bit of alcohol today. I feel relaxed and nice. Also I wanted to update some soft for Ksusha on laptop, but it doesn't work. it means that I need to postpone getting rid of my internet for a day. I need to clarify this. I need fast internet connection before I fix the situation with Ksushas programs. Also the day was nice and pretty easy. I visited my Podologist and she looked on my heels.
