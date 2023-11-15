@@ -58,4 +58,4 @@ I got a little bit of alcohol today. I feel relaxed and nice. Also I wanted to u
 
 # 15 November - Wednesday - Yerevan - 412 day of immigration
 
-I terminated a contract with Rostelecom today. Everything went fine with it. I also bought some souvenirs for my colleges.
+I terminated a contract with Rostelecom today. Everything went fine with it. I also bought some souvenirs for my colleges. I don't know to whom I will present somthing, but I believe that maybe it will be cool for someone at least.
