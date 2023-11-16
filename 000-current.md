@@ -62,4 +62,4 @@ I terminated a contract with Rostelecom today. Everything went fine with it. I a
 
 # 16 November - Thursday - Yerevan - 413 day of immigration
 
-The day was nice. Actually it's my last full day living in Yerevan. In the future I will be a guest here again. Me and Ksusha were working from Cafe today due to termination of home internet. However I finished editing a new vide in cafe. When I have a normal internet connection I will publish it. Probably I will do it tomorrow or in Dortmund. Maybe I will do it after arriving to Berlin. I don't know yet. We will see this. Also today we are going to clean the apartment.
+The day was nice. Actually it's my last full day living in Yerevan. In the future I will be a guest here again. Me and Ksusha were working from Cafe today due to termination of home internet. However I finished editing a new vide in cafe. When I have a normal internet connection I will publish it. Probably I will do it tomorrow or in Dortmund. Maybe I will do it after arriving to Berlin. I don't know yet. We will see this. Also today we are going to clean the apartment. This evening the owner will come and check the place. 
