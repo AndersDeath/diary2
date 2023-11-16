@@ -62,4 +62,4 @@ I terminated a contract with Rostelecom today. Everything went fine with it. I a
 
 # 16 November - Thursday - Yerevan - 413 day of immigration
 
-The day was nice. Actually it's my last full day living in Yerevan.
+The day was nice. Actually it's my last full day living in Yerevan. In the future I will be a guest here again.
