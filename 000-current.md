@@ -66,4 +66,4 @@ The day was nice. Actually it's my last full day living in Yerevan. In the futur
 
 # 17 November - Friday - Yerevan - Dortmund - 414 day of immigration
 
-So, we are here, on the German territory.
+So, we are here, on the German territory. Unfortunately we also experienced some problems with apartments.
