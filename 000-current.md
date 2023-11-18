@@ -70,4 +70,4 @@ So, we are here, on the German territory. Unfortunately we also experienced some
 
 # 18 November - Saturday - Dortmund - Berlin - 415 day of immigration
 
-So, We finally arrived to Berlin.
+So, We finally arrived to Berlin. We found our apartments and everthing is good for now.
