@@ -70,4 +70,4 @@ So, we are here, on the German territory. Unfortunately we also experienced some
 
 # 18 November - Saturday - Dortmund - Berlin - 415 day of immigration
 
-So, We finally arrived to Berlin. We found our apartments and everthing is good for now. The problem is that this place was absolutely dirty. Ksusha cleaned this for whole evening. The main hero of this day is deutsche bahn. The train delay was 1,5 hour. It's crazy as for me. Things should not go like this.
+So, We finally arrived to Berlin. We found our apartments and everthing is good for now. The problem is that this place was absolutely dirty. Ksusha cleaned this for whole evening. The main hero of this day is deutsche bahn. The train delay was 1,5 hour. It's crazy as for me. Things should not go like this. The weather here is much colder that in Yerevan.
