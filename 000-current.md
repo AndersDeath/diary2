@@ -73,3 +73,5 @@ So, we are here, on the German territory. Unfortunately we also experienced some
 So, We finally arrived to Berlin. We found our apartments and everything is good for now. The problem is that this place was absolutely dirty. Ksusha cleaned this for whole evening. The main hero of this day is deutsche bahn. The train delay was 1,5 hour. It's crazy as for me. Things should not go like this. The weather here is much colder that in Yerevan. I had to unpack all warm cloths. Because of problem with train we could not visit shops and buy new shoes for me. It's crazy shit because I have only skater like VANs ones. So, tomorrow we are going to visit the city center. We will go for a walk a have nice time, I hope. Will see.
 
 # 19 November - Sunday - Berlin - 416 day of immigration
+
+Well, Finally I am in Berlin.
