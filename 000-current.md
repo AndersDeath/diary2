@@ -74,4 +74,4 @@ So, We finally arrived to Berlin. We found our apartments and everything is good
 
 # 19 November - Sunday - Berlin - 416 day of immigration
 
-Well, Finally I am in Berlin. Today I felt it fully.
+Well, Finally I am in Berlin. Today I felt it fully. This is really great
