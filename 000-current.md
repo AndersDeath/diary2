@@ -74,4 +74,4 @@ So, We finally arrived to Berlin. We found our apartments and everything is good
 
 # 19 November - Sunday - Berlin - 416 day of immigration
 
-Well, Finally I am in Berlin. Today I felt it fully. This is really great. I was so tiered yesterday that just I just could not normally do things well. Until the end working for DR SMILE I am going to align my schedule to Moscow time. It will be also convenient because I need to do a lot of things in the evening. For example, we need to buy sim cards and visit several shops including IKEA.
+Well, Finally I am in Berlin. Today I felt it fully. This is really great. I was so tiered yesterday that just I just could not normally do things well. Until the end working for DR SMILE I am going to align my schedule to Moscow time. It will be also convenient because I need to do a lot of things in the evening. For example, we need to buy sim cards and visit several shops including IKEA. 
