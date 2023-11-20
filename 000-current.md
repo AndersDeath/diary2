@@ -78,4 +78,4 @@ Well, Finally I am in Berlin. Today I felt it fully. This is really great. I was
 
 # 20 November - Monday - Berlin - 417 day of immigration
 
-So, this monday was nice. I finally bought shoes. In general I was working in usual things today and 
+So, this monday was nice. I finally bought shoes. In general I was working in usual things today it was nice.
