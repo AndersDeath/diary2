@@ -78,4 +78,4 @@ Well, Finally I am in Berlin. Today I felt it fully. This is really great. I was
 
 # 20 November - Monday - Berlin - 417 day of immigration
 
-So, this monday was nice. I finally bought shoes. We also were on Alexander platz which is quite ugly place. In general I was working in usual things today it was nice.
+So, this monday was nice. I finally bought shoes. We also were on Alexander platz which is quite ugly place. It was raining heavy and our passports are wet. In general I was working in usual things today it was nice.
