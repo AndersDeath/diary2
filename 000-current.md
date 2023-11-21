@@ -81,3 +81,4 @@ Well, Finally I am in Berlin. Today I felt it fully. This is really great. I was
 So, this monday was nice. I finally bought shoes. We also were on Alexander platz which is quite ugly place. It was raining heavy and our passports are wet. I have doubts and concerns because of it. I am scared that I will need to change it somehow. I hope that everything will be good. But in general I was working in usual things today it was nice. My feet finally will be warmer. I like it. Tomorrow we are going to go shopping again. The day after tomorrow we will go to Rathaus where we will get alnmedung which is registration on the place. Immigrant life has been started. It's crazy.
 
 # 21 November - Tuesday - Berlin - 418 day of immigration
+
