@@ -82,4 +82,4 @@ So, this monday was nice. I finally bought shoes. We also were on Alexander plat
 
 # 21 November - Tuesday - Berlin - 418 day of immigration
 
-The day was extremely productive. We did a lot of things. I was working on my usual things and it was nice.
+The day was extremely productive. We did a lot of things. I was working on my usual things and it was nice. I updated holy theory and found a way how to improve some pro
