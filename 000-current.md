@@ -82,3 +82,4 @@ So, this monday was nice. I finally bought shoes. We also were on Alexander plat
 
 # 21 November - Tuesday - Berlin - 418 day of immigration
 
+The day was extremely productive.
