@@ -82,4 +82,4 @@ So, this monday was nice. I finally bought shoes. We also were on Alexander plat
 
 # 21 November - Tuesday - Berlin - 418 day of immigration
 
-The day was extremely productive. We did a lot of things. I was working on my usual things and it was nice. I updated holy theory and found a way how to improve some processes with pdf generator. After that I was working on drsmile tasks and update some other important conceptions that I have in my mind. After that we were in Ikea, additionally we tested how the local transport works. It's really expensive I would say. Really expensive.
+The day was extremely productive. We did a lot of things. I was working on my usual things and it was nice. I updated holy theory and found a way how to improve some processes with pdf generator. After that I was working on drsmile tasks and update some other important conceptions that I have in my mind. After that we were in Ikea, additionally we tested how the local transport works. It's really expensive I would say. Really expensive. In ikea we found and bought rail for cloths and shelf to bathroom, in mediamarkt we bought small heater, and it just supermarket we bought 
