@@ -86,4 +86,4 @@ The day was extremely productive. We did a lot of things. I was working on my us
 
 # 22 November - Wednesday - Berlin - 419 day of immigration
 
-We were in Rathaus and sent an application for alnmendung.
+We were in Rathaus and sent an application for anmeldung.
