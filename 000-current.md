@@ -90,4 +90,4 @@ We were in Rathaus and sent an application for anmeldung. Everything was smooth 
 
 # 23 November - Thursday - Berlin - 420 day of immigration
 
-So, the main thing is that I finally visited DR SMILE's office today.
+So, the main thing is that I finally visited DR SMILE's office today. I've never been there before.
