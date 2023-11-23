@@ -87,3 +87,5 @@ The day was extremely productive. We did a lot of things. I was working on my us
 # 22 November - Wednesday - Berlin - 419 day of immigration
 
 We were in Rathaus and sent an application for anmeldung. Everything was smooth and I am happy about it. Also I finally decided when I visit DR SMILE. I will do it tomorrow morning and I hope it will be nice and easy. Today we again were trying to find things for home. We visited Mall of Berlin and found that this place is absolutely awful and it's hard to even be there. As a result we went to Alexanderplatz to another mall. We still trying to organize our life. We did a lot for the first week and this is really amazing. I like it. THis sunday I am going to meet Ivan Gammel who is an ex CTO of DR SMILE. He is nice guy and I will be happy to see him. He invited me to a caffee in 40 minutes walking from my home. I will go there this way because it will be just cheaper and funnier for me. In general this day was nice but hard.
+
+# 23 November - Wednesday - Berlin - 419 day of immigration
