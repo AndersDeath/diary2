@@ -94,4 +94,4 @@ So, the main thing is that I finally visited DR SMILE's office today. I've never
 
 # 24 November - Friday - Berlin - 421 day of immigration
 
-The day was nice. I had an interview and absolutely tiered. We will go for a walk soon. It's 15.56 o'clock.
+The day was nice. I had an interview and absolutely tiered. We will go for a walk soon. It's 15.56 o'clock. I am going to add some information here in the evening.
