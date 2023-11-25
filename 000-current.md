@@ -100,4 +100,4 @@ Unfortunately I didn't have time to add anything. IT was hard Friday.
 
 # 25 November - Saturday - Berlin - 422 day of immigration
 
-Well, we were in Hamburger bahnhof.
+Well, we were in Hamburger bahnhof. It's art gallery
