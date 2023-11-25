@@ -99,3 +99,5 @@ The day was nice. I had an interview and absolutely tiered. I was working in sta
 Unfortunately I didn't have time to add anything. IT was hard Friday.
 
 # 25 November - Saturday - Berlin - 422 day of immigration
+
+Well, we were in Hamburger bannhof.
