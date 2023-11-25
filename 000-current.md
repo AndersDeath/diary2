@@ -98,4 +98,4 @@ The day was nice. I had an interview and absolutely tiered. I was working in sta
 
 Unfortunately I didn't have time to add anything. IT was hard Friday.
 
-# 25 November - Friday - Berlin - 421 day of immigration
+# 25 November - Saturday - Berlin - 421 day of immigration
