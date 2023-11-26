@@ -104,4 +104,4 @@ Well, we were in Hamburger bahnhof. It's art gallery with some contemporary art 
 
 # 26 November - Sunday - Berlin - 432 day of immigration
 
-Today is 432 day of my immigration. I always liked this kind of number like "432". This is a beutiful sequence of decreasing symbols. It might sounds wired but anyway.
+Today is 432 day of my immigration. I always liked this kind of number like "432". This is a beutiful sequence of decreasing symbols. It might sounds wired but anyway. I like it.
