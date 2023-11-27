@@ -108,4 +108,4 @@ Today is 432 day of my immigration. I always liked this kind of number like "432
 
 # 27 November - Monday - Berlin - 433 day of immigration
 
-I was working on pandoc pdf generation again. It was hard but I found how to fix some issues.
+I was working on pandoc pdf generation again. It was hard but I found how to fix some issue
