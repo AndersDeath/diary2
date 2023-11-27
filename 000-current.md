@@ -108,4 +108,4 @@ Today is 432 day of my immigration. I always liked this kind of number like "432
 
 # 27 November - Monday - Berlin - 433 day of immigration
 
-I was working on pandoc pdf generation again. It was hard but I found how to fix some issue. Also I had a technical interview that was nice from my perspective. I really enjoyed those conversation. The only problem is that this company stands in Franfurt which is completely different city. I moved to Berlin consciously because I have some 
+I was working on pandoc pdf generation again. It was hard but I found how to fix some issue. Also I had a technical interview that was nice from my perspective. I really enjoyed those conversation. The only problem is that this company stands in Franfurt which is completely different city. I moved to Berlin consciously because it's Germany capital and this place has a lot of job offers and startup atmosphere.
