@@ -112,4 +112,4 @@ I was working on pandoc pdf generation again. It was hard but I found how to fix
 
 # 28 November - Tuesday - Berlin - 434 day of immigration
 
-I finished with perfect process today and I am happy about it. I also came up with an answer to question about processes. We also bought an access to apartment's advertisement. We need to find permanent place for living and we decided to start looking for a place right now. Usually it hard to do in Berlin. Also I got a message from Urgen who is 
+I finished with perfect process today and I am happy about it. I also came up with an answer to question about processes. We also bought an access to apartment's advertisement. We need to find permanent place for living and we decided to start looking for a place right now. Usually it hard to do in Berlin. Also I got a message from Urgen who is CTO of Wunderflats
