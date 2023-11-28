@@ -112,4 +112,4 @@ I was working on pandoc pdf generation again. It was hard but I found how to fix
 
 # 28 November - Tuesday - Berlin - 434 day of immigration
 
-I finished with perfect process today and I am happy about it. I also came up with an answer to question about processes.
+I finished with perfect process today and I am happy about it. I also came up with an answer to question about processes. We 
