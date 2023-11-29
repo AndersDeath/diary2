@@ -116,4 +116,4 @@ I finished with perfect process today and I am happy about it. I also came up wi
 
 # 29 November - Wednesday - Berlin - 435 day of immigration
 
-The main thing today is that I got tax id. It took one week only. It's cool. Another cool piece of news that I got an invitation to visit 
+The main thing today is that I got tax id. It took one week only. It's cool. Another cool piece of news that I got an invitation to visit Frankfurt and meet 
