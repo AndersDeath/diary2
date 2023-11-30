@@ -117,3 +117,5 @@ I finished with perfect process today and I am happy about it. I also came up wi
 # 29 November - Wednesday - Berlin - 435 day of immigration
 
 The main thing today is that I got tax id. It took one week only. It's cool. Another cool piece of news that I got an invitation to visit Frankfurt and meet a teem of one company that is looking for a team lead. It's so cool and new for me. Maybe I will go there. I do not know about it. Tomorrow is my last day in dr smile. I am so happy about it really. I am so tiered of them that I will be happy to stop working on this shit. The day after tomorrow I will go to new office and company the xu. I will be a fullstack software developer there that is not so cool for me honestly. I would be happy to change the job asap. In the evening we walked a bit on the district. Also Ksusha started sending renting requests to different apartments. So, additionally we will go to Sparkasse next morning. I want to open an account and have some local bank card. Even more I need to have gira card, which is local transaction system, like global mastercard or visa.
+
+# 30 November - Wednesday - Berlin - 435 day of immigration
