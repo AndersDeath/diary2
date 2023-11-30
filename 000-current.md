@@ -120,4 +120,4 @@ The main thing today is that I got tax id. It took one week only. It's cool. Ano
 
 # 30 November - Thursday - Berlin - 436 day of immigration
 
-It was the last day in DR SMILE. It finally happened. I will miss these people. It was hard three years. Also they forgot to approve my last invoice and there will be another delay with payment. I was so surprised that they cannot do things in time. I suppose that they are in bad situation because of it.
+It was the last day in DR SMILE. It finally happened. I will miss these people. It was hard three years. Also they forgot to approve my last invoice and there will be another delay with payment. I was so surprised that they cannot do things in time. I suppose that they are in bad situation because of it. Maybe the new approach will help them but I don't know 
