@@ -120,4 +120,4 @@ The main thing today is that I got tax id. It took one week only. It's cool. Ano
 
 # 30 November - Thursday - Berlin - 436 day of immigration
 
-It was the last day in DR SMILE.
+It was the last day in DR SMILE. It finally happened.
