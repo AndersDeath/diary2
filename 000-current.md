@@ -124,4 +124,4 @@ It was the last day in DR SMILE. It finally happened. I will miss these people. 
 
 # 01 December - Friday - Berlin - 437 day of immigration
 
-Today I visite the XU office and met all people there. It was nice conversation and onboarding in general. I enjoyed it a lot.
+Today I visite the XU office and met all people there. It was nice conversation and onboarding in general. I enjoyed it a lot. It was filly office day but with some cool things.
