@@ -121,3 +121,5 @@ The main thing today is that I got tax id. It took one week only. It's cool. Ano
 # 30 November - Thursday - Berlin - 436 day of immigration
 
 It was the last day in DR SMILE. It finally happened. I will miss these people. It was hard three years. Also they forgot to approve my last invoice and there will be another delay with payment. I was so surprised that they cannot do things in time. I suppose that they are in bad situation because of it. Maybe the new approach will help them but I don't know. I don't believe in them at all. Also we were in sparkasse this morning. It was partially successful visit where we got another appointment for monday. Probably they will open a card for me and Ksusha. Tomorrow my first day in new place. I need to be there at 9.30 probably. I will try to be in time by the way. I hope to have good time. At the same time it will be the first time when I go somewhere in Berlin by public transport.
+
+# 01 de - Thursday - Berlin - 436 day of immigration
