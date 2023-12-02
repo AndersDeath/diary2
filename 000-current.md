@@ -4,4 +4,4 @@ Today I visit the XU office and met all people there. It was nice conversation a
 
 # 02 December - Saturday - Berlin - 438 day of immigration
 
-Today I was near ex-berlin wall where one artist draw a brezhven kissed a leader of DDR. It is extremely famous picture. Also there is a picture of Academic Sakharov that participated in invention of extremely powerful Tzar bomb. In general this place is very interesting. After that we went to a gallery in Nounköln. What a shitty place I have to say. Additionally I saw in metro a Ukranian guy that tried to fight to a russian that was not ok for this person.
+Today I was near ex-berlin wall where one artist draw a brezhven kissed a leader of DDR. It is extremely famous picture. Also there is a picture of Academic Sakharov that participated in invention of extremely powerful Tzar bomb. In general this place is very interesting. After that we went to a gallery in Nounköln. What a shitty place I have to say. Additionally I saw in metro a Ukranian guy that tried to fight to a russian that was not ok for this person. What a bullshit.
