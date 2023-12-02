@@ -4,4 +4,4 @@ Today I visit the XU office and met all people there. It was nice conversation a
 
 # 02 December - Saturday - Berlin - 438 day of immigration
 
-Today I was 
+Today I was near ex-berlin wall
