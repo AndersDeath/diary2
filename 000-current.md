@@ -8,4 +8,4 @@ Today I was near ex-berlin wall where one artist draw a brezhven kissed a leader
 
 # 03 December - Sunday - Berlin - 439 day of immigration
 
-The museum of communication was nice. We spent an hour there and it was cool. Also we found a cool vietnamese restaurant 
+The museum of communication was nice. We spent an hour there and it was cool. Also we found a cool vietnamese restaurant. It was tasty and nice.
