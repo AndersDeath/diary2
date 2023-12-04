@@ -10,4 +10,4 @@ Today I was near ex-berlin wall where one artist draw a brezhven kissed a leader
 
 The museum of communication was nice. We spent an hour there and it was cool. Also we found a cool vietnamese restaurant. It was tasty and nice. The half of the day we spent at home because each of us has big dept. Tomorrow we are going to sparcasse wich is big german ban. It's needed to us opening an account there in order to get salary. So, I hope it will be smooth. Will see. Also tomorrow is the first working day for me. Sure I had a day on Friday but only tomorrow I will start doing actual things. Basically it will be an onboarding day. I need to fill some information on personio and set up all important environment for work. I hope it will be also easy. laptop they gave me is better than mine but I don't know how it will actually work. It's 14 inches Macbook pro 2021 on m1 processor. I have 13 inches macbook pro 2020 on m1 as well. Also I will have some additional information about future interview and other different cool things.
 
-# 03 December - Sunday - Berlin - 439 day of immigration
+# 04 December - Monday - Berlin - 440 day of immigration
