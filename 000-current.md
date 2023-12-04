@@ -12,4 +12,4 @@ The museum of communication was nice. We spent an hour there and it was cool. Al
 
 # 04 December - Monday - Berlin - 440 day of immigration
 
-Today we were in sparkasse and actually they opened an account to me. It's really good news. Also vivid band opened another account which is nice as well. I will go and pull some money to it because I have to pay for the delivery. It's sad but necessary. I still want to have a bank card that will work everywhere inside and outside of Europe. I still cannot understand fully that I am in Germany. It's crazy. In general I cannot say that I totally feel the positive difference. This place is much safier
+Today we were in sparkasse and actually they opened an account to me. It's really good news. Also vivid band opened another account which is nice as well. I will go and pull some money to it because I have to pay for the delivery. It's sad but necessary. I still want to have a bank card that will work everywhere inside and outside of Europe. I still cannot understand fully that I am in Germany. It's crazy. In general I cannot say that I totally feel the positive difference. This place is much safer
