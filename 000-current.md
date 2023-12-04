@@ -12,4 +12,4 @@ The museum of communication was nice. We spent an hour there and it was cool. Al
 
 # 04 December - Monday - Berlin - 440 day of immigration
 
-Today we were in sparkasse and actually they opened an acoount to me.
+Today we were in sparkasse and actually they opened an account to me.
