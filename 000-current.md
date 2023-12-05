@@ -17,4 +17,4 @@ Today we were in sparkasse and actually they opened an account to me. It's reall
 
 # 05 December - Tuesday - Berlin - 441 day of immigration
 
-So, today I was onboarding in XU stuff. I investigated how main things work in their project and also did some minor updates for HR onboarding.
+So, today I was onboarding in XU stuff. I investigated how main things work in their project and also did some minor updates for HR onboarding. ADditionally I decided to correct my way as I usually do every year.
