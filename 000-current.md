@@ -16,3 +16,5 @@ Today we were in sparkasse and actually they opened an account to me. It's reall
  do a lot of things. So, Now I need to have a rest. I did a lot of important things today. The onboarding in XU has been being annoying.
 
 # 05 December - Tuesday - Berlin - 441 day of immigration
+
+So, today I was onboarding in XU stuff.
