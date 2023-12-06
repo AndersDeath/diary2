@@ -21,4 +21,4 @@ So, today I was onboarding in XU stuff. I investigated how main things work in t
 
 # 06 December - Wednesday - Berlin - 442 day of immigration
 
-THis day I spent in the office. I am so tiered that it's really hard to understand. I got some tickets in work today which is nice. Also I was diving deeper to the topic and happy about. Unfortunately I didn't find time for grooming my own schedule. I just didn't have time for it. However it was nice. One interesting case happened to me today.
+THis day I spent in the office. I am so tiered that it's really hard to understand. I got some tickets in work today which is nice. Also I was diving deeper to the topic and happy about. Unfortunately I didn't find time for grooming my own schedule. I just didn't have time for it. However it was nice. One interesting case happened to me today. My college that helps me with onboarding
