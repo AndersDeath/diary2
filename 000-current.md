@@ -21,4 +21,4 @@ So, today I was onboarding in XU stuff. I investigated how main things work in t
 
 # 06 December - Wednesday - Berlin - 442 day of immigration
 
-THis day I spent in the offie.
+THis day I spent in the office. I am so tiered that it's really hard to understand.
