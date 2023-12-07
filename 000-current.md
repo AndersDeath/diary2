@@ -22,3 +22,5 @@ So, today I was onboarding in XU stuff. I investigated how main things work in t
 # 06 December - Wednesday - Berlin - 442 day of immigration
 
 THis day I spent in the office. I am so tiered that it's really hard to understand. I got some tickets in work today which is nice. Also I was diving deeper to the topic and happy about. Unfortunately I didn't find time for grooming my own schedule. I just didn't have time for it. However it was nice. One interesting case happened to me today. My college that helps me with onboarding is from Iraq. His native language is Iraqi version of Arabic. at the same time he know some universal version of it. So, when we were ordering falafel my this guy started talking to Syrian guys that make this food. These guys gave us some pieces of falafel for free just as a compliment. I really felt how immigration community works. It's so peculiar. Tomorrow I am going to finish with some things. In general I feel how it's hard to do things, but I am trying. I am fighting.
+
+# 07 December - Wednesday - Berlin - 442 day of immigration
