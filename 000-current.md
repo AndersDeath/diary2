@@ -25,4 +25,4 @@ THis day I spent in the office. I am so tiered that it's really hard to understa
 
 # 07 December - Thursday - Berlin - 443 day of immigration
 
-I was in the office again. Also I felt much better that yesterday. However my mood is not so good. I don't know why to be honest. Maybe because I feel some weird feeling because I don't know German and it 
+I was in the office again. Also I felt much better that yesterday. However my mood is not so good. I don't know why to be honest. Maybe because I feel some weird feeling because I don't know German and it makes my live a bit difficult here.
