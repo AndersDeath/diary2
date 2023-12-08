@@ -29,4 +29,4 @@ I was in the office again. Also I felt much better that yesterday. However my mo
 
 # 08 December - Friday - Berlin - 444 day of immigration
 
-Today I was working from home. It's so cool. I understand that socialization is important but being home is much better. However I am going to visit office on Monday. It will be the full day there. In the evening me and Ksusha visited vietnamese restaurant from Michelin list. It was tasty but I will not go to the place again. Too simple food doesn't make sense. Next time I will get something else. Also today I got a physical bank card which is amazing. I am happy about it.
+Today I was working from home. It's so cool. I understand that socialization is important but being home is much better. However I am going to visit office on Monday. It will be the full day there. In the evening me and Ksusha visited vietnamese restaurant from Michelin list. It was tasty but I will not go to the place again. Too simple food doesn't make sense. Next time I will get something else. Also today I got a physical bank card which is amazing. I am happy about it. Very soon I will get another card from Sparkasse 
