@@ -28,3 +28,5 @@ THis day I spent in the office. I am so tiered that it's really hard to understa
 I was in the office again. Also I felt much better that yesterday. However my mood is not so good. I don't know why to be honest. Maybe because I feel some weird feeling because I don't know German and it makes my live a bit difficult here. So I decided to learn it every fucking day. This is the only way how to remove this damn feeling. Additionally heating system in my apartment stopped working again. I really don't understand what is going wrong. I hope that we will survive this night. I am so want to move to another apartments asap. I hate it. So as you can see I am in bad mood.
 
 # 08 December - Friday - Berlin - 444 day of immigration
+
+Today I was working from home. It's so cool
