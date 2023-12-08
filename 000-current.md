@@ -29,4 +29,4 @@ I was in the office again. Also I felt much better that yesterday. However my mo
 
 # 08 December - Friday - Berlin - 444 day of immigration
 
-Today I was working from home. It's so cool. I understand that socialization is important but being home is much better. However I am going to visit office on Monday. It will be the full day there. In the evening me and Ksusha visited vietnamese restaurant in 
+Today I was working from home. It's so cool. I understand that socialization is important but being home is much better. However I am going to visit office on Monday. It will be the full day there. In the evening me and Ksusha visited vietnamese restaurant from Mishlen list.
