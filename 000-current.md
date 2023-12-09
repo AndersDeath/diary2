@@ -33,4 +33,4 @@ Today I was working from home. It's so cool. I understand that socialization is 
 
 # 09 December - Saturday - Berlin - 445 day of immigration
 
-Today we were in
+Today we were in another contemporary art museum or a hall. 
