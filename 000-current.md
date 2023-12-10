@@ -37,4 +37,4 @@ Today we were in another contemporary art museum or a hall. This place is on Noe
 
 # 10 December - Sunday - Berlin - 446 day of immigration
 
-Today I was in Stasi museum. It's located in ex head quarter of the service. The place is absolutely soviet. Everything is so familiar that it feels crazy. I didn't expect that. At the same time it so cool. Surely Stasi was an evil. All exhibition speaks about it. IT's also a bit crazy because it's not true. However the modern Germany should demonize everything related to DDR and communist's period. I wasn't surprised. Also we did a huge cleaning in our apartments today. Mold is everywhere.
+Today I was in Stasi museum. It's located in ex head quarter of the service. The place is absolutely soviet. Everything is so familiar that it feels crazy. I didn't expect that. At the same time it so cool. Surely Stasi was an evil. All exhibition speaks about it. IT's also a bit crazy because it's not true. However the modern Germany should demonize everything related to DDR and communist's period. I wasn't surprised. Also we did a huge cleaning in our apartments today. Mold is everywhere. It's so disgusting.
