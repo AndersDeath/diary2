@@ -35,4 +35,4 @@ Today I was working from home. It's so cool. I understand that socialization is 
 
 Today we were in another contemporary art museum or a hall. This place is on Noekeln district and in the past it was a beer factory and heating house. Honestly I don't know how to text this definitions in English correctly. so, the exhibition there was nice. After that we had to view an apartments but the host fucked us and didn't send a number of house in time. So, we just didn't go there and after visiting of Shopping mall went to Hard Rock cafe. Honestly it's just a shitty place I would say. I will never visit it again. In Yerevan it was much better and more interesting. In general I will never go there except Armenian version. Also I finally bought another backpack that is nice. It looks much better than my old one. I also a bit worried about getting permanent apartments here. It's so shitty. It much harder than I expected. I heard a lot of rumors about it but reality is even harder. It's absolutely uncomfortable situation here with it.
 
-# 10 December - Saturday - Berlin - 445 day of immigration
+# 10 December - Sunday - Berlin - 446 day of immigration
