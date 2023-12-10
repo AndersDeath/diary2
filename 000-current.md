@@ -37,4 +37,4 @@ Today we were in another contemporary art museum or a hall. This place is on Noe
 
 # 10 December - Sunday - Berlin - 446 day of immigration
 
-Today I was in Stasi museum. It's located in ex head quarter of the service. The place is absolutely soviet. Everything is so familiar 
+Today I was in Stasi museum. It's located in ex head quarter of the service. The place is absolutely soviet. Everything is so familiar that it feels crazy.
