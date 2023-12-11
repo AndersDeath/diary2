@@ -41,4 +41,4 @@ Today I was in Stasi museum. It's located in ex head quarter of the service. The
 
 # 11 December - Monday - Berlin - 447 day of immigration
 
-I was working in the office today. I spent some time on different tasks. In general I was working on really important things. I up
+I was working in the office today. I spent some time on different tasks. In general I was working on really important things. I updated Algorithms handbook 
