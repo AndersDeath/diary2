@@ -41,4 +41,4 @@ Today I was in Stasi museum. It's located in ex head quarter of the service. The
 
 # 11 December - Monday - Berlin - 447 day of immigration
 
-I was working in the office today. I spent some time on different tasks. In general I was working on really important things. I updated Algorithms handbook which I really like. The main piece of news today is that I got an invitation to Frontend chapter lead position in movingimage company. Honestly I am so tiered that I just didn't feel anything. It's weird but true. The conditions in their company are much better that in XU. I am scheduling another call with them and 
+I was working in the office today. I spent some time on different tasks. In general I was working on really important things. I updated Algorithms handbook which I really like. The main piece of news today is that I got an invitation to Frontend chapter lead position in movingimage company. Honestly I am so tiered that I just didn't feel anything. It's weird but true. The conditions in their company are much better that in XU. I am scheduling another call with them and I hope to clarify some questions and
