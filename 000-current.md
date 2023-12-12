@@ -45,4 +45,4 @@ I was working in the office today. I spent some time on different tasks. In gene
 
 # 12 December - Tuesday - Berlin - 448 day of immigration
 
-I did a lot of things today.
+I did a lot of things today. It's wasn't easy but
