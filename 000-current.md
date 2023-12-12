@@ -45,4 +45,4 @@ I was working in the office today. I spent some time on different tasks. In gene
 
 # 12 December - Tuesday - Berlin - 448 day of immigration
 
-I did a lot of things today. It's wasn't easy. I had a lot of meetings and some things. Also I had an interview for head of engineering position. It was very stupid conversation. I didn't like it. I think that it was absolutely unsuccessful.
+I did a lot of things today. It's wasn't easy. I had a lot of meetings and some things. Also I had an interview for head of engineering position. It was very stupid conversation. I didn't like it. I think that it was absolutely unsuccessful. 
