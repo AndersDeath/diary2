@@ -49,4 +49,4 @@ I did a lot of things today. It's wasn't easy. I had a lot of meetings and some 
 
 # 13 December - Wednesday - Berlin - 449 day of immigration
 
-The office day was today. I was alone in the huge open space room. At the same time I had a lot of meetings. In general the day was nice. I visited burgeramt one more time and ordered a certificate of good attendance. It will be sent in to me soon and I expect to get it in two weeks. Also I filled another statement for one of real estate agency for getting an view of apartments. Also we are expecting to view another  
+The office day was today. I was alone in the huge open space room. At the same time I had a lot of meetings. In general the day was nice. I visited burgeramt one more time and ordered a certificate of good attendance. It will be sent in to me soon and I expect to get it in two weeks. Also I filled another statement for one of real estate agency for getting an view of apartments. Also we are expecting to view another place near the city center. 
