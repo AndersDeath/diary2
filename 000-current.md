@@ -49,4 +49,4 @@ I did a lot of things today. It's wasn't easy. I had a lot of meetings and some 
 
 # 13 December - Wednesday - Berlin - 449 day of immigration
 
-The office day was today. I was alone in the huge open space room.
+The office day was today. I was alone in the huge open space room. At the same time I had a lot of meetings.
