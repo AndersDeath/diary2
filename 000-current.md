@@ -51,6 +51,6 @@ I did a lot of things today. It's wasn't easy. I had a lot of meetings and some 
 
 The office day was today. I was alone in the huge open space room. At the same time I had a lot of meetings. In general the day was nice. I visited bürgeramt one more time and ordered a certificate of good attendance. It will be sent in to me soon and I expect to get it in two weeks. Also I filled another statement for one of real estate agency for getting an view of apartments. Also we are expecting to view another place near the city center. I am curious if someone will invite us. I hope that it will happen. The most significant and weird thing for me in Berlin that majority of apartments are without furniture. It's not so often thing. At the same time it's a chance to buy everything you like and live in your own comfort. but everything is so expensive that I don't know if I want to rent some of apartments here.
 
-# 14 December - Donnerstag - Berlin - 450 Tag der Einwanderung
+# 14 Dezember - Donnerstag - Berlin - 450 Tag der Einwanderung
 
 So, I decided to start marking days and other things in German here. Maybe one day I will switch to this language here. I hope that one day my English knowledge will be enough for just having it in mind as default skill.
