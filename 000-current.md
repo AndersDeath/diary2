@@ -53,4 +53,4 @@ The office day was today. I was alone in the huge open space room. At the same t
 
 # 14 Dezember - Donnerstag - Berlin - 450 Tag der Einwanderung
 
-So, I decided to start marking days and other things in German here. Maybe one day I will switch to this language here. I hope that one day my English knowledge will be enough for just having it in mind as default skill. Also I finished reading book series Strazh by Pehov. It was incredible. I have not read so cool fantasy books in Russian for very long time. It was amazing. If you know Russian you should definitely read it.
+So, I decided to start marking days and other things in German here. Maybe one day I will switch to this language here. I hope that one day my English knowledge will be enough for just having it in mind as default skill. Also I finished reading book series Strazh by Pehov. It was incredible. I have not read so cool fantasy books in Russian for very long time. It was amazing. If you know Russian you should definitely read it. I enjoed it and you will do it as well.
