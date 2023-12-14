@@ -53,3 +53,4 @@ The office day was today. I was alone in the huge open space room. At the same t
 
 # 14 December - Donnerstag - Berlin - 450 Tag der Einwanderung
 
+So, I decided to start marking days and 
