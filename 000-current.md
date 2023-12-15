@@ -54,3 +54,5 @@ The office day was today. I was alone in the huge open space room. At the same t
 # 14 Dezember - Donnerstag - Berlin - 450 Tag der Einwanderung
 
 So, I decided to start marking days and other things in German here. Maybe one day I will switch to this language here. I hope that one day my English knowledge will be enough for just having it in mind as default skill. Also I finished reading book series Strazh by Pehov. It was incredible. I have not read so cool fantasy books in Russian for very long time. It was amazing. If you know Russian you should definitely read it. I enjoyed it and you will do it as well. In general this day was nice but heavy. I feel very tiered but cannot do anything with it. A lot of things should be done. The apartments question destroys and annoys. In this situation I can only try to do things and not more. Tomorrow it Freitag and I am happy about it. I am going to a local barber this morning and this is also cool. I hope that that place will be nice. Will see. Right now I don't know. Tomorrow I will text about it here.
+
+# 15 Dezember - Freitag - Berlin - 451 Tag der Einwanderung
