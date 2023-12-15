@@ -57,4 +57,4 @@ So, I decided to start marking days and other things in German here. Maybe one d
 
 # 15 Dezember - Freitag - Berlin - 451 Tag der Einwanderung
 
-Today I visited a barbershop so it was not a perfect experience as fo me. Surely specialists for eastern Europe and caucas much better. The price was hight, the outcome wasn't so. Unfortunately I also lost in Berlin today. I put other address to google maps
+Today I visited a barbershop so it was not a perfect experience as fo me. Surely specialists for eastern Europe and caucas much better. The price was hight, the outcome wasn't so. Unfortunately I also lost in Berlin today. I put other address to google maps accidentally.
