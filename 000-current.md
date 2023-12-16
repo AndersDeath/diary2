@@ -61,4 +61,4 @@ Today I visited a barbershop so it was not a perfect experience as fo me. Surely
 
 # 16 Dezember - Samstag - Berlin - 452 Tag der Einwanderung
 
-Today we were walking in the city.
+Today we were walking in the city. We were at
