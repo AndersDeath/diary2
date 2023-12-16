@@ -61,4 +61,4 @@ Today I visited a barbershop so it was not a perfect experience as fo me. Surely
 
 # 16 Dezember - Samstag - Berlin - 452 Tag der Einwanderung
 
-Today we were walking in the city. We were at Zoologischer Garten U-bahn station. We spent some time in the cafe working. Also the server in the place was a girl from Ukraine. It was interesting.
+Today we were walking in the city. We were at Zoologischer Garten U-bahn station. We spent some time in the cafe working. Also the server in the place was a girl from Ukraine. It was interesting. Also in the morning we viewed an apartments in Wedding district.
