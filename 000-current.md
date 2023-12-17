@@ -65,4 +65,4 @@ Today we were walking in the city. We were at Zoologischer Garten U-bahn station
 
 # 17 Dezember - Sonntag - Berlin - 453 Tag der Einwanderung
 
-Today we looked at another apartment. It was so bad. I would not like to live there. It's insane.
+Today we looked at another apartment. It was so bad. I would not like to live there. It's insane. The architecture of building is terrifying.
