@@ -69,4 +69,4 @@ Today we looked at another apartment. It was so bad. I would not like to live th
 
 # 18 Dezember - Montag - Berlin - 454 Tag der Einwanderung
 
-We were only on one view of apartments. Unfortunately two of them were to far from the city center.
+We were only on one view of apartments. Unfortunately two of them were to far from the city center. It was tough. 
