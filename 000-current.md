@@ -69,4 +69,4 @@ Today we looked at another apartment. It was so bad. I would not like to live th
 
 # 18 Dezember - Montag - Berlin - 454 Tag der Einwanderung
 
-We were only on one view of apartments. Unfortunately two of them were to far from the city center. and some of theme were too expensive. The apartment we visited was absolutely awful. It's a perfect place to die. Tomorrow we are going to another view of apartments that looks much more promissing.
+We were only on one view of apartments. Unfortunately two of them were to far from the city center. and some of theme were too expensive. The apartment we visited was absolutely awful. It's a perfect place to die. Tomorrow we are going to another view of apartments that looks much more promising. 
