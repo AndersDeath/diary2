@@ -73,4 +73,4 @@ We were only on one view of apartments. Unfortunately two of them were to far fr
 
 # 19 Dezember - Dienstag - Berlin - 455 Tag der Einwanderung
 
-Days that filled by meeting are always hard. Discussion about some new XU architecture took 5 hours. I don't like it in general, but today I enjoyed. Maybe it's just because the project is still new for me. Also we viewed another apartments today. The place is really good. I would really happy to settle there. It is ok for my budget and it's cool. Surely there is nothing. No internet, not electricity - nothing.
+Days that filled by meeting are always hard. Discussion about some new XU architecture took 5 hours. I don't like it in general, but today I enjoyed. Maybe it's just because the project is still new for me. Also we viewed another apartments today. The place is really good. I would really happy to settle there. It is ok for my budget and it's cool. Surely there is nothing. No internet, not electricity - nothing. There is no bad even
