@@ -73,4 +73,4 @@ We were only on one view of apartments. Unfortunately two of them were to far fr
 
 # 19 Dezember - Dienstag - Berlin - 455 Tag der Einwanderung
 
-Days that filled by meeting are always hard. Discussion about some new XU architecture took 5 hours. I don't like it in general,
+Days that filled by meeting are always hard. Discussion about some new XU architecture took 5 hours. I don't like it in general, but today I enjyed.
