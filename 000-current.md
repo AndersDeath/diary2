@@ -77,4 +77,4 @@ Days that filled by meeting are always hard. Discussion about some new XU archit
 
 # 20 Dezember - Mittwoch - Berlin - 456 Tag der Einwanderung
 
-Today I finally started watching the Y combinator videos. I enjoyed it. Good start. The other time I spent on usual tasks and things.
+Today I finally started watching the Y combinator videos. I enjoyed it. Good start. The other time I spent on usual tasks and things. The day was quite usual.
