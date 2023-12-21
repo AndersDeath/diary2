@@ -81,4 +81,4 @@ Today I finally started watching the Y combinator videos. I enjoyed it. Good sta
 
 # 21 Dezember - Donnerstag - Berlin - 457 Tag der Einwanderung
 
-The office day is finished. I am happy. It was hard. I was working on some XU stuff and did many other things. I almost don't think about their task because it's just a job. I mainly focus on my developing things. For example
+The office day is finished. I am happy. It was hard. I was working on some XU stuff and did many other things. I almost don't think about their task because it's just a job. I mainly focus on my developing things. For example I was working on new schema for holy theory project ui.
