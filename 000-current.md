@@ -81,4 +81,4 @@ Today I finally started watching the Y combinator videos. I enjoyed it. Good sta
 
 # 21 Dezember - Donnerstag - Berlin - 457 Tag der Einwanderung
 
-The office day is finished. I am happy.
+The office day is finished. I am happy. It was hard.
