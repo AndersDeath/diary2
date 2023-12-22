@@ -85,4 +85,4 @@ The office day is finished. I am happy. It was hard. I was working on some XU st
 
 # 22 Dezember - Freitag - Berlin - 458 Tag der Einwanderung
 
-The day was weird. I did almost nothing valuable.
+The day was weird. I did almost nothing valuable. I almost finished editing of the video.
