@@ -89,4 +89,4 @@ The day was weird. I did almost nothing valuable. I almost finished editing of t
 
 # 23 Dezember - Samstag - Berlin - 459 Tag der Einwanderung
 
-The day was nice.
+The day was nice. We walked a lot in the city center.
