@@ -89,4 +89,4 @@ The day was weird. I did almost nothing valuable. I almost finished editing of t
 
 # 23 Dezember - Samstag - Berlin - 459 Tag der Einwanderung
 
-The day was nice. We walked a lot in the city center. I liked and enjoyed it. We were in the city center, visited some places of interest.
+The day was nice. We walked a lot in the city center. I liked and enjoyed it. We were in the city center, visited some places of interest. Also we ate nice food in fastfood place and some shit.
