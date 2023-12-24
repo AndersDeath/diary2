@@ -93,4 +93,4 @@ The day was nice. We walked a lot in the city center. I liked and enjoyed it. We
 
 # 24 Dezember - Sonntag - Berlin - 460 Tag der Einwanderung
 
-Today is a christmas eve here. I don't celebrate this day because I don't believe in god and it's important to me not to touch it. Religion is a huge evil despite the face this has some teraphim 
+Today is a christmas eve here. I don't celebrate this day because I don't believe in god and it's important to me not to touch it. Religion is a huge evil despite the face this has some therapy value.
