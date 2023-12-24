@@ -91,4 +91,4 @@ The day was weird. I did almost nothing valuable. I almost finished editing of t
 
 The day was nice. We walked a lot in the city center. I liked and enjoyed it. We were in the city center, visited some places of interest. Also we ate nice food in fast food place and some shit. Also I finally published a vide and maybe if everything is ok and I feel ok I will record another one tomorrow. I hope that it will be good. Will see. Besides that I did noting today. I don't want to do anything. I feel like nothing can push me to some tunnel where I can be focused on valuable things. I don't know why. Maybe I am just tired of everything. I don't know. Anyway. The day was nice I am in a good mood and the bad is waiting for me. Everything will be ok
 
-# 24 Dezember - Samstag - Berlin - 459 Tag der Einwanderung
+# 24 Dezember - Sonntag - Berlin - 459 Tag der Einwanderung
