@@ -97,4 +97,4 @@ Today is a christmas eve here. I don't celebrate this day because I don't believ
 
 # 25 Dezember - Montag - Berlin - 461 Tag der Einwanderung
 
-What a day. We walked a lot in the Mitte Berlin.
+What a day. We walked a lot in the Mitte Berlin. The weather was also cool and it wasn't so annoying.
