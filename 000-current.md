@@ -101,4 +101,4 @@ What a day. We walked a lot in the Mitte Berlin. The weather was also cool and i
 
 # 26 Dezember - Dienstag - Berlin - 462 Tag der Einwanderung
 
-It's so cool to have a free day. I really like it. We were viewing another apartments today. It's a really cool variant but this place has 20 candidates. It's really hard to be chosen. If it happens we will live in the city center. the place is in 15 minutes to check-point charlie. Also I finally bought bolshakov.tech domain yesterday. Today I set up a server. Tomorrow I will deploy the website. I want to change something 
+It's so cool to have a free day. I really like it. We were viewing another apartments today. It's a really cool variant but this place has 20 candidates. It's really hard to be chosen. If it happens we will live in the city center. the place is in 15 minutes to check-point charlie. Also I finally bought bolshakov.tech domain yesterday. Today I set up a server. Tomorrow I will deploy the website. I want to change something and publish it.
