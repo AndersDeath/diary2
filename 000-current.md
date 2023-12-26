@@ -101,4 +101,4 @@ What a day. We walked a lot in the Mitte Berlin. The weather was also cool and i
 
 # 26 Dezember - Dienstag - Berlin - 462 Tag der Einwanderung
 
-It's so cool to have a free day. I really like it. 
+It's so cool to have a free day. I really like it. We were viewing another apartments today.
