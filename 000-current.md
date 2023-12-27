@@ -105,4 +105,4 @@ It's so cool to have a free day. I really like it. We were viewing another apart
 
 # 27 Dezember - Mittmoch - Berlin - 463 Tag der Einwanderung
 
-I finally published bolshakov.tech website and I am happy about it. After that I did a lot of different important things. I finally translated a new article from russian to english which is also nice. Tomorrow I will edit it and publish. IF I have enough time I will also edit and publish 
+I finally published bolshakov.tech website and I am happy about it. After that I did a lot of different important things. I finally translated a new article from russian to english which is also nice. Tomorrow I will edit it and publish. IF I have enough time I will also edit and publish video. 
