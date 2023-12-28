@@ -109,4 +109,4 @@ I finally published bolshakov.tech website and I am happy about it. After that I
 
 # 28 Dezember - Donnerstag - Berlin - 464 Tag der Einwanderung
 
-I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alexa shopping mall and got some goods. Also I edited a video a bit, finalized the new article and added some important information to holy theory project. Also we visited another supermarket and purchased cool thing for new year celebration. In general the day was calm and didn't do anything significant.
+I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alexa shopping mall and got some goods. Also I edited a video a bit, finalized the new article and added some important information to holy theory project. Also we visited another supermarket and purchased cool thing for new year celebration. In general the day was calm and didn't do anything significant. I still try to be calm and to have a rest.
