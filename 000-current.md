@@ -109,4 +109,4 @@ I finally published bolshakov.tech website and I am happy about it. After that I
 
 # 28 Dezember - Donnerstag - Berlin - 464 Tag der Einwanderung
 
-I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alexa s
+I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alexa shoppingmall and got some goods.
