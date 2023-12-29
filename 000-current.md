@@ -111,4 +111,4 @@ I finally published bolshakov.tech website and I am happy about it. After that I
 
 I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alexa shopping mall and got some goods. Also I edited a video a bit, finalized the new article and added some important information to holy theory project. Also we visited another supermarket and purchased cool thing for new year celebration. In general the day was calm and didn't do anything significant. I still try to be calm and to have a rest. The new year will be hard I think and need to be prepared. Another thing that I forgot to mention that yesterday I found a radio tax in my mailbox. I need to figure out what to do with it, because it's not so clear. I don't understand if I should pay for it because I don't live in permanent apartments. I sent a request to my landlord with some questions. I hope she will answer me after new year eve. Another thing is that I payed latest bills for my Yerevan's apartments yesterday. I don't have any debts right now. It's really cool.
 
-# 29 Dezember - Freitag - Berlin - 464 Tag der Einwanderung
+# 29 Dezember - Freitag - Berlin - 465 Tag der Einwanderung
