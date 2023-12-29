@@ -113,4 +113,4 @@ I finally bought a new year present for Ksusha. I went to Alexanderplatz to Alex
 
 # 29 Dezember - Freitag - Berlin - 465 Tag der Einwanderung
 
-Today I finally fixed an issue with ssl certificate for bolshakov.tech. Finally it works well. Tomorrow I will update the website.
+Today I finally fixed an issue with ssl certificate for bolshakov.tech. Finally it works well. Tomorrow I will update the website. Also I updated
