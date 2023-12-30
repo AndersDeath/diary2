@@ -117,4 +117,4 @@ Today I finally fixed an issue with ssl certificate for bolshakov.tech. Finally 
 
 # 30 Dezember - Samstag - Berlin - 466 Tag der Einwanderung
 
-We viewed another apartment today. Unfortunately there is not enough area. It's just too small. Also the construction is going on around. I think the place will be very noisy. Maybe in one year the place will be comfortable for living. Tomorrow morning we have another viewing of apartment.
+We viewed another apartment today. Unfortunately there is not enough area. It's just too small. Also the construction is going on around. I think the place will be very noisy. Maybe in one year the place will be comfortable for living. Tomorrow morning we have another viewing of apartment. I hope the place will be good.
