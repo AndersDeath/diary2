@@ -121,4 +121,4 @@ We viewed another apartment today. Unfortunately there is not enough area. It's 
 
 # 31 Dezember - Sonntag - Berlin - 467 Tag der Einwanderung
 
-The last day is here, people. It happened. 2024 will be better I hope. So, I sent all my congratulations to every person I could remember and even more. Also we were working from nice cafe on Stattmitte. It was nice and very pleasant. We already met new year accordingly Moscow and in 20 minutes the new year begins here in Berlin. Ksusha cooked a great dinner, we also bought nice champagne Moet which is much cheaper here in Europe.
+The last day is here, people. It happened. 2024 will be better I hope. So, I sent all my congratulations to every person I could remember and even more. Also we were working from nice cafe on Stattmitte. It was nice and very pleasant. We already met new year accordingly Moscow and in 20 minutes the new year begins here in Berlin. Ksusha cooked a great dinner, we also bought nice champagne Moet which is much cheaper here in Europe. Also we bought some candle and simple fireworks
