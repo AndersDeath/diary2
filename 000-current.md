@@ -121,4 +121,4 @@ We viewed another apartment today. Unfortunately there is not enough area. It's 
 
 # 31 Dezember - Sonntag - Berlin - 467 Tag der Einwanderung
 
-The last day is here, people.
+The last day is here, people. It happened.
