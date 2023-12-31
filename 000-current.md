@@ -121,4 +121,4 @@ We viewed another apartment today. Unfortunately there is not enough area. It's 
 
 # 31 Dezember - Sonntag - Berlin - 467 Tag der Einwanderung
 
-The last day is here, people. It happened. 2024 will be better I hope.
+The last day is here, people. It happened. 2024 will be better I hope. So, I sent all my congratulations to every person I could remember and even more.
