@@ -119,4 +119,4 @@ Today I finally fixed an issue with ssl certificate for bolshakov.tech. Finally 
 
 We viewed another apartment today. Unfortunately there is not enough area. It's just too small. Also the construction is going on around. I think the place will be very noisy. Maybe in one year the place will be comfortable for living. Tomorrow morning we have another viewing of apartment. I hope the place will be good. After that we visited shop and bought stuff for the new year celebration. After that we were walking in the city center for a while. Besides that I publish some review of my year on medium and on telegram channel. The next year will be really cool for pushing all my medias. I am going to evolve them. Tomorrow the year will be end. Another year in the war. It's disgusting and hard.
 
-# 30 Dezember - Samstag - Berlin - 466 Tag der Einwanderung
+# 31 Dezember - Sonntag - Berlin - 466 Tag der Einwanderung
