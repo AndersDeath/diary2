@@ -125,4 +125,4 @@ The last day is here, people. It happened. 2024 will be better I hope. So, I sen
 
 # 01 Januar - Montag - Berlin - 468 Tag der Einwanderung
 
-I slept a lot today. It was nice and fair. After that I did some important things, went for a walk for 20 minutes and cleaned mold. Oh fuck the situation with the mold here is horrible. It grows constantly and everywhere.
+I slept a lot today. It was nice and fair. After that I did some important things, went for a walk for 20 minutes and cleaned mold. Oh fuck the situation with the mold here is horrible. It grows constantly and everywhere. I am tiered of it so much.
