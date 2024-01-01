@@ -124,3 +124,5 @@ We viewed another apartment today. Unfortunately there is not enough area. It's 
 The last day is here, people. It happened. 2024 will be better I hope. So, I sent all my congratulations to every person I could remember and even more. Also we were working from nice cafe on Stattmitte. It was nice and very pleasant. We already met new year accordingly Moscow and in 20 minutes the new year begins here in Berlin. Ksusha cooked a great dinner, we also bought nice champagne Moet which is much cheaper here in Europe. Also we bought some candle and simple fireworks and that added some cool atmosphere to our day. We also tried to go to the city center and look at city fireworks but there are a lot of grim bands on the street and some people shot fireworks rockets from balconies. it doesn't look safe and we changed our plans and came back home. Me and Ksusha exchanged by cool presents and I was happy to spend time to her. IT was really cool. Tomorrow I am going to do some important stuff that is related to my project and then I will look. I don't know yet.
 
 # 01 Januar - Montag - Berlin - 468 Tag der Einwanderung
+
+
