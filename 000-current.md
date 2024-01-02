@@ -129,4 +129,4 @@ I slept a lot today. It was nice and fair. After that I did some important thing
 
 # 02 Januar - Dienstag - Berlin - 469 Tag der Einwanderung
 
-BVG comapny finally
+BVG company finally withdraw money
