@@ -7,3 +7,5 @@ I slept a lot today. It was nice and fair. After that I did some important thing
 BVG company finally withdraw money from my account for 59 euro ticket. Now I can travel across Germany using all public  transport except high speed trains. It's cool. Also Ksusha got another viewings of apartments. She is cool about it. I am proud of her. Additonally i sent another application for radio tax for her. When I gen both for me and Ksush ID's I can reduce the cost of this tax. It's really good. I spent all day in the office it was quite cold. Another thing that i did a lot of tasks today. I am almost got crazy because of them I am so tiered. At the same time I have to do sport today. It's not fun. However the day was good. I am tiered and a bit annoyed but happy and feel good.
 
 # 03 Januar - Mittwoch - Berlin - 470 Tag der Einwanderung
+
+The first half of the day I spent in the office
