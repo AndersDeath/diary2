@@ -8,4 +8,4 @@ BVG company finally withdraw money from my account for 59 euro ticket. Now I can
 
 # 03 Januar - Mittwoch - Berlin - 470 Tag der Einwanderung
 
-The first half of the day I spent in the office then I had to go back home because Ksusha was so tiered and didn't want to be alone. It was possible to me and I did it. Also I was working for a whole day on
+The first half of the day I spent in the office then I had to go back home because Ksusha was so tiered and didn't want to be alone. It was possible to me and I did it. Also I was working for a whole day on the projects and so.
