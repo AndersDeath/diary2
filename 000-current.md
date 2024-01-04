@@ -12,4 +12,4 @@ The first half of the day I spent in the office then I had to go back home becau
 
 # 04 Januar - Donnerstag - Berlin - 471 Tag der Einwanderung
 
-I was working from home today. It was nice. the weather is much colder than I expected, bi
+I was working from home today. It was nice. the weather is much colder than I expected.
