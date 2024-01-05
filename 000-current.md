@@ -16,4 +16,4 @@ I was working from home today. the weather is much colder than I expected. I was
 
 # 05 Januar - Freitag - Berlin - 472 Tag der Einwanderung
 
-The day was busy again. I did a lot of things but I am tiered as well. I updated holy theory and added some words to my next article. The good news that I was selected to two short lists for 
+The day was busy again. I did a lot of things but I am tiered as well. I updated holy theory and added some words to my next article. The good news that I was selected to two apartments short list
