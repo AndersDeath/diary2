@@ -20,3 +20,4 @@ The day was busy again. I did a lot of things but I am tiered as well. I updated
 
 # 06 Januar - Sontag - Berlin - 473 Tag der Einwanderung
 
+We visited a Frei Uneversity library today.
