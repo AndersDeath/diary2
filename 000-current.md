@@ -24,4 +24,4 @@ We visited a Frei University library today. It's a great building with cool and 
 
 # 07 Januar - Sontag - Berlin - 478 Tag der Einwanderung
 
-I'm so tiered today. We finally decided to reject contract on leopoldplatz.
+I'm so tiered today. We finally decided to reject contract on leopoldplatz. The place is not so good and I don't 
