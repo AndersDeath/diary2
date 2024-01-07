@@ -18,8 +18,8 @@ I was working from home today. the weather is much colder than I expected. I was
 
 The day was busy again. I did a lot of things but I am tiered as well. I updated holy theory and added some words to my next article. The good news that I was selected to two apartments short list. i suppose that soon i will get some answer from both of them and it will be clear if I will have a flat soon. If not I will have to pay for another month living here on Prinzenallee 21. This is nice place but dirty and I don't line attitude of my landlord. It is weird sometimes. So, we also visited sony center. We walked around and it was cool. However the main event is that I entered to two short lists. i really want to fix it as soon as possible.
 
-# 06 Januar - Sontag - Berlin - 473 Tag der Einwanderung
+# 06 Januar - Samstag - Berlin - 473 Tag der Einwanderung
 
 We visited a Frei University library today. It's a great building with cool and modern place. I liked it so much, I am sure that I will come back to that place in the future. We also looked at an apartments that were really nice and I enjoyed the place. I have a hope that we will be selected. The place stays in a cool district and has great transport availability. Additionally I got an invitation to live in one place on Leopoldplatz. It's cool but i am not sure that the place is cool for me. I don't know really. It was the only view that I visited alone. tomorrow we will be on two other places. So, will see. In general the Ksusha's efforts give shoots. She is crazy about this question. Also tomorrow is orthodox christmas, we will not celebrate it but it's a very important tradition.
 
-# 07 Januar - Sontag - Berlin - 473 Tag der Einwanderung
+# 07 Januar - Sontag - Berlin - 478 Tag der Einwanderung
