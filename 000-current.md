@@ -28,4 +28,4 @@ I'm so tiered today. We finally decided to reject contract on leopoldplatz. The 
 
 # 08 Januar - Montag - Berlin - 475 Tag der Einwanderung
 
-I spent the whole day in the office.
+I spent the whole day in the office. In the evening we looked at cool apartments in the nice district. I enjoyed it.
