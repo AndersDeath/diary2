@@ -27,3 +27,5 @@ We visited a Frei University library today. It's a great building with cool and 
 I'm so tiered today. We finally decided to reject contract on leopoldplatz. The place is not so good and I don't like curvy walls in that apartments. We are waiting for two answers from two apartment. I have a hope to be invited to one of them. Will see during the next week. It's really hard. Also we viewed another apartments today. The place is extremely atmospheric but old. I liked the place but Ksusha didn't enjoy it unfortunately. Tomorrow we will have another view of apartments and the day after tomorrow and two days after tomorrow. Yea. We are really focusing on it. Also we wanted to visit one museum but didn't have time and didn't have stamina for it. it's 8pm and I really enjoy to be home. Tomorrow I am going to the office.
 
 # 08 Januar - Montag - Berlin - 475 Tag der Einwanderung
+
+I spent the whole day in the office.
