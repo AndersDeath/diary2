@@ -28,4 +28,4 @@ I'm so tiered today. We finally decided to reject contract on leopoldplatz. The 
 
 # 08 Januar - Montag - Berlin - 475 Tag der Einwanderung
 
-I spent the whole day in the office. In the evening we looked at cool apartments in the nice district. I enjoyed it. I catastrophically dont's have time for making things. I cannot find time for all my projects. I have viewings of apartments every fucking day. Event tomorrow I will go to one in the morning, and in the evening we will go check another one together.
+I spent the whole day in the office. In the evening we looked at cool apartments in the nice district. I enjoyed it. I catastrophically dont's have time for making things. I cannot find time for all my projects. I have viewings of apartments every fucking day. Event tomorrow I will go to one in the morning, and in the evening we will go check another one together. Also we finally rejected an apartments on Leopoldplatz.
