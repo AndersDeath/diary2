@@ -32,4 +32,4 @@ I spent the whole day in the office. In the evening we looked at cool apartments
 
 # 09 Januar - Dienstag - Berlin - 476 Tag der Einwanderung
 
-In the morning I viewed another apartment. I don't understand what's wrong with Germany
+In the morning I viewed another apartment. I don't understand what's wrong with Germans.
