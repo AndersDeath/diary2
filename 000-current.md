@@ -32,4 +32,4 @@ I spent the whole day in the office. In the evening we looked at cool apartments
 
 # 09 Januar - Dienstag - Berlin - 476 Tag der Einwanderung
 
-In the morning I viewed another apartment. I don't understand what's wrong with Germans. The agent forgot keys and we had to wait for 30 minutes. I didn't have time for it and I just went off. After that I was working for a whole day on different thigns. Tomorrow I need to replace one article in HT project and then the first raw draft will be ready. In the evening we viewed another apartment that are really nice,
+In the morning I viewed another apartment. I don't understand what's wrong with Germans. The agent forgot keys and we had to wait for 30 minutes. I didn't have time for it and I just went off. After that I was working for a whole day on different thigns. Tomorrow I need to replace one article in HT project and then the first raw draft will be ready. In the evening we viewed another apartment that are really nice, it's a change that we will be selected.
