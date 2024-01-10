@@ -36,4 +36,4 @@ In the morning I viewed another apartment. I don't understand what's wrong with 
 
 # 10 Januar - Mittwoch - Berlin - 477 Tag der Einwanderung
 
-I added the final piece of information to my holy theory algorithms thing.s
+I added the final piece of information to my holy theory algorithms thing. This is good.
