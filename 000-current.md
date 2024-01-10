@@ -36,4 +36,4 @@ In the morning I viewed another apartment. I don't understand what's wrong with 
 
 # 10 Januar - Mittwoch - Berlin - 477 Tag der Einwanderung
 
-I added the final piece of information to my holy theory algorithms thing. This is good. Ksusha went and checked an apartments today. In the evening we went to another place and checked it. After that we got some turkish 
+I added the final piece of information to my holy theory algorithms thing. This is good. Ksusha went and checked an apartments today. In the evening we went to another place and checked it. After that we got some turkish food.
