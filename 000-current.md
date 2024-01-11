@@ -40,4 +40,4 @@ I added the final piece of information to my holy theory algorithms thing. This 
 
 # 11 Januar - Donnerstag - Berlin - 478 Tag der Einwanderung
 
-The day was nice I even did something important. Also I received another two invitation for signing in a contract. One of the apartments is really cool for me. We were on viewing several days ago and there 
+The day was nice I even did something important. Also I received another two invitation for signing in a contract. One of the apartments is really cool for me. We were on viewing several days ago and this place was really cool. I am happy about it.
