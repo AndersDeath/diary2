@@ -43,3 +43,4 @@ I added the final piece of information to my holy theory algorithms thing. This 
 The day was nice I even did something important. Also I received another two invitation for signing in a contract. One of the apartments is really cool for me. We were on viewing several days ago and this place was really cool. I am happy about it. Tomorrow I will look at a contract and if I don't find any weird things it will be signed. I rally have a hope. In this case i will go to the quite place on the edge of ringbahn. It will be good. I was dreaming about another place that i unfortunately didn't get. I was liking one place in Noukeln, but someone else got it probably. In other case we will have to proceed our search. From another side nothing important happened. In the evening we visited Turkish place again. Very soon the place will be not available for us.
 
 # 12 Januar - Freitag - Berlin - 479 Tag der Einwanderung
+
