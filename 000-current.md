@@ -44,3 +44,4 @@ The day was nice I even did something important. Also I received another two inv
 
 # 12 Januar - Freitag - Berlin - 479 Tag der Einwanderung
 
+Today was a team day in XU.
