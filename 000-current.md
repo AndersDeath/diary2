@@ -44,4 +44,4 @@ The day was nice I even did something important. Also I received another two inv
 
 # 12 Januar - Freitag - Berlin - 479 Tag der Einwanderung
 
-Today was a team day in XU. I met all people from the different places. In total there were 9 people. The team is very international. I am from Russia, others are from Iraq, Germany, Poland, Morocco, Italy. One guy from Egypt is on vacation. It was very cool and interesting. We had a workshope, after that we were in lunch and played mini-golf. It was cool. Also I signed a rental contract this morning. Tomorrow morning we will go to the flat and talk to ex-tenant.
+Today was a team day in XU. I met all people from the different places. In total there were 9 people. The team is very international. I am from Russia, others are from Iraq, Germany, Poland, Morocco, Italy. One guy from Egypt is on vacation. It was very cool and interesting. We had a workshope, after that we were in lunch and played mini-golf. It was cool. Also I signed a rental contract this morning. Tomorrow morning we will go to the flat and talk to ex-tenant. I will ask some question and align several things.
