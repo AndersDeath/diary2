@@ -48,4 +48,4 @@ Today was a team day in XU. I met all people from the different places. In total
 
 # 13 Januar - Samstag - Berlin - 480 Tag der Einwanderung
 
-Today we visited our future apartments. It looks very good. Ex-tenant shared a lot of useful information which is very cool. He is a person from Great Britain originally and works as a german teacher. He is also an eco activist. So, yes, he clarified some questions.
+Today we visited our future apartments. It looks very good. Ex-tenant shared a lot of useful information which is very cool. He is a person from Great Britain originally and works as a german teacher. He is also an eco activist. So, yes, he clarified some questions. On monday I will send money to the company and we will recieve 
