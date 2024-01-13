@@ -48,4 +48,4 @@ Today was a team day in XU. I met all people from the different places. In total
 
 # 13 Januar - Samstag - Berlin - 480 Tag der Einwanderung
 
-Today we visited our future apartments.
+Today we visited our future apartments. It looks very good.
