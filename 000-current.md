@@ -49,3 +49,5 @@ Today was a team day in XU. I met all people from the different places. In total
 # 13 Januar - Samstag - Berlin - 480 Tag der Einwanderung
 
 Today we visited our future apartments. It looks very good. Ex-tenant shared a lot of useful information which is very cool. He is a person from Great Britain originally and works as a german teacher. He is also an eco activist. So, yes, he clarified some questions. On monday I will send money to the company and we will receive keys. After that everything will be ours. Also we need to measure the place and order furniture. Tomorrow I will meet Damian Budzinski. We were working together in DR SMILE. When I joined to this company he was QA I worked with. It's cool that we will see each other. It's important to me. I want to check if I was wright about him. In the middle of the day me and Ksusha were on the Bundestag roof. It's also a reichstag that Soviet army sieged at the end of WWII. Additionally we saw a rally with Palestinians fans. It was peculiar. In general today I could concentrate my attention of different from looking for an apartment things.
+
+# 14 Januar - Sonstag - Berlin - 481 Tag der Einwanderung
