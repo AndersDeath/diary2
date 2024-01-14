@@ -52,4 +52,4 @@ Today we visited our future apartments. It looks very good. Ex-tenant shared a l
 
 # 14 Januar - Sonstag - Berlin - 481 Tag der Einwanderung
 
-The day was nice. I did something. Me and Ksusha were sitting at home 
+The day was nice. I did something. Me and Ksusha were sitting at home and tried to prepare everything
