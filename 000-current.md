@@ -56,4 +56,4 @@ The day was nice. I did something. Me and Ksusha were sitting at home and tried 
 
 # 15 Januar - Montag - Berlin - 482 Tag der Einwanderung
 
-The day
+The day was stupid and fast. I did something in the morning but not so much.
