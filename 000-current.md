@@ -53,3 +53,5 @@ Today we visited our future apartments. It looks very good. Ex-tenant shared a l
 # 14 Januar - Sonstag - Berlin - 481 Tag der Einwanderung
 
 The day was nice. I did something. Me and Ksusha were sitting at home and tried to prepare everything for the soon moving to the new place. We selected chair, table, laps, bed, and many other things. I wantted to meet Damian but he fucked up the day because he was on party and could be in time. I decided to just ignore this shit and maybe meet him next week. I don't know. In general we were at home for a whole day.
+
+# 15 Januar - Montag - Berlin - 481 Tag der Einwanderung
