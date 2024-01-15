@@ -56,4 +56,4 @@ The day was nice. I did something. Me and Ksusha were sitting at home and tried 
 
 # 15 Januar - Montag - Berlin - 482 Tag der Einwanderung
 
-The day was stupid and fast. I did something in the morning but not so much. After that we went to the new place where got issue with Sparkasse. it was impossible to send money to the rental. Ex-Tennant Mr. Breen went with us to Sparkasse and helped with sending money. It was so embarrassing. It's so sad. Finally we did everything and got keys. It's so weird that landlord gave us 8 keys. It's unusual. Overall we did everything and it's so cool that I cannot say more.
+The day was stupid and fast. I did something in the morning but not so much. After that we went to the new place where got issue with Sparkasse. it was impossible to send money to the rental. Ex-Tennant Mr. Breen went with us to Sparkasse and helped with sending money. It was so embarrassing. It's so sad. Finally we did everything and got keys. It's so weird that landlord gave us 8 keys. It's unusual. Overall we did everything and it's so cool that I cannot say more. Tomorrow will be not so easy day as well.
