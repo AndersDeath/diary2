@@ -64,4 +64,4 @@ I had a workshop with one of colleges today. We were discussed some important th
 
 # 17 Januar - Mittwoch - Berlin - 484 Tag der Einwanderung
 
-I almost adopted to the office work. I was there for a whole day. Ksusha was in the new apartments and received some new things for the home. In general it's really expensive. I don't know how people immigrate and keep their level of life on the same position.
+I almost adopted to the office work. I was there for a whole day. Ksusha was in the new apartments and received some new things for the home. In general it's really expensive. I don't know how people immigrate and keep their level of life on the same position. It's really strange.
