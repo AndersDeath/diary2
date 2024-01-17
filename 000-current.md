@@ -63,3 +63,5 @@ The day was stupid and fast. I did something in the morning but not so much. Aft
 I had a workshop with one of colleges today. We were discussed some important things on backend side and he shared to me important information as well. After that I had an interview for a tech lead position. It was interesting and fast. In the evening me and Ksusha visited our future home. We ordered furniture and tomorrow amazon will probably deliver something. In general we are ok but extremely tiered. It's really hard to do things when you have so many problems. I wish to be calm and cool. However the immigration is really hard.
 
 # 17 Januar - Mittwoch - Berlin - 484 Tag der Einwanderung
+
+I almost adopted to the office work.
