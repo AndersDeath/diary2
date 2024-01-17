@@ -64,4 +64,4 @@ I had a workshop with one of colleges today. We were discussed some important th
 
 # 17 Januar - Mittwoch - Berlin - 484 Tag der Einwanderung
 
-I almost adopted to the office work.
+I almost adopted to the office work. I was there for a whole day. 
