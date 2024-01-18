@@ -68,4 +68,4 @@ I almost adopted to the office work. I was there for a whole day. Ksusha was in 
 
 # 18 Januar - Donnerstag - Berlin - 485 Tag der Einwanderung
 
-The office day was nice again. I did a lot of things. In general I am so under stress that it's hard to just type words for me. In the evening we bought some stuff for home in ikea. Unfortunately it's impossible to buy everything there. I also assembled a chair for Ksusha. I wanted to assemble a table as well but this thing has too much 
+The office day was nice again. I did a lot of things. In general I am so under stress that it's hard to just type words for me. In the evening we bought some stuff for home in ikea. Unfortunately it's impossible to buy everything there. I also assembled a chair for Ksusha. I wanted to assemble a table as well but this thing has so many parts.
