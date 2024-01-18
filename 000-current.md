@@ -68,4 +68,4 @@ I almost adopted to the office work. I was there for a whole day. Ksusha was in 
 
 # 18 Januar - Donnerstag - Berlin - 485 Tag der Einwanderung
 
-The office day was nice again.
+The office day was nice again. I did a lot of things.
