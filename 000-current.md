@@ -72,4 +72,4 @@ The office day was nice again. I did a lot of things. In general I am so under s
 
 # 19 Januar - Fridtag - Berlin - 486 Tag der Einwanderung
 
-I visited a new barber today. The guy is from London. He relocated to Berlin and opened a barbershop. He did everything good but the service is expensive. I paid 75 euros which is 7500 russian rubles. This is crazy. The better haircut in Saint-Petersburg costs in two times less. Also another part of things were delivered to our new apartments.
+I visited a new barber today. The guy is from London. He relocated to Berlin and opened a barbershop. He did everything good but the service is expensive. I paid 75 euros which is 7500 russian rubles. This is crazy. The better haircut in Saint-Petersburg costs in two times less. Also another part of things were delivered to our new apartments. Tomorrow me and Ksusha will go there and assemple 
