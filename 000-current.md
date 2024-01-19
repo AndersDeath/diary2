@@ -72,4 +72,4 @@ The office day was nice again. I did a lot of things. In general I am so under s
 
 # 19 Januar - Fridtag - Berlin - 486 Tag der Einwanderung
 
-I visited a new barber today. The guy is from London. He relocated to Berlin and opened
+I visited a new barber today. The guy is from London. He relocated to Berlin and opened a barbershop.
