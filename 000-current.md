@@ -74,4 +74,5 @@ The office day was nice again. I did a lot of things. In general I am so under s
 
 I visited a new barber today. The guy is from London. He relocated to Berlin and opened a barbershop. He did everything good but the service is expensive. I paid 75 euros which is 7500 russian rubles. This is crazy. The better haircut in Saint-Petersburg costs in two times less. Also another part of things were delivered to our new apartments. Tomorrow me and Ksusha will go there and assemble everything. The saturday will be very promising. I also hope to have a good time. Forgot to mention I met Ksusha in saloon where she made nails. So this place is organized by Ukranians that ran from their country. Everything screams there about the war. It's not a problem for me and for Ksusha as well. I remember everything. I hate Putin and his fucking morons. They are still traitors of my society. I the hell exists they will definitely burn there. Sad thing that we cannot do anything to them. I can only hate, but cannot do anything.
 
-# 19 Januar - Sontag - Berlin - 486 Tag der Einwanderung
+# 20 Januar - Sontag - Berlin - 487 Tag der Einwanderung
+
