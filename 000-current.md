@@ -76,3 +76,4 @@ I visited a new barber today. The guy is from London. He relocated to Berlin and
 
 # 20 Januar - Sontag - Berlin - 487 Tag der Einwanderung
 
+I assembled the big part of 
