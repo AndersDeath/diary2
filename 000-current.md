@@ -76,4 +76,4 @@ I visited a new barber today. The guy is from London. He relocated to Berlin and
 
 # 20 Januar - Sontag - Berlin - 487 Tag der Einwanderung
 
-I assembled the big part of furniture in the new apartments. I finished with a table, two chairs, and a dining table. It's good. I need only to do thing wih a bed as well. On monday I will work from the new apartments which is cool. Unfortunately Ksusha didn't feel well today and we didn't go to House of World Cultures. It's not so sad because I am so tiered that I was happy to just don't do anything. I am sitting now on the sofa and feel great.
+I assembled the big part of furniture in the new apartments. I finished with a table, two chairs, and a dining table. It's good. I need only to do thing wih a bed as well. On monday I will work from the new apartments which is cool. Unfortunately Ksusha didn't feel well today and we didn't go to House of World Cultures. It's not so sad because I am so tiered that I was happy to just don't do anything. I am sitting now on the sofa and feel great. Ksusha is also much better right now.
