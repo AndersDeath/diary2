@@ -80,4 +80,4 @@ I assembled the big part of furniture in the new apartments. I finished with a t
 
 # 21 Januar - Montag - Berlin - 488 Tag der Einwanderung
 
-Today we were in SPA. It was very expensive I believe but the feeling and body relieve deserve all these money. I spent 75 euros for both of us. After that we broke the rule and ate pizza. It's very hard rule that we can eat bread based food only on Saturdays. However today we just didn't find a way how to find another type of food. After that we came to our new apartments and I assembled a bed.
+Today we were in SPA. It was very expensive I believe but the feeling and body relieve deserve all these money. I spent 75 euros for both of us. After that we broke the rule and ate pizza. It's very hard rule that we can eat bread based food only on Saturdays. However today we just didn't find a way how to find another type of food. After that we came to our new apartments and I assembled a bed. Tomorrow delivery are going to bring a matrass and 
