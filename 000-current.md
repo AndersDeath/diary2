@@ -80,4 +80,4 @@ I assembled the big part of furniture in the new apartments. I finished with a t
 
 # 21 Januar - Montag - Berlin - 488 Tag der Einwanderung
 
-Today we were in SPA.
+Today we were in SPA. It was very expensive I believe.
