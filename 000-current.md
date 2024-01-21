@@ -80,4 +80,4 @@ I assembled the big part of furniture in the new apartments. I finished with a t
 
 # 21 Januar - Montag - Berlin - 488 Tag der Einwanderung
 
-Today we were in SPA. It was very expensive I believe but the feeling and body relieve deserve all these money.
+Today we were in SPA. It was very expensive I believe but the feeling and body relieve deserve all these money. I spent 75 euros for both of us.
