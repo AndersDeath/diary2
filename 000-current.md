@@ -84,4 +84,4 @@ Today we were in SPA. It was very expensive I believe but the feeling and body r
 
 # 22 Januar - Dienstag - Berlin - 489 Tag der Einwanderung
 
-I spent a whole day in our new apartments. It was cool. The first part of the day I felt cold because the heating system there is not so cool and based on floor tans.
+I spent a whole day in our new apartments. It was cool. The first part of the day I felt cold because the heating system there is not so cool and based on floor tans. Also some delivery people carried a washing machine that was damaged.
