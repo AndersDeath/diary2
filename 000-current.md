@@ -82,10 +82,10 @@ I assembled the big part of furniture in the new apartments. I finished with a t
 
 Today we were in SPA. It was very expensive I believe but the feeling and body relieve deserve all these money. I spent 75 euros for both of us. After that we broke the rule and ate pizza. It's very hard rule that we can eat bread based food only on Saturdays. However today we just didn't find a way how to find another type of food. After that we came to our new apartments and I assembled a bed. Tomorrow delivery are going to bring a matrass and some other washing machine. After that the place will be ready for a living. We already have minimum things for preparing food and doing such stuff. However today we are on Prinzenallee 21 which is our current home. Honestly I am already used to this place. Moreover I will miss it. But still this place is awful because of mold that is everywhere here. It's just impossible to get rid of it. My attitude to this is absolutely unlogical.
 
-# 22 Januar - Dienstag - Berlin - 489 Tag der Einwanderung
+# 22 Januar - Mottag - Berlin - 489 Tag der Einwanderung
 
 I spent a whole day in our new apartments. It was cool. The first part of the day I felt cold because the heating system there is not so cool and based on floor tans. Also some delivery people carried a washing machine that was damaged. It was working definitely but I ordered a refund. I want to sell this in ebay in the future, so I don't want to lose the price just right after obtaining this thing. Also I assembled a table for Ksusha and we received a matrass. Ksusha visited our neighbors that got our iron. Here is a wired system actually. If you are not at home delivery can give your package to neighbors. It's crazy. Anyway, everything is fine right now. In fact the place is absolutely livable right now. I am so exited to have a chance to live there. I am so tiered to live without actual home. It's crazy and sad. But finally all is good. Another problem that I got cold. I really want to feel better tomorrow.
 
-# 23 Januar - Mittwoch - Berlin - 490 Tag der Einwanderung
+# 23 Januar - Dienstag - Berlin - 490 Tag der Einwanderung
 
 The life is nice. Despite the tons of difficulties I still love my life. It's almost what I expected. I do a lot of things and don't sit at the place I was born. Today I had another two interviews
