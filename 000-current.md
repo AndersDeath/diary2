@@ -87,3 +87,5 @@ Today we were in SPA. It was very expensive I believe but the feeling and body r
 I spent a whole day in our new apartments. It was cool. The first part of the day I felt cold because the heating system there is not so cool and based on floor tans. Also some delivery people carried a washing machine that was damaged. It was working definitely but I ordered a refund. I want to sell this in ebay in the future, so I don't want to lose the price just right after obtaining this thing. Also I assembled a table for Ksusha and we received a matrass. Ksusha visited our neighbors that got our iron. Here is a wired system actually. If you are not at home delivery can give your package to neighbors. It's crazy. Anyway, everything is fine right now. In fact the place is absolutely livable right now. I am so exited to have a chance to live there. I am so tiered to live without actual home. It's crazy and sad. But finally all is good. Another problem that I got cold. I really want to feel better tomorrow.
 
 # 23 Januar - Mittwoch - Berlin - 490 Tag der Einwanderung
+
+The life is nice
