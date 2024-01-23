@@ -88,4 +88,4 @@ I spent a whole day in our new apartments. It was cool. The first part of the da
 
 # 23 Januar - Dienstag - Berlin - 490 Tag der Einwanderung
 
-The life is nice. Despite the tons of difficulties I still love my life. It's almost what I expected. I do a lot of things and don't sit at the place I was born. Today I had another two interviews with startups. I don't think that it worths to work for them. I am not so brave person to join to so early stage startups.
+The life is nice. Despite the tons of difficulties I still love my life. It's almost what I expected. I do a lot of things and don't sit at the place I was born. Today I had another two interviews with startups. I don't think that it worths to work for them. I am not so brave person to join to so early stage startups. 
