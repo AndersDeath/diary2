@@ -92,4 +92,4 @@ The life is nice. Despite the tons of difficulties I still love my life. It's al
 
 # 24 Januar - Mittwoch - Berlin - 491 Tag der Einwanderung
 
-I feel a bit better today. I recieved a couple of packages and 
+I feel a bit better today. I received a couple of packages and some other things.
