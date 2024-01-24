@@ -92,4 +92,4 @@ The life is nice. Despite the tons of difficulties I still love my life. It's al
 
 # 24 Januar - Mittwoch - Berlin - 491 Tag der Einwanderung
 
-I feel a bit better today. I received a couple of packages and some other things. The amazon is still piece of shit. They didn't come but marked one package as delvered.
+I feel a bit better today. I received a couple of packages and some other things. The amazon is still piece of shit. They didn't come but marked one package as delivered.
