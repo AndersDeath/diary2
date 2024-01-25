@@ -96,4 +96,4 @@ I feel a bit better today. I received a couple of packages and some other things
 
 # 25 Januar - Donnerstag - Berlin - 492 Tag der Einwanderung
 
-I was working and thinking today.
+I was working for a whole day.
