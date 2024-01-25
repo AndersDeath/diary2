@@ -96,4 +96,4 @@ I feel a bit better today. I received a couple of packages and some other things
 
 # 25 Januar - Donnerstag - Berlin - 492 Tag der Einwanderung
 
-I was working for a whole day. We were in the new apartment as well and did some other interesting and cool things. In general the day was nice. Unfortunately the problem with the mostmag domain became worse. Godaddy cannot help me with it at all. it's really bad and sad. Unfortunately it looks like I will suffer. The other point is that I am so tiered and don't feel good.
+I was working for a whole day. We were in the new apartment as well and did some other interesting and cool things. In general the day was nice. Unfortunately the problem with the mostmag domain became worse. Godaddy cannot help me with it at all. it's really bad and sad. Unfortunately it looks like I will suffer. The other point is that I am so tiered and don't feel good. I had to miss today's CTO meetup where I wanted to be.
