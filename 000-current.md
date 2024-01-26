@@ -100,4 +100,4 @@ I was working for a whole day. We were in the new apartment as well and did some
 
 # 26 Januar - Fritag - Berlin - 493 Tag der Einwanderung
 
-The day was fully in programming. I was working for XU and that's it. In the evening we went for having a dinner in Turkish place that we really like to visit. Besides that nothing happened. In the evening I finally found a tail of mostmag.ru.
+The day was fully in programming. I was working for XU and that's it. In the evening we went for having a dinner in Turkish place that we really like to visit. Besides that nothing happened. In the evening I finally found a tail of mostmag.ru. I made a request 
