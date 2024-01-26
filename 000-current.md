@@ -100,4 +100,4 @@ I was working for a whole day. We were in the new apartment as well and did some
 
 # 26 Januar - Fritag - Berlin - 493 Tag der Einwanderung
 
-The day was fully in programming
+The day was fully in programming. I didn't do anything else.
