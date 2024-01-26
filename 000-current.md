@@ -97,3 +97,5 @@ I feel a bit better today. I received a couple of packages and some other things
 # 25 Januar - Donnerstag - Berlin - 492 Tag der Einwanderung
 
 I was working for a whole day. We were in the new apartment as well and did some other interesting and cool things. In general the day was nice. Unfortunately the problem with the mostmag domain became worse. Godaddy cannot help me with it at all. it's really bad and sad. Unfortunately it looks like I will suffer. The other point is that I am so tiered and don't feel good. I had to miss today's CTO meetup where I wanted to be. It's so sad. I decided not to take the risk of having more illness. It's so shitty that I feel so. I really had been waiting for this but due to the illness I missed this. Tomorrow I will working on things again. The life is weird. I really waiting for a finish of this rush.
+
+# 26 Januar - Fritag - Berlin - 493 Tag der Einwanderung
