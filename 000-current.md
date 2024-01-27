@@ -104,4 +104,4 @@ The day was fully in programming. I was working for XU and that's it. In the eve
 
 # 27 Januar - Samstag - Berlin - 494 Tag der Einwanderung
 
-Today We had branch with Ivan Gammel, his wife and small daughter. It was the first time in my life when we met someone from my work. it's interesting. We were talking and walking for 3 hours. It's really a туц record.
+Today We had branch with Ivan Gammel, his wife and small daughter. It was the first time in my life when we met someone from my work. it's interesting. We were talking and walking for 3 hours. It's really a new record. It's cool.
