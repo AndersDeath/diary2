@@ -98,7 +98,7 @@ I feel a bit better today. I received a couple of packages and some other things
 
 I was working for a whole day. We were in the new apartment as well and did some other interesting and cool things. In general the day was nice. Unfortunately the problem with the mostmag domain became worse. Godaddy cannot help me with it at all. it's really bad and sad. Unfortunately it looks like I will suffer. The other point is that I am so tiered and don't feel good. I had to miss today's CTO meetup where I wanted to be. It's so sad. I decided not to take the risk of having more illness. It's so shitty that I feel so. I really had been waiting for this but due to the illness I missed this. Tomorrow I will working on things again. The life is weird. I really waiting for a finish of this rush.
 
-# 26 Januar - Fritag - Berlin - 493 Tag der Einwanderung
+# 26 Januar - Freitag - Berlin - 493 Tag der Einwanderung
 
 The day was fully in programming. I was working for XU and that's it. In the evening we went for having a dinner in Turkish place that we really like to visit. Besides that nothing happened. In the evening I finally found a tail of mostmag.ru. I made a request for transferring the domain to russia. It's really cool to have. Surprisingly the access was at Anastasia Glushkova - ex owner and Ksusha's partner. She helped me and it's cool. Additionally we finally decided that tomorrow we will meet Ivan Gammel with his wife and daughter in the morning at 10am. After the brunch we will come back home and them go to the new apartment. I need to assemble another piece of furniture, clean the place and then leave it. On the next week we will leave this dirty, shitty place and start the new life in the new cool home. I hope that everything will be cool and fine.
 
