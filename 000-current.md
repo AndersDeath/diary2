@@ -101,3 +101,5 @@ I was working for a whole day. We were in the new apartment as well and did some
 # 26 Januar - Fritag - Berlin - 493 Tag der Einwanderung
 
 The day was fully in programming. I was working for XU and that's it. In the evening we went for having a dinner in Turkish place that we really like to visit. Besides that nothing happened. In the evening I finally found a tail of mostmag.ru. I made a request for transferring the domain to russia. It's really cool to have. Surprisingly the access was at Anastasia Glushkova - ex owner and Ksusha's partner. She helped me and it's cool. Additionally we finally decided that tomorrow we will meet Ivan Gammel with his wife and daughter in the morning at 10am. After the brunch we will come back home and them go to the new apartment. I need to assemble another piece of furniture, clean the place and then leave it. On the next week we will leave this dirty, shitty place and start the new life in the new cool home. I hope that everything will be cool and fine.
+
+# 27 Januar - Fritag - Berlin - 493 Tag der Einwanderung
