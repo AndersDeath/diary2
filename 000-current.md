@@ -108,4 +108,4 @@ Today We had branch with Ivan Gammel, his wife and small daughter. It was the fi
 
 # 28 Januar - Sontag - Berlin - 495 Tag der Einwanderung
 
-it was nice day. In the morning we just didn't do anything and having a rest. As the rest I mean doing just iterating tasks. After that we went to the new apartments and I assembled the final two cupboards that I already hate.
+it was nice day. In the morning we just didn't do anything and having a rest. As the rest I mean doing just iterating tasks. After that we went to the new apartments and I assembled the final two cupboards that I already hate. It wasn't so easy because these pieces of furtinure are comples and have a lot of small parts.
