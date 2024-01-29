@@ -112,4 +112,4 @@ it was nice day. In the morning we just didn't do anything and having a rest. As
 
 # 29 Januar - Montag - Berlin - 496 Tag der Einwanderung
 
-I was programming again.
+I was programming again. I know that I do it every day
