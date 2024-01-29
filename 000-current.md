@@ -112,4 +112,4 @@ it was nice day. In the morning we just didn't do anything and having a rest. As
 
 # 29 Januar - Montag - Berlin - 496 Tag der Einwanderung
 
-I was programming again. I know that I do it every day, but it's my diary and I just add things that happened to me. So, yes, I was wroking for a wholde day.
+I was programming again. I know that I do it every day, but it's my diary and I just add things that happened to me. So, yes, I was working for a wholde day.
