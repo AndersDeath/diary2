@@ -116,4 +116,4 @@ I was programming again. I know that I do it every day, but it's my diary and I 
 
 # 30 Januar - Dienstag - Berlin - 497 Tag der Einwanderung
 
-Another boring day.
+Another boring day. I was programming and 
