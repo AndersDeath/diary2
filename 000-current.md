@@ -116,4 +116,4 @@ I was programming again. I know that I do it every day, but it's my diary and I 
 
 # 30 Januar - Dienstag - Berlin - 497 Tag der Einwanderung
 
-Another boring day. I was programming and working on some tasks. Basically it is the last night here. Tomorrow we will go to the new apartments. We are going to go there at 8.30 approximately. I am happy and sad at the same moment. 
+Another boring day. I was programming and working on some tasks. Basically it is the last night here. Tomorrow we will go to the new apartments. We are going to go there at 8.30 approximately. I am happy and sad at the same moment. This morning I walked around and said good buy to this place.
