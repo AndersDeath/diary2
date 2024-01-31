@@ -120,4 +120,4 @@ Another boring day. I was programming and working on some tasks. Basically it is
 
 # 31 Januar - Mittwoch - Berlin - 498 Tag der Einwanderung
 
-So, here we are. We left keys from Prinzenallee
+So, here we are. We left keys from Prinzenallee and moved finally to a new flat. It's really cool.
