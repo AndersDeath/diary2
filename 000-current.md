@@ -120,4 +120,4 @@ Another boring day. I was programming and working on some tasks. Basically it is
 
 # 31 Januar - Mittwoch - Berlin - 498 Tag der Einwanderung
 
-So, here we are. We left keys from Prinzenallee and moved finally to a new flat. It's really cool. The place is cozy and looks almost like I would like to see a place where I live. This is really cool.
+So, here we are. We left keys from Prinzenallee and moved finally to a new flat. It's really cool. The place is cozy and looks almost like I would like to see a place where I live. This is really cool. I have working table, chair, bed, bathroom, small closet.
