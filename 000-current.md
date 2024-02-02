@@ -4,4 +4,4 @@
 
 # 02 Februar - Freitag - Berlin - 500 Tag der Einwanderung
 
-Today I want to write in English again. THe day was calm. It's really so cool to be at home. I like it.
+Today I want to write in English again. THe day was calm. It's really so cool to be at home. I like it. Finally Amazon delivered forks, spoons and other things for home.
