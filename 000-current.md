@@ -8,4 +8,4 @@ Today I want to write in English again. THe day was calm. It's really so cool to
 
 # 03 Februar - Samstag - Berlin - 501 Tag der Einwanderung
 
-The day was nice and simple. We were just walking .
+The day was nice and simple. We were just walking. Initially we wanted to visit a 
