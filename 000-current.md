@@ -10,4 +10,4 @@ Today I want to write in English again. THe day was calm. It's really so cool to
 
 The day was nice and simple. We were just walking. Initially we wanted to visit a House of Cultures near Bundestag. Unfortunaltely today is a rally in that area and U bahn station was closed. Due to this we decided to go and look at House of Kosbusie. This is an example of modernism architecture here in Berlin. In 5 minutes walking there is Olimpic statium that was built in Nazi time by Histler command. All these things were absolutely interesting. We enjoed it very much. In general Belin is filled by some cool places. I am glad to be here and see it.  In general my adaptaion becomes better and better. Also I mentioned Manhaim visit and it looks like that I will cancel it because I cannot alighn time slot with them. It's really sad. I will make a final desicion on Monday.
 
-# 03 Februar - Samstag - Berlin - 501 Tag der Einwanderung
+# 04 Februar - Sonntag - Berlin - 501 Tag der Einwanderung
