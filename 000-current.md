@@ -12,4 +12,4 @@ The day was nice and simple. We were just walking. Initially we wanted to visit 
 
 # 04 Februar - Sonntag - Berlin - 502 Tag der Einwanderung
 
-The day was nice. I did a lot of persona things today and I am happy about it. In the first part of the day I finally sorted some my own things that I was carrying from country to country. This is really cool. Alfter that we moved to work to a cafe. We spent some time there and them visited our favourite Viatnamise place where is served a cool curry. In the evening we just came back home and have chill.
+The day was nice. I did a lot of persona things today and I am happy about it. In the first part of the day I finally sorted some my own things that I was carrying from country to country. This is really cool. Alfter that we moved to work to a cafe. We spent some time there and them visited our favourite Viatnamise place where is served a cool curry. In the evening we just came back home and have chill. It's cool.
