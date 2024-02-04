@@ -12,4 +12,4 @@ The day was nice and simple. We were just walking. Initially we wanted to visit 
 
 # 04 Februar - Sonntag - Berlin - 502 Tag der Einwanderung
 
-The day was nice. I did a lot of persona things today and I am happy
+The day was nice. I did a lot of persona things today and I am happy about it.
