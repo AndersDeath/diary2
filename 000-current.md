@@ -16,4 +16,4 @@ The day was nice. I did a lot of persona things today and I am happy about it. I
 
 # 05 Februar - Montag - Berlin - 503 Tag der Einwanderung
 
-The day was nice. I significatly reduced the pressure and feel some releave.
+The day was nice. I significatly reduced the pressure and feel some releave. Telecom workers could not visit us because I don't have a key from basement.
