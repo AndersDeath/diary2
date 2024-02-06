@@ -20,4 +20,4 @@ The day was nice. I significatly reduced the pressure and feel some releave. Tel
 
 # 06 Februar - Dienstag - Berlin - 504 Tag der Einwanderung
 
-I was in the office. It wasn't so hard.
+I was in the office. It wasn't so hard. I talked to real people and it was really nice.
