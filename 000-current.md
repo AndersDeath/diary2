@@ -20,4 +20,4 @@ The day was nice. I significatly reduced the pressure and feel some releave. Tel
 
 # 06 Februar - Dienstag - Berlin - 504 Tag der Einwanderung
 
-I was in the office. It wasn't so hard. I talked to real people and it was really nice. After that I came back home and sitting here. Unfortunately the washing machine delivery is postponed to monday. The company canont do things in time sadly. Also I've been waiting for wrokers that will do somthing for obtaining of the internet connection. Besides that I delivered one important project for XU. I hope that the pressure on me will be decreased. I feel 
+I was in the office. It wasn't so hard. I talked to real people and it was really nice. After that I came back home and sitting here. Unfortunately the washing machine delivery is postponed to monday. The company canont do things in time sadly. Also I've been waiting for wrokers that will do somthing for obtaining of the internet connection. Besides that I delivered one important project for XU. I hope that the pressure on me will be decreased. I feel relive.
