@@ -24,4 +24,4 @@ I was in the office. It wasn't so hard. I talked to real people and it was reall
 
 # 07 Februar - Mittwoch - Berlin - 505 Tag der Einwanderung
 
-Today I was coding again. Also I feel much less pressure and this is great. In the evening I was on meetup. It was discussion about saving money on AWS computing and S3 bucket. It's nice. A lot of different people were there and talk was interesting and nice. I will definetly go to some similar again. I will be really happy. I made a screenshot of all names paricipated there and I also will add them to my cirtle on LinkedIn.
+Today I was coding again. Also I feel much less pressure and this is great. In the evening I was on meetup. It was discussion about saving money on AWS computing and S3 bucket. It's nice. A lot of different people were there and talk was interesting and nice. I will definetly go to some similar again. I will be really happy. I made a screenshot of all names paricipated there and I also will add them to my cirtle on LinkedIn. In general the day was nice.
