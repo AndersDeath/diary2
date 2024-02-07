@@ -24,4 +24,4 @@ I was in the office. It wasn't so hard. I talked to real people and it was reall
 
 # 07 Februar - Mittwoch - Berlin - 505 Tag der Einwanderung
 
-Today I was coding again. Also I feel much less pressure and this is great. In the evening I was on meetup. It was discussion about 
+Today I was coding again. Also I feel much less pressure and this is great. In the evening I was on meetup. It was discussion about saving money on AWS computing and S3 bucket. It's nice.
