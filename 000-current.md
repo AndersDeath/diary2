@@ -28,3 +28,5 @@ Today I was coding again. Also I feel much less pressure and this is great. In t
 
 
 # 08 Februar - Donnerstag - Berlin - 506 Tag der Einwanderung
+
+I can say that I'm bored by this diary.
