@@ -29,4 +29,4 @@ Today I was coding again. Also I feel much less pressure and this is great. In t
 
 # 08 Februar - Donnerstag - Berlin - 506 Tag der Einwanderung
 
-I can say that I'm bored by this diary. I do this more than a  year. In april it will be two years that I write down my thouhts here. Initiall I wanted to use this notes for a kinda therapy but it turned to the just logbook. So, I think that I need to find a way how to move it to some other direction. Anyways. let's go back to things that happened today. so I was working as usual and everything was nice.
+I can say that I'm bored by this diary. I do this more than a  year. In april it will be two years that I write down my thouhts here. Initiall I wanted to use this notes for a kinda therapy but it turned to the just logbook. So, I think that I need to find a way how to move it to some other direction. Anyways. let's go back to things that happened today. so I was working as usual and everything was nice. The main point today was to 
