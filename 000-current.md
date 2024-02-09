@@ -32,4 +32,4 @@ I can say that I'm bored by this diary. I do this more than a  year. In april it
 
 # 09 Februar - Freitag - Berlin - 507 Tag der Einwanderung
 
-To be honest processes in XU are set up awefully.
+To be honest processes in XU are set up awefully. I had to rewrite a lot of things that I did for the last several weeks.
