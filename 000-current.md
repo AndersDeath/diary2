@@ -32,4 +32,4 @@ I can say that I'm bored by this diary. I do this more than a  year. In april it
 
 # 09 Februar - Freitag - Berlin - 507 Tag der Einwanderung
 
-To be honest processes in XU are set up awefully. I had to rewrite a lot of things that I did for the last several weeks. It's strange. I would be hapy to change my job. I need to really work here but I don't want to do it. I really want to work as CTO. Anyways I am going to this direction.
+To be honest processes in XU are set up awefully. I had to rewrite a lot of things that I did for the last several weeks. It's strange. I would be hapy to change my job. I need to really work here but I don't want to do it. I really want to work as CTO. Anyways I am going to this direction. The another significant thing happened - workers from Telecom came to us and set up something.
