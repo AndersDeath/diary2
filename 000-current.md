@@ -33,3 +33,5 @@ I can say that I'm bored by this diary. I do this more than a  year. In april it
 # 09 Februar - Freitag - Berlin - 507 Tag der Einwanderung
 
 To be honest processes in XU are set up awefully. I had to rewrite a lot of things that I did for the last several weeks. It's strange. I would be hapy to change my job. I need to really work here but I don't want to do it. I really want to work as CTO. Anyways I am going to this direction. The another significant thing happened - workers from Telecom came to us and set up something. It means that on the end of the next week we will have an internet connection. It's very cool. Besides that I called to landlord and they prepared proper paper for Burgeramt. It's so cool that on the next week we will make almedung. It's really nice and cool. Additionally I feel so strange because I satred gaining weight. It happens because of stress I eat much more that usual. I need to control it again. I thing that I will buy something for running. I really like to do it and I need to do it. Since we are here for a long period of time I can afford equipment for it.
+
+# 10 Februar - Samstag - Berlin - 508 Tag der Einwanderung
