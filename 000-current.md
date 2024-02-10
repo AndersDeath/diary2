@@ -36,4 +36,4 @@ To be honest processes in XU are set up awefully. I had to rewrite a lot of thin
 
 # 10 Februar - Samstag - Berlin - 508 Tag der Einwanderung
 
-Today we finally visited house of cultures near bundestag. I thougn that it is a new buildig but it was cunstructed in 1957 approximetly. I liked this place.
+Today we finally visited house of cultures near bundestag. I thougn that it is a new buildig but it was cunstructed in 1957 approximetly. I liked this place. I took a lot of cool photos.
