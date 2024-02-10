@@ -36,4 +36,4 @@ To be honest processes in XU are set up awefully. I had to rewrite a lot of thin
 
 # 10 Februar - Samstag - Berlin - 508 Tag der Einwanderung
 
-Today we finally
+Today we finally visited house of cultures near bundestag.
