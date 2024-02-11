@@ -40,4 +40,4 @@ Today we finally visited house of cultures near bundestag. I thougn that it is a
 
 # 11 Februar - Sonntag - Berlin - 509 Tag der Einwanderung
 
-I did nothing today. I decided to make a classic Sunday.
+I did nothing today. I decided to make a classic Sunday. In the morning I just went for a short walk.
