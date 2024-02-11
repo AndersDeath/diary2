@@ -39,3 +39,5 @@ To be honest processes in XU are set up awefully. I had to rewrite a lot of thin
 Today we finally visited house of cultures near bundestag. I thougn that it is a new buildig but it was cunstructed in 1957 approximetly. I liked this place. I took a lot of cool photos. Besides that I just did nothing today. I downloaded warhammer 40000 book and read it during the day. Unfortunately I feel bad now. It's 10pm and I feel so angry and nervous. I hope to feel better tomorrow. Also tomorrow I will start doing sport. as I worte yersterday I gained weight wich is bad. In general I need to fix my daily life again. Now I will go to prepare myself to sleep. I am tiered.
 
 # 11 Februar - Sonntag - Berlin - 509 Tag der Einwanderung
+
+I did nothing today.
