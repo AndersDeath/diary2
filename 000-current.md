@@ -40,4 +40,4 @@ Today we finally visited house of cultures near bundestag. I thougn that it is a
 
 # 11 Februar - Sonntag - Berlin - 509 Tag der Einwanderung
 
-I did nothing today. I decided to make a classic Sunday. In the morning I just went for a short walk. After that I did several things and had a nice dinner with Doner. I finally booked a restraraunt for 14th of February. I am not so romantic but I suppese that it will be cool for Ksusha and me to get out.
+I did nothing today. I decided to make a classic Sunday. In the morning I just went for a short walk. After that I did several things and had a nice dinner with Doner. I finally booked a restraraunt for 14th of February. I am not so romantic but I suppese that it will be cool for Ksusha and me to get out. Tomorrow will be another working day when I will try to do everytings that depends to me.
