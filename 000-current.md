@@ -44,4 +44,4 @@ I did nothing today. I decided to make a classic Sunday. In the morning I just w
 
 # 12 Februar - Montag - Berlin - 510 Tag der Einwanderung
 
-Today the washing machine was finally delivered. It's great. We washed all our clothes.
+Today the washing machine was finally delivered. It's great. We washed all our clothes. Besdies that I finished with search algorithms 
