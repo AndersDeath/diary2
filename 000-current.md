@@ -43,3 +43,4 @@ Today we finally visited house of cultures near bundestag. I thougn that it is a
 I did nothing today. I decided to make a classic Sunday. In the morning I just went for a short walk. After that I did several things and had a nice dinner with Doner. I finally booked a restraraunt for 14th of February. I am not so romantic but I suppese that it will be cool for Ksusha and me to get out. Tomorrow will be another working day when I will try to do everytings that depends to me. In general my condition becomes better and better. The only thing that I have been rally waithing hard is normal internet. So yea, now I need to do some sport. It's really important.
 
 # 12 Februar - Montag - Berlin - 510 Tag der Einwanderung
+
