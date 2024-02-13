@@ -48,4 +48,4 @@ Today the washing machine was finally delivered. It's great. We washed all our c
 
 # 13 Februar - Dienstag - Berlin - 511 Tag der Einwanderung
 
-Anmeldung is in my pocket. We got it pretty easy for 5 minutes with 2 hours in U-Bahn to both directions. Then we came back and I asked a password in cafe that is under us. Vodafone should sent a equipment to me but it will happen in the end of the week. It's really good. Also Ksusha filled all forms and preapare all documents for Blau card and sent them. I hope to have residence permin in two months.
+Anmeldung is in my pocket. We got it pretty easy for 5 minutes with 2 hours in U-Bahn to both directions. Then we came back and I asked a password in cafe that is under us. Vodafone should sent a equipment to me but it will happen in the end of the week. It's really good. Also Ksusha filled all forms and preapare all documents for Blau card and sent them. I hope to have residence permin in two months. Now I just need to wait.
