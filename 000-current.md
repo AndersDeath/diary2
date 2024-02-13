@@ -48,4 +48,4 @@ Today the washing machine was finally delivered. It's great. We washed all our c
 
 # 13 Februar - Dienstag - Berlin - 511 Tag der Einwanderung
 
-Anmeldung is in my pocket. We got it pretty easy for 5  minutes.
+Anmeldung is in my pocket. We got it pretty easy for 5 minutes. 
