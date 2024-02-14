@@ -52,4 +52,4 @@ Anmeldung is in my pocket. We got it pretty easy for 5 minutes with 2 hours in U
 
 # 14 Februar - Mittwoch - Berlin - 512 Tag der Einwanderung
 
-The valentine day went well. The Spanish/Portugeese restaraunt that I found on TripAdviser was really nice. I enjoyed food very much. Besides that I had a talk with my manager - Paul. They wasn't happy about my approach to work. I decided to correct my behavoure despite my disagreement with their approach. Ok, I need this job and I will admit their rules.
+The valentine day went well. The Spanish/Portugeese restaraunt that I found on TripAdviser was really nice. I enjoyed food very much. Besides that I had a talk with my manager - Paul. They wasn't happy about my approach to work. I decided to correct my behaviore despite my disagreement with their approach. Ok, I need this job and I will admit their rules.
