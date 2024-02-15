@@ -56,4 +56,4 @@ The valentine day went well. The Spanish/Portugeese restaraunt that I found on T
 
 # 15 Februar - Donnerstag - Berlin - 513 Tag der Einwanderung
 
-I spent the whole day in the office and did some tasks. I also talked to people and it was nice. After that I came back home and just had a rest. As you know I decided to reshape my schedule and dedicate more time to my condition and mental situation. I really try to do this in a good way. Tomorrow I will be home for a whole day and I also should recieve an email from telekom with instructions.
+I spent the whole day in the office and did some tasks. I also talked to people and it was nice. After that I came back home and just had a rest. As you know I decided to reshape my schedule and dedicate more time to my condition and mental situation. I really try to do this in a good way. Tomorrow I will be home for a whole day and I also should recieve an email from telekom with instructions. It's cool by the way.
