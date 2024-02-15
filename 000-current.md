@@ -55,3 +55,5 @@ Anmeldung is in my pocket. We got it pretty easy for 5 minutes with 2 hours in U
 The valentine day went well. The Spanish/Portugeese restaraunt that I found on TripAdviser was really nice. I enjoyed food very much. Besides that I had a talk with my manager - Paul. They wasn't happy about my approach to work. I decided to correct my behaviore despite my disagreement with their approach. Ok, I need this job and I will admit their rules. It's very important for now. Surely I need to find another cool place for work, but now I need money for paying bills and just living. Addtionally I need to pay more attention to my mental health. Meditation helps but not so much unfortunately. I need to come up something new.
 
 # 15 Februar - Donnerstag - Berlin - 513 Tag der Einwanderung
+
+The
