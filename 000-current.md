@@ -56,4 +56,4 @@ The valentine day went well. The Spanish/Portugeese restaraunt that I found on T
 
 # 15 Februar - Donnerstag - Berlin - 513 Tag der Einwanderung
 
-I spent the whole day in the office and did some tasks.
+I spent the whole day in the office and did some tasks. I also talked to people and it was nice.
