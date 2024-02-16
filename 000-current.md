@@ -60,4 +60,4 @@ I spent the whole day in the office and did some tasks. I also talked to people 
 
 # 16 Februar - Freitag - Berlin - 514 Tag der Einwanderung
 
-Navalny was killed. It's very unusual. Russian government decided to kill him. Putin did another fucking step. So, now it's apsolutely clear that they are enemies and animals. It's so strange. I visited a rally in Berlin's city center that was in front of russian embassy. I met Ksusha there and also Ivan and Elena. It was cool. We walked a bit. Besides that the day was nice. Ksusha finished their deisgn project that is really cool. She has a portfolio and start lookin for a job. It is cool. I am happy for her.
+Navalny was killed. It's very unusual. Russian government decided to kill him. Putin did another fucking step. So, now it's apsolutely clear that they are enemies and animals. It's so strange. I visited a rally in Berlin's city center that was in front of russian embassy. I met Ksusha there and also Ivan and Elena. It was cool. We walked a bit. Besides that the day was nice. Ksusha finished their deisgn project that is really cool. She has a portfolio and start lookin for a job. It is cool. I am happy for her. 
