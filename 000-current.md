@@ -60,4 +60,4 @@ I spent the whole day in the office and did some tasks. I also talked to people 
 
 # 16 Februar - Freitag - Berlin - 514 Tag der Einwanderung
 
-Navalny was killed.
+Navalny was killed. It's very unusual.
