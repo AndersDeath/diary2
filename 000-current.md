@@ -60,4 +60,4 @@ I spent the whole day in the office and did some tasks. I also talked to people 
 
 # 16 Februar - Freitag - Berlin - 514 Tag der Einwanderung
 
-Navalny was killed. It's very unusual. Russian government decided to kill him. Putin did another fucking step. So, now it's apsolutely clear that they are enemies and animals. It's so strange. I visited a rally in Berlin's city center that was in front of 
+Navalny was killed. It's very unusual. Russian government decided to kill him. Putin did another fucking step. So, now it's apsolutely clear that they are enemies and animals. It's so strange. I visited a rally in Berlin's city center that was in front of russian embassy.
