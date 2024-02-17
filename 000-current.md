@@ -64,4 +64,4 @@ Navalny was killed. It's very unusual. Russian government decided to kill him. P
 
 # 17 Februar - Samstag - Berlin - 515 Tag der Einwanderung
 
-Today was the standard Saturday. We were walking a lot and had fun toda.
+Today was the standard Saturday. We were walking a lot and had fun toda. Firstly we went to Bauhaus archive just for looking at construction.
