@@ -68,4 +68,4 @@ Today was the standard Saturday. We were walking a lot and had fun toda. Firstly
 
 # 18 Februar - Sonntag - Berlin - 516 Tag der Einwanderung
 
-I had a rest. I feel better and better.
+I had a rest. I feel better and better. It's really cool because I want to do something new again.
