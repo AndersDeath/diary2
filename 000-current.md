@@ -68,4 +68,4 @@ Today was the standard Saturday. We were walking a lot and had fun toda. Firstly
 
 # 18 Februar - Sonntag - Berlin - 516 Tag der Einwanderung
 
-I had a rest. I feel better and better. It's really cool because I want to do something new again. It's really unusual feeling for the last month. In general I've been working hard on reducing of stress pressure. I will now on the next week if everything is good with my probation period.
+I had a rest. I feel better and better. It's really cool because I want to do something new again. It's really unusual feeling for the last month. In general I've been working hard on reducing of stress pressure. I will now on the next week if everything is good with my probation period. I don't know.
