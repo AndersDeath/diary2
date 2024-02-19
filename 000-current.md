@@ -72,4 +72,4 @@ I had a rest. I feel better and better. It's really cool because I want to do so
 
 # 19 Februar - Montag - Berlin - 517 Tag der Einwanderung
 
-This day was nice. I enjoyed sitting here and working on different things. Ksusha doesn't feel well today unfortunately.
+This day was nice. I enjoyed sitting here and working on different things. Ksusha doesn't feel well today unfortunately. It's sad but true.
