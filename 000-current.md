@@ -76,4 +76,4 @@ This day was nice. I enjoyed sitting here and working on different things. Ksush
 
 # 20 Februar - Dienstag - Berlin - 518 Tag der Einwanderung
 
-The day was nice.
+The day was nice. I had a cool conversatino on 
