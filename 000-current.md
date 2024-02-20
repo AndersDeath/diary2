@@ -75,3 +75,5 @@ I had a rest. I feel better and better. It's really cool because I want to do so
 This day was nice. I enjoyed sitting here and working on different things. Ksusha doesn't feel well today unfortunately. It's sad. She is in the bad now. also telekom workers came to us again today. It was strange because they should not be here today. It's very unusual. I am also very suspisios and I am a bit scared about it. The good thing is that I will meet the potential parter tomorrow. I will meet him after office that I also need to visit. After business things me and KSusha will go to the cinema. It will be the first movie in english in my life seeing in movie theater. In general the day was good.
 
 # 20 Februar - Dienstag - Berlin - 518 Tag der Einwanderung
+
+The day was nice.
