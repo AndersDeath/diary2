@@ -80,4 +80,4 @@ The day was nice. I had a cool conversatino in the office and me and my manager 
 
 # 21 Februar - Mittwoch - Berlin - 519 Tag der Einwanderung
 
-I overslept today. The night was hard for some reasons. It's sad. But in general the day was nice. I had a call with some comapny. It was absolutely dry and usual. I didn't get something new. Tomorrow I am going to be more concentraited because I need to fix much more things. At the same time I feel good. My mental condition became better. Me and Ksusha went for a dinner to vietnamise restaraunt.
+I overslept today. The night was hard for some reasons. It's sad. But in general the day was nice. I had a call with some comapny. It was absolutely dry and usual. I didn't get something new. Tomorrow I am going to be more concentraited because I need to fix much more things. At the same time I feel good. My mental condition became better. Me and Ksusha went for a dinner to vietnamise restaraunt and had a good time.
