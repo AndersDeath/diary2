@@ -79,3 +79,5 @@ This day was nice. I enjoyed sitting here and working on different things. Ksush
 The day was nice. I had a cool conversatino in the office and me and my manager defines some objectives that I need to achive. I am glad to have them because it decrease the pressure that I expirienced. This is nice. Also I met a startup guy that want to build a company and raise money. I am happy about him but I have no idea if he has money. For me it's important to have salary. Without it I will feel really bad. After this meeting I met Ksusha and we watched a movie on Berlinale. It was really cool. We watched Architekton. It's really beautiful and smart movie. If you have time please find it and spent time with pleasure. The next movide we are going to watch Gojira movie. Yes, that classical black and white one. I didn't see it before. It will be the first time for me.
 
 # 21 Februar - Mittwoch - Berlin - 519 Tag der Einwanderung
+
+I overslept today.
