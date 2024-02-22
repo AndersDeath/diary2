@@ -84,4 +84,4 @@ I overslept today. The night was hard for some reasons. It's sad. But in general
 
 # 22 Februar - Donnerstag - Berlin - 520 Tag der Einwanderung
 
-Another working day has been finished and I am happy about it. I did sport and this is really cool. I am in the track and don't miss sport. I am going to increase time and number of exercises. Now I do sport for 25-30 minutes but I need to increase to an hour.
+Another working day has been finished and I am happy about it. I did sport and this is really cool. I am in the track and don't miss sport. I am going to increase time and number of exercises. Now I do sport for 25-30 minutes but I need to increase to an hour. I am doing pretty well here.
