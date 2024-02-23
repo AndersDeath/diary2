@@ -88,4 +88,4 @@ Another working day has been finished and I am happy about it. I did sport and t
 
 # 23 Februar - Freitag - Berlin - 521 Tag der Einwanderung - Sunny
 
-I found 
+I found that XU developers are in very bad mood.
