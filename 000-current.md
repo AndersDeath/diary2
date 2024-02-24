@@ -92,4 +92,4 @@ I found that XU developers are in very bad mood. They don't understand a behavio
 
 # 24 Februar - Sonntag - Berlin - 522 Tag der Einwanderung - Sunny
 
-Two ears since the war started.
+Two ears since the war started. It's sad date that I will not forget in my life.
