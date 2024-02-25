@@ -96,4 +96,4 @@ Two ears since the war started. It's sad date that I will not forget in my life.
 
 # 25 Februar - Sonntag - Berlin - 523 Tag der Einwanderung - Sunny
 
-Unfortunately the sunday has finished. It's really sad. We were on Godzilla movide today.
+Unfortunately the sunday has finished. It's really sad. We were on Godzilla movide today. A director from Japan 
