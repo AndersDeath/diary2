@@ -100,4 +100,4 @@ Unfortunately the sunday has finished. It's really sad. We were on Godzilla movi
 
 # 26 Februar - Montag - Berlin - 524 Tag der Einwanderung - Cloudy
 
-The day was chilly. I basically finally did everything I had in my list and this is crazy and cool.
+The day was chilly. I basically finally did everything I had in my list and this is crazy and cool. to be honest
