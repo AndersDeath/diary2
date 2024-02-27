@@ -103,3 +103,5 @@ Unfortunately the sunday has finished. It's really sad. We were on Godzilla movi
 The day was chilly. I basically finally did everything I had in my list and this is crazy and cool. to be honest. I did some holy theory stuff, I did some XU stuff, I read some important articles and event helped Ksusha in reshaping of my resume. Another impressive and extremely cool thing it that Ksusha finally had a firt job interview. She was talking to a man who has a studio in Russia but he want to expand his business finally to EU and US because he left the country because of the war. In general the day was nice. Tomorrow will be maybe even better. Besides that I don't know what to add because the day was just caml exept the great Ksusha's inteview. Addtionally I proceeded learning stuff on Y combinator website. I really want to finish it and just and to absorb.
 
 # 27 Februar - Dienstag - Berlin - 525 Tag der Einwanderung - Cloudy-Cold
+
+I was in the office today.
