@@ -104,4 +104,4 @@ The day was chilly. I basically finally did everything I had in my list and this
 
 # 27 Februar - Dienstag - Berlin - 525 Tag der Einwanderung - Cloudy-Cold
 
-I was in the office today.
+I was in the office today. I had a nice talk with my colleges.
