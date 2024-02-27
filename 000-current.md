@@ -104,4 +104,4 @@ The day was chilly. I basically finally did everything I had in my list and this
 
 # 27 Februar - Dienstag - Berlin - 525 Tag der Einwanderung - Cloudy-Cold
 
-I was in the office today. I had a nice talk with my colleges. We discussed racism in eroupe and it was really interesting. Especially the situation in Italy where nothern part destroyed southern one. Not literally but culturally.
+I was in the office today. I had a nice talk with my colleges. We discussed racism in eroupe and it was really interesting. Especially the situation in Italy where nothern part destroyed southern one. Not literally but culturally. Also I had to reject the startup person because I just don't jave resources for handling a company on so early stage.
