@@ -108,4 +108,4 @@ I was in the office today. I had a nice talk with my colleges. We discussed raci
 
 # 28 Februar - Mittwoch - Berlin - 526 Tag der Einwanderung - Cloudy-Cold
 
-Today I had the first German lesson. It's cool.
+Today I had the first German lesson. It was nice.
