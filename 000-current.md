@@ -108,4 +108,4 @@ I was in the office today. I had a nice talk with my colleges. We discussed raci
 
 # 28 Februar - Mittwoch - Berlin - 526 Tag der Einwanderung - Cloudy-Cold
 
-Today I had the first German lesson. It was nice. I suppose that it can help me. However the day wasn't so simple and easy for me. German government asked me to send another documents. I was scared another time. It's so stupid.
+Today I had the first German lesson. It was nice. I suppose that it can help me. However the day wasn't so simple and easy for me. German government asked me to send another documents. I was scared another time. It's so stupid. Hovewer we found some way.
