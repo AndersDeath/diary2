@@ -112,4 +112,4 @@ Today I had the first German lesson. It was nice. I suppose that it can help me.
 
 # 29 Februar - Donnerstag - Berlin - 527 Tag der Einwanderung - Sunny-Cold
 
-So, the BVG strike consumed tons of time today. Because of them I could not visit meetup that I was wainting for two months. the situation with transportation is weird here. However the day was nice. I am still in schedule.
+So, the BVG strike consumed tons of time today. Because of them I could not visit meetup that I was wainting for two months. the situation with transportation is weird here. However the day was nice. I am still in schedule. I am proud of it.
