@@ -116,4 +116,4 @@ So, the BVG strike consumed tons of time today. Because of them I could not visi
 
 # 01 März - Donnerstag - Berlin - 528 Tag der Einwanderung - Sunny
 
-So, today Navalny was finally buried. It happened. Thousands of people went to say good to him. This is really bad day. I was really surprised of number of people. It was incredible. From other side the day was simple. Nothing significant happened. Another bunch of good was delivered
+So, today Navalny was finally buried. It happened. Thousands of people went to say good to him. This is really bad day. I was really surprised of number of people. It was incredible. From other side the day was simple. Nothing significant happened. Another bunch of good was delivered, another round of getting tran
