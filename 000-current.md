@@ -120,4 +120,4 @@ So, today Navalny was finally buried. It happened. Thousands of people went to s
 
 # 02 März - Samstag - Berlin - 529 Tag der Einwanderung - Sunny
 
-I like Saturdays. Ususally I do not do anything these days. Today we were at new national gallery gere.
+I like Saturdays. Ususally I do not do anything these days. Today we were at new national gallery here.
