@@ -114,6 +114,8 @@ Today I had the first German lesson. It was nice. I suppose that it can help me.
 
 So, the BVG strike consumed tons of time today. Because of them I could not visit meetup that I was wainting for two months. the situation with transportation is weird here. However the day was nice. I am still in schedule. I am proud of it. Tomorrow I will have sport and I've been waiting for it. Also I will call to Oleg tomorrow's morning. I am still very nervouse because of that additional request from german government is not so legal event from their perspective. I prooved 3 years of work as a programmer for the last 7 years. But something goes wrong with them. I even thing about rejection from their side. In this case I will just apply for temporary residency and then afte a couple of years living here will try to immigrate to the US. I don't believe that something become better in Russia. So I will just try to find new opportunities.
 
-# 01 März - Donnerstag - Berlin - 528 Tag der Einwanderung - Sunny
+# 01 März - Freitag - Berlin - 528 Tag der Einwanderung - Sunny
 
 So, today Navalny was finally buried. It happened. Thousands of people went to say good to him. This is really bad day. I was really surprised of number of people. It was incredible. From other side the day was simple. Nothing significant happened. Another bunch of good was delivered, another round of getting tranlations was done. I have a hope to send all these documents to Government on Monday. In general will see how it works. Also Ksusha has been thinking about buying tickets to Russia. I am scary about her intentions. I don't know what will be there. Elections are very close and I am afraid of closing borders. So I don't know. I am about to ask her to cancel everything.
+
+# 01 März - Donnerstag - Berlin - 528 Tag der Einwanderung - Sunny
