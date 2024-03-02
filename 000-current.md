@@ -120,4 +120,4 @@ So, today Navalny was finally buried. It happened. Thousands of people went to s
 
 # 02 März - Samstag - Berlin - 529 Tag der Einwanderung - Sunny
 
-I like Saturdays. Ususally I do not do anything these days. Today we were at new national gallery here. It's a museum that focuses on DDR and FRG art. The difference between two camps is reflected very well. After that we came back home and spent time there. Besides that I bought another vinyl.
+I like Saturdays. Ususally I do not do anything these days. Today we were at new national gallery here. It's a museum that focuses on DDR and FRG art. The difference between two camps is reflected very well. After that we came back home and spent time there. Besides that I bought another vinyl. It's Red Hot Chilly Peppers Mother's Milk. I like this classic album very much and hapyy to have it in my collection.
