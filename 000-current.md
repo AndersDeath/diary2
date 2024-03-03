@@ -124,4 +124,4 @@ I like Saturdays. Ususally I do not do anything these days. Today we were at new
 
 # 03 März - Sonnstag - Berlin - 530 Tag der Einwanderung - Sunny
 
-The day was heavy. I did a lot of things that I should and others that I wanted to do.
+The day was heavy. I did a lot of things that I should and others that I wanted to do. So, the day was heavy but nice.
