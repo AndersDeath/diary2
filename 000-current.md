@@ -127,3 +127,5 @@ I like Saturdays. Ususally I do not do anything these days. Today we were at new
 The day was heavy. I did a lot of things that I should and others that I wanted to do. So, the day was heavy but nice. I prepared another note for linkedin, found several meetups that I want to visit and then started building server for holy theory. In the evening we were on Dune 2. The movie was really cool and beautiful. I enjoed wathing it very much. The only problem is that it was in German. I didn't understnad anything almost. But again the movie was cool. After that I did homework successfully. After that I did sport and so, the day has been finished.
 
 # 04 März - Montag - Berlin - 531 Tag der Einwanderung - Sunny
+
+This day was really cool.
