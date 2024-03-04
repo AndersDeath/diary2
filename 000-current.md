@@ -128,4 +128,4 @@ The day was heavy. I did a lot of things that I should and others that I wanted 
 
 # 04 März - Montag - Berlin - 531 Tag der Einwanderung - Sunny
 
-This day was really cool. I had a german lesson and then I was partisipating in public speaking club for the first time. It was cool. I will try to participate there next time and maybe buy membership. I will think about it.
+This day was really cool. I had a german lesson and then I was partisipating in public speaking club for the first time. It was cool. I will try to participate there next time and maybe buy membership. I will think about it. Tomorrow I will go to the office because I need to
