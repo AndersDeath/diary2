@@ -136,4 +136,4 @@ The office day was today. I talked to guy there a lot and in general the day was
 
 # 06 März - Mittwoch - Berlin - 533 Tag der Einwanderung - Cold Sunny
 
-I am so happy that I started reading Solaris by Stanislav Lem.
+I am so happy that I started reading Solaris by Stanislav Lem. It's classic book that I didn't touch for unexpected reasons.
