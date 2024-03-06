@@ -135,3 +135,5 @@ This day was really cool. I had a german lesson and then I was partisipating in 
 The office day was today. I talked to guy there a lot and in general the day was very communicative. It's really cool because It was my goal to meet some people from other cultures and have fun. In happened. Additionally I did everything that I should do. It also nice. Ksusha got an offer from one studio that she likes. It's amazing. Besides that the studio paid her 5k roubls for a test task. It's also amaizing. In general she is about to start working and I am happy about it. I love her and I believe in her power as well. In general the day was nice. oh I recalled one thing. I had a cognetive test that I don't know how to pass. Moreover this test was in English which is a bullshit. In russian I pass this exersies better.
 
 # 06 März - Mittwoch - Berlin - 533 Tag der Einwanderung - Cold Sunny
+
+I am so happy that I started reading Solaris by Stanislav Lem.
