@@ -140,4 +140,4 @@ I am so happy that I started reading Solaris by Stanislav Lem. It's classic book
 
 # 07 März - Dotterstrag - Berlin - 534 Tag der Einwanderung - Cold Sunny
 
-I was talking to people for a whole day
+I was talking to people for a whole day. Firstly I had an interview with one guy from 
