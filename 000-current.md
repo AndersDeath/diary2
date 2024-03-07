@@ -138,4 +138,4 @@ The office day was today. I talked to guy there a lot and in general the day was
 
 I am so happy that I started reading Solaris by Stanislav Lem. It's classic book that I didn't touch for unexpected reasons. Also Ksusha agreed to join to one deisgn studio that will give her an experience in her work. It's extremely cool. I am so happy and proud of her. She is amazing. Also Tupa Germania finally are about to send my documents to Rrzhev where Ksusha's mom pick up them and when Ksusha is here she will take them and carry to Berlin. It's so weird that I live in Berlin actually. It's something surreal. This evening me and Ksusha where in Sultan Hammam. It's a real hammam here in Belrin. We took a great batch and got some pilling that was nice. I relaxed a lot and then it made my day.
 
-# 06 März - Mittwoch - Berlin - 534 Tag der Einwanderung - Cold Sunny
+# 07 März - Dotterstrag - Berlin - 534 Tag der Einwanderung - Cold Sunny
