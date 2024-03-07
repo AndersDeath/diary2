@@ -140,4 +140,4 @@ I am so happy that I started reading Solaris by Stanislav Lem. It's classic book
 
 # 07 März - Dotterstrag - Berlin - 534 Tag der Einwanderung - Cold Sunny
 
-I was talking to people for a whole day. Firstly I had an interview with one guy from company that is on Alexanderplaz. After that I lead restrospective and was talking for an hour. After that I expirienced a german lesson. Besides that I was in the shop three times today that is absolutely crazy and non efficient. Also I went to Alexa and boguth 8 march present for Ksusha. Then I called to my unkle and congritulated him with his birthday.
+I was talking to people for a whole day. Firstly I had an interview with one guy from company that is on Alexanderplaz. After that I lead restrospective and was talking for an hour. After that I expirienced a german lesson. Besides that I was in the shop three times today that is absolutely crazy and non efficient. Also I went to Alexa and boguth 8 march present for Ksusha. Then I called to my unkle and congritulated him with his birthday. Other than that I tried to do everything and got tiered very much.
