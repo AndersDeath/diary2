@@ -144,4 +144,4 @@ I was talking to people for a whole day. Firstly I had an interview with one guy
 
 # 08 März - Freitag - Berlin - 535 Tag der Einwanderung - Cold Sunny
 
-So, I doesn't feel well today. For some reasons I am very nervouse and see only bad things everywhere.
+So, I doesn't feel well today. For some reasons I am very nervouse and see only bad things everywhere. However I congratulated all women I know with international women day.
