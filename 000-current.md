@@ -148,4 +148,4 @@ So, I doesn't feel well today. For some reasons I am very nervouse and see only 
 
 # 09 März - Samstag - Berlin - 536 Tag der Einwanderung - Cold Sunny
 
-Today We were in Tegel. The road to that place was extremely long. Belins transport did't work well again. It was really painful.
+Today We were in Tegel. The road to that place was extremely long. Belins transport did't work well again. It was really painful. However Tegel as a district is perfect/
