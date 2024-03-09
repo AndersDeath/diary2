@@ -145,3 +145,5 @@ I was talking to people for a whole day. Firstly I had an interview with one guy
 # 08 März - Freitag - Berlin - 535 Tag der Einwanderung - Cold Sunny
 
 So, I doesn't feel well today. For some reasons I am very nervouse and see only bad things everywhere. However I congratulated all women I know with international women day. I consider this day as very importand date. Besides that I didn't do anything in the first part of the day, after that we were in Neuköln and walked in a garden there. The place was nice but again weed was in the air. I don't like it. Moreover I think that it should be prohibited because it affects human brain very much. However my brain rested a little bit today and I can do something else now. Tomorrow we are going to humbold univercity library. After that we will walk a bit and come back home. After all this things I am goung to refactor builder for holy theory finally and to do it a bit better. So in general I did everything I should do but with having much more free time and this is great.
+
+# 09 März - Freitag - Berlin - 535 Tag der Einwanderung - Cold Sunny
