@@ -148,4 +148,4 @@ So, I doesn't feel well today. For some reasons I am very nervouse and see only 
 
 # 09 März - Samstag - Berlin - 536 Tag der Einwanderung - Cold Sunny
 
-Today We were in Tegel. The road to that place was extremely long. Belins transport did't work well again. It was really painful. However Tegel as a district is perfect. Firstly we wisited Humboldt library which is an example of postmodern style. The enter to the place is absolutely free. Secondly we walked around and found (=)) a cool lake.
+Today We were in Tegel. The road to that place was extremely long. Belins transport did't work well again. It was really painful. However Tegel as a district is perfect. Firstly we wisited Humboldt library which is an example of postmodern style. The enter to the place is absolutely free. Secondly we walked around and found (=)) a cool lake. I so miss lakes and sea itself that I was just happy to see 
