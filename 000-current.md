@@ -152,4 +152,4 @@ Today We were in Tegel. The road to that place was extremely long. Belins transp
 
 # 10 März - Sonnstag - Berlin - 537 Tag der Einwanderung - Cold Sunny
 
-Standard Sunday has been finished. It's really sad because I would like to have a rest for one more week.
+Standard Sunday has been finished. It's really sad because I would like to have a rest for one more week. I hung a mirror to my bathroom and this is good. 
