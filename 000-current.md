@@ -156,4 +156,4 @@ Standard Sunday has been finished. It's really sad because I would like to have 
 
 # 11 März - Montag - Berlin - 538 Tag der Einwanderung - Warm Sunny
 
-Monday is always hard day. I did a lot of thingks and didn't think a lot about something. I did another release of holy theory,
+Monday is always hard day. I did a lot of thingks and didn't think a lot about something. I did another release of holy theory, finished some tasks.
