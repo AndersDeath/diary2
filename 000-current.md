@@ -154,4 +154,4 @@ Today We were in Tegel. The road to that place was extremely long. Belins transp
 
 Standard Sunday has been finished. It's really sad because I would like to have a rest for one more week. I hung a mirror to my bathroom and this is good. Also I did all german homework wich is also very cool. Tomorrow I will have another lesson with that guy. Besides that I didn't do anthing. The sport is still on my place and it's really cool. Oh, I recalled I prepared another post about management that I will share on Linkedit next week. Today I pick deligation topic. Maybe next time I will take something from this topic and expand in other posts. I didn't decide it yet. Also Ksusha is going to Russia next week. Basically in 3 days. I am not happy about that I feel nervous. I am scary about her and things that might happen. I hope everything will be good. but it's too sensitive thing. 
 
-# 11 März - Montag - Berlin - 538 Tag der Einwanderung - Cold Sunny
+# 11 März - Montag - Berlin - 538 Tag der Einwanderung - Warm Sunny
