@@ -156,4 +156,4 @@ Standard Sunday has been finished. It's really sad because I would like to have 
 
 # 11 März - Montag - Berlin - 538 Tag der Einwanderung - Warm Sunny
 
-Monday is always hard day. I did a lot of thingks and didn't think a lot about something. I did another release of holy theory, finished some tasks. In the morning and after work I was in supermarket. I finished mounting of mirror in bathroom and now it's connected directly to switcher on a wall and this is very convinient and nice. Also I texted to Sergey Dzeboev. I
+Monday is always hard day. I did a lot of thingks and didn't think a lot about something. I did another release of holy theory, finished some tasks. In the morning and after work I was in supermarket. I finished mounting of mirror in bathroom and now it's connected directly to switcher on a wall and this is very convinient and nice. Also I texted to Sergey Dzeboev. He is my ex college, we were working together in DR SMILE.
