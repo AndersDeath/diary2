@@ -160,4 +160,4 @@ Monday is always hard day. I did a lot of thingks and didn't think a lot about s
 
 # 12 März - Dienstag - Berlin - 539 Tag der Einwanderung - Warm Sunny
 
-Ksusha is flying tomorrow morning. We are going to the airport together and then I come to the office. This day was very productive, I wrote some code and did a lot of interesting things.
+Ksusha is flying tomorrow morning. We are going to the airport together and then I come to the office. This day was very productive, I wrote some code and did a lot of interesting things. In the evening we went for a walk and found one cool vegan cafe whe
