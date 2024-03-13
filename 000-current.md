@@ -164,4 +164,4 @@ Ksusha is flying tomorrow morning. We are going to the airport together and then
 
 # 13 März - Mottwoch - Berlin - 540 Tag der Einwanderung - Warm Sunny
 
-So Ksusha is flying to Russia. She is still on the road. I accompanied her to the ariport this morning and everything was nice. We arrived to Antalia but something happened to weather and her connection flyigt was delayed significantly.
+So Ksusha is flying to Russia. She is still on the road. I accompanied her to the ariport this morning and everything was nice. We arrived to Antalia but something happened to weather and her connection flyigt was delayed significantly. It's crazy.
