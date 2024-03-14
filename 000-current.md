@@ -168,4 +168,4 @@ So Ksusha is flying to Russia. She is still on the road. I accompanied her to th
 
 # 14 März - Donnerstag - Berlin - 541 Tag der Einwanderung - Warm Sunny
 
-So, I got an invitation from foreign office of Germany. Unfortunately Ksusha will be not here because of her travel to Russia. Tomorrow I will try to reschedule the appointment. Besides that Ksusha finally arrived to saint-p. Whe
+So, I got an invitation from foreign office of Germany. Unfortunately Ksusha will be not here because of her travel to Russia. Tomorrow I will try to reschedule the appointment. Besides that Ksusha finally arrived to saint-p. She experienced a delay on the second flyigt and afte rthat huge queu
