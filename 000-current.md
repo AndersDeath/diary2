@@ -172,4 +172,4 @@ So, I got an invitation from foreign office of Germany. Unfortunately Ksusha wil
 
 # 15 März - Freitag - Berlin - 542 Tag der Einwanderung - Warm Sunny
 
-So, I visited a meetup Ironhach. I watched several presentation 
+So, I visited a meetup Ironhach. I watched several presentation of people tha finished learning in that bootcamp.
