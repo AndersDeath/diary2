@@ -171,3 +171,5 @@ So Ksusha is flying to Russia. She is still on the road. I accompanied her to th
 So, I got an invitation from foreign office of Germany. Unfortunately Ksusha will be not here because of her travel to Russia. Tomorrow I will try to reschedule the appointment. Besides that Ksusha finally arrived to saint-p. She experienced a delay on the second flyigt and afte rthat huge queue on Russian border. This fucking morons check people for 10 minutes for person. They are absolutely crazy. After the beginning of the war they get insane every day more and more. Another topic. I had an interview today with hiring manager. Unfortunately it was unsuccessful. I wasn't in good shape for a talk and did everything wrong. It's really sad. I fucked this up. So, Now I will go to bathroom and go to sleep. I didn't enjoy this day.
 
 # 15 März - Freitag - Berlin - 542 Tag der Einwanderung - Warm Sunny
+
+So, I visited a meetup Ironhach.
