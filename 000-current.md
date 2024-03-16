@@ -174,4 +174,5 @@ So, I got an invitation from foreign office of Germany. Unfortunately Ksusha wil
 
 So, I visited a meetup Ironhach. I watched several presentation of people tha finished learning in that bootcamp. It was nice and funny. I will do some articles and posts about it next week. Besides that I didn't feel well in the morning and could do a lot of things. Surely I tried but could not. I need to compensate this tomorrow of the day after tomorrow. I need to do this. Basically I will do it. Also I need to do test task from one of companies. I will work on it tomorrow. Basically beside voting in empassy on Sunday I will code a lot. I need to concentrate and do good things. Yea. Also my mood in the morning was ablolutely bad. bootcamp event fixed is. I am happy.
 
-# 16 März - Freitag - Berlin - 543 Tag der Einwanderung - Warm Sunny
+# 16 März - Samstag - Berlin - 543 Tag der Einwanderung - Warm Sunny
+
