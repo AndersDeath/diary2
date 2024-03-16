@@ -176,3 +176,4 @@ So, I visited a meetup Ironhach. I watched several presentation of people tha fi
 
 # 16 März - Samstag - Berlin - 543 Tag der Einwanderung - Warm Sunny
 
+The day was hard. I spent almost 5 hours on reading documentation for 
