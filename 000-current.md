@@ -176,4 +176,4 @@ So, I visited a meetup Ironhach. I watched several presentation of people tha fi
 
 # 16 März - Samstag - Berlin - 543 Tag der Einwanderung - Warm Sunny
 
-The day was hard. I spent almost 5 hours on reading documentation for working on test task from Doodle. Tommorow I am going to finish working on it. In the morning I will go to russian embassy in order to vote. I don't know what kind of strategy I want to select but I will come up with it tomorrow. Besides that I walked a little bit and did some other things. Basically this is it. Tomorrow I will wake up early morning and proceed working on test task. I will take laptop and 
+The day was hard. I spent almost 5 hours on reading documentation for working on test task from Doodle. Tommorow I am going to finish working on it. In the morning I will go to russian embassy in order to vote. I don't know what kind of strategy I want to select but I will come up with it tomorrow. Besides that I walked a little bit and did some other things. Basically this is it. Tomorrow I will wake up early morning and proceed working on test task. I will take laptop and work from some cafe or library.
