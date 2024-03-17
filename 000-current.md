@@ -180,4 +180,4 @@ The day was hard. I spent almost 5 hours on reading documentation for working on
 
 # 17 März - Sonntag - Berlin - 544 Tag der Einwanderung - Cold Sunny
 
-So, I voted today. I spent 2 hours in queue to Embassy. It was crazy. I think that several thousands of people came to the place. Unfortunately a capacity of the Empassy was really small and a lot of people could not voted. After that I visited cafe, warmed myself a little bit and then visited rally. I saw Khodorkovsky. It's a Russia billioner that spend almost 10 years in prison due to conflict with Putin. So, that was interesting.
+So, I voted today. I spent 2 hours in queue to Embassy. It was crazy. I think that several thousands of people came to the place. Unfortunately a capacity of the Empassy was really small and a lot of people could not voted. After that I visited cafe, warmed myself a little bit and then visited rally. I saw Khodorkovsky. It's a Russia billioner that spend almost 10 years in prison due to conflict with Putin. So, that was interesting. After that I was working on test tast for Doodle.
