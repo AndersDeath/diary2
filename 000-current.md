@@ -183,3 +183,5 @@ The day was hard. I spent almost 5 hours on reading documentation for working on
 So, I voted today. I spent 2 hours in queue to Embassy. It was crazy. I think that several thousands of people came to the place. Unfortunately a capacity of the Empassy was really small and a lot of people could not voted. After that I visited cafe, warmed myself a little bit and then visited rally. I saw Khodorkovsky. It's a Russia billioner that spend almost 10 years in prison due to conflict with Putin. So, that was interesting. After that I was working on test tast for Doodle. I think I ruined the task and they will refuse me. I expect it and will not wait for the next call. It will not make sence. In general day was nice but I am tiered again. This is shit. I also need to accomplish a lot of things tomorrow morning for XU. My debt is quite hight. So, I will wake up and jump to the problem. It was my day.
 
 # 18 März - Sonntag - Berlin - 545 Tag der Einwanderung - Cold Sunny
+
+It's fucking cold today. I spent the whole day in apartments because it was just freeze outside.
