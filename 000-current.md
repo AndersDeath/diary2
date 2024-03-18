@@ -184,4 +184,4 @@ So, I voted today. I spent 2 hours in queue to Embassy. It was crazy. I think th
 
 # 18 März - Sonntag - Berlin - 545 Tag der Einwanderung - Cold Sunny
 
-It's fucking cold today. I spent the whole day in apartments because it was just freeze outside. However Idid a lot of interesting things today and also I had a german lesson. I always try to do my best there but it's just hard. Tomorrow after work I will go
+It's fucking cold today. I spent the whole day in apartments because it was just freeze outside. However Idid a lot of interesting things today and also I had a german lesson. I always try to do my best there but it's just hard. Tomorrow after work I will go Angular meetup wich is really coll.
