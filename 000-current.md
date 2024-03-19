@@ -188,4 +188,4 @@ It's fucking cold today. I spent the whole day in apartments because it was just
 
 # 20 März - Dienstag - Berlin - 546 Tag der Einwanderung - Cold Sunny
 
-Today I visited an Angular meetup. It was quite nice I met some people but I didn't get anything new. However it was the first time when I saw a presentation of an engineer that promoted his own library. It was nice. Also I added a lot of new people to my network. I enjoyed it a lot.
+Today I visited an Angular meetup. It was quite nice I met some people but I didn't get anything new. However it was the first time when I saw a presentation of an engineer that promoted his own library. It was nice. Also I added a lot of new people to my network. I enjoyed it a lot. Besides that I didn't have anything new and specific today.
