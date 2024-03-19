@@ -187,3 +187,5 @@ So, I voted today. I spent 2 hours in queue to Embassy. It was crazy. I think th
 It's fucking cold today. I spent the whole day in apartments because it was just freeze outside. However Idid a lot of interesting things today and also I had a german lesson. I always try to do my best there but it's just hard. Tomorrow after work I will go Angular meetup wich is really cool. I am going to enjoy it very much. Besides that I did another release holy theory and prepared post of last meetup about that bootcamp.
 
 # 20 März - Dienstag - Berlin - 546 Tag der Einwanderung - Cold Sunny
+
+Today I visited an Angular meetup.
