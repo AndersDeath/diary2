@@ -189,3 +189,5 @@ It's fucking cold today. I spent the whole day in apartments because it was just
 # 20 März - Dienstag - Berlin - 546 Tag der Einwanderung - Cold Sunny
 
 Today I visited an Angular meetup. It was quite nice I met some people but I didn't get anything new. However it was the first time when I saw a presentation of an engineer that promoted his own library. It was nice. Also I added a lot of new people to my network. I enjoyed it a lot. Besides that I didn't have anything new and specific today. I was warking and thinking about the futur but nothing more. The meetup was on Kottbuser Tor and I was on this place for the first time at night. This area is notoriously famouse in Gerlin. I saw a lot of junkies and some suspition people. It was crazy but the way. I even saw how a group of people shared some stuff from stolen luggage. It was crazy again. I never saw it before.
+
+# 21 März - Mittwoch - Berlin - 546 Tag der Einwanderung - Cold Sunny
