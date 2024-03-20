@@ -192,4 +192,4 @@ Today I visited an Angular meetup. It was quite nice I met some people but I did
 
 # 21 März - Mittwoch - Berlin - 547 Tag der Einwanderung - Cold Sunny
 
-Office day was nice. I printed some important documents and got cool task to work. It's nice.
+Office day was nice. I printed some important documents and got cool task to work. It's nice. Besides that I didn't do anyrthing imporant.
