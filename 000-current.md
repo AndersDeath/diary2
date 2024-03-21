@@ -194,4 +194,4 @@ Today I visited an Angular meetup. It was quite nice I met some people but I did
 
 Office day was nice. I printed some important documents and got cool task to work. It's nice. Besides that I didn't do anyrthing imporant. I had a german lesson today, I asked to reschedule it because I will for to Reactjs meetup tomorrow and there is a confilct in my calendar. I really miss Ksusha. it's the first time when she is in Russia without me for so long period of time. It's sad. However I try to do my best and be normal.
 
-# 22 März - Donnerstag - Berlin - 547 Tag der Einwanderung - Cold Sunny
+# 22 März - Donnerstag - Berlin - 548 Tag der Einwanderung - Cold Sunny
