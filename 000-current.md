@@ -196,4 +196,4 @@ Office day was nice. I printed some important documents and got cool task to wor
 
 # 22 März - Donnerstag - Berlin - 548 Tag der Einwanderung - Cold Sunny
 
-I feel so unmotivated for doing anything. It's really bad. I've been trying to find something that can bring me back to normal state. I didn't go to dodays meetup because I just wasn't ready
+I feel so unmotivated for doing anything. It's really bad. I've been trying to find something that can bring me back to normal state. I didn't go to dodays meetup because I just wasn't ready. Instead of this I plated 
