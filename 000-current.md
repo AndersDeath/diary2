@@ -190,10 +190,12 @@ It's fucking cold today. I spent the whole day in apartments because it was just
 
 Today I visited an Angular meetup. It was quite nice I met some people but I didn't get anything new. However it was the first time when I saw a presentation of an engineer that promoted his own library. It was nice. Also I added a lot of new people to my network. I enjoyed it a lot. Besides that I didn't have anything new and specific today. I was warking and thinking about the futur but nothing more. The meetup was on Kottbuser Tor and I was on this place for the first time at night. This area is notoriously famouse in Gerlin. I saw a lot of junkies and some suspition people. It was crazy but the way. I even saw how a group of people shared some stuff from stolen luggage. It was crazy again. I never saw it before.
 
-# 21 März - Mittwoch - Berlin - 547 Tag der Einwanderung - Cold Sunny
+# 20 März - Mittwoch - Berlin - 547 Tag der Einwanderung - Cold Sunny
 
 Office day was nice. I printed some important documents and got cool task to work. It's nice. Besides that I didn't do anyrthing imporant. I had a german lesson today, I asked to reschedule it because I will for to Reactjs meetup tomorrow and there is a confilct in my calendar. I really miss Ksusha. it's the first time when she is in Russia without me for so long period of time. It's sad. However I try to do my best and be normal.
 
-# 22 März - Donnerstag - Berlin - 548 Tag der Einwanderung - Cold Sunny
+# 21 März - Donnerstag - Berlin - 548 Tag der Einwanderung - Cold Sunny
 
 I feel so unmotivated for doing anything. It's really bad. I've been trying to find something that can bring me back to normal state. I didn't go to dodays meetup because I just wasn't ready. Instead of this I played Road Rash 3 on emulator a little bit and went for a walk. I walked from my home to Alexander platz. It's just 50 minutes walking and I enjoyed it very much. I tood some cool photos and looked at night Berlin. Sometime I fell so surrealistic that I live in this city. Back in the days at home I could not imagine living here. My life turted to some unusual direction and I still feel wierd. At the same time I achieved more than I expected beign children. It's so strange. Germany and Berlin itself looked as something like wonderland for me. But I am here. I am about to get local residency and so on. It's really unusual. I try to do my best and even increase my success. Sometimes I forget that I already did so many things for changing my life to better direction. Another important thing - the war came to Belgorod - russian city that is very close to Russian-Ukranian border. Putin stole our present. This crazy maniac broke us.
+
+# 21 März - Donnerstag - Berlin - 548 Tag der Einwanderung - Cold Sunny
