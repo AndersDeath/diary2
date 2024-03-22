@@ -200,4 +200,4 @@ I feel so unmotivated for doing anything. It's really bad. I've been trying to f
 
 # 22 März - Freitag - Berlin - 549 Tag der Einwanderung - Cold Rainy
 
-So today Tomasz from my job told us that he will stop working for XU company. It will happen because his emplyer - an outsource company cannot achieve some ISO that is reaquired from XU side. It is really sad shit. However it doesn't touch my plans. So The whole day was dedicated to calls. In general nothing happened today besides that news about breaking of a contract.
+So today Tomasz from my job told us that he will stop working for XU company. It will happen because his emplyer - an outsource company cannot achieve some ISO that is reaquired from XU side. It is really sad shit. However it doesn't touch my plans. So The whole day was dedicated to calls. In general nothing happened today besides that news about breaking of a contract. so yea, the day wasn't so hard and pressured.
