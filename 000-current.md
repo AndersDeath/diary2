@@ -204,4 +204,4 @@ So today Tomasz from my job told us that he will stop working for XU company. It
 
 # 23 März - Samstag - Berlin - 550 Tag der Einwanderung - Cold Rainy
 
-Today I finally visited museum of Tecknology. I finally saw Z1 - the fist mecachanical computer. Also There are a lot of cools things, like steam trains, boats, airplanes and a lot of cool things. Also I had a call with my nepew Arseniy. He is a son of Ksishas sister. Nice guy, very clever. I hope his behaviour will not be broken afer pubertat. I also finally visited holocoust memorial and gypsy genocide one.
+Today I finally visited museum of Tecknology. I finally saw Z1 - the fist mecachanical computer. Also There are a lot of cools things, like steam trains, boats, airplanes and a lot of cool things. Also I had a call with my nepew Arseniy. He is a son of Ksishas sister. Nice guy, very clever. I hope his behaviour will not be broken afer pubertat. I also finally visited holocoust memorial and gypsy genocide one. I wanted to see them for a very long time.
