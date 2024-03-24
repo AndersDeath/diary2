@@ -208,4 +208,4 @@ Today I finally visited museum of Tecknology. I finally saw Z1 - the fist mecach
 
 # 24 März - Sonstag - Berlin - 551 Tag der Einwanderung - Cold Rainy
 
-The day was nice. I spent the half of it in coding. This is amazing. I successfully set up
+The day was nice. I spent the half of it in coding. This is amazing. I successfully set up graphql connection and this is really cool because I had struggels with upderstanding of this concept/
