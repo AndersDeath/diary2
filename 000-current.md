@@ -212,4 +212,4 @@ The day was nice. I spent the half of it in coding. This is amazing. I successfu
 
 # 25 März - Sontag - Berlin - 552 Tag der Einwanderung - Cold Rainy
 
-Sp, the day was nice.
+Sp, the day was nice. XU manager finally announced that our theam will be cut in 2 times.
