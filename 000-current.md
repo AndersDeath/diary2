@@ -212,4 +212,4 @@ The day was nice. I spent the half of it in coding. This is amazing. I successfu
 
 # 25 März - Sontag - Berlin - 552 Tag der Einwanderung - Cold Rainy
 
-Sp, the day was nice. XU manager finally announced that our theam will be cut in 2 times. It's sad but I am already ok. Also I was coding for a whole day. I need to meet Ksusha in airport tomorrow. I also did some cleainig and had a nice lessson with my German teacher. Everything is very important. I am really happy that Ksusha will come back to me. It's not a coming back home bacause I still don't feel in Berlin cozy and like I am home. Really it's hard.
+Sp, the day was nice. XU manager finally announced that our theam will be cut in 2 times. It's sad but I am already ok. Also I was coding for a whole day. I need to meet Ksusha in airport tomorrow. I also did some cleainig and had a nice lessson with my German teacher. Everything is very important. I am really happy that Ksusha will come back to me. It's not a coming back home bacause I still don't feel in Berlin cozy and like I am home. Really it's hard. If I would immigrate alot I could not handle this.
