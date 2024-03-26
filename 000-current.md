@@ -216,4 +216,4 @@ Sp, the day was nice. XU manager finally announced that our theam will be cut in
 
 # 26 März - Dienstag - Berlin - 553 Tag der Einwanderung - Cold Sunny
 
-Today I met Ksusha in Airport and it was very very good. She came back and I am happy about it. I also had an interview. I hope to have something positive there. I am not sure about it but maybe.
+Today I met Ksusha in Airport and it was very very good. She came back and I am happy about it. I also had an interview. I hope to have something positive there. I am not sure about it but maybe. Ksusha brought my arduino, some thing from 
