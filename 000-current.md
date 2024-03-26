@@ -210,8 +210,8 @@ Today I finally visited museum of Tecknology. I finally saw Z1 - the fist mecach
 
 The day was nice. I spent the half of it in coding. This is amazing. I successfully set up graphql connection and this is really cool because I had struggels with upderstanding of this concept. After that I wrote another management post and I feel so good because of it. In general the day was nice. Ksushe is moving back to Saint-Petersburg and tomorrow's evening she is flying back to Germany. The day after tomorrow I will meet her finally. It's also soooooo, good.
 
-# 25 März - Sontag - Berlin - 552 Tag der Einwanderung - Cold Rainy
+# 25 März - Montag - Berlin - 552 Tag der Einwanderung - Cold Rainy
 
 Sp, the day was nice. XU manager finally announced that our theam will be cut in 2 times. It's sad but I am already ok. Also I was coding for a whole day. I need to meet Ksusha in airport tomorrow. I also did some cleainig and had a nice lessson with my German teacher. Everything is very important. I am really happy that Ksusha will come back to me. It's not a coming back home bacause I still don't feel in Berlin cozy and like I am home. Really it's hard. If I would immigrate alot I could not handle this. Immigration is really hard things.
 
-# 26 März - Sontag - Berlin - 552 Tag der Einwanderung - Cold Sunny
+# 26 März - Dienstag - Berlin - 553 Tag der Einwanderung - Cold Sunny
