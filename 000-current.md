@@ -219,3 +219,5 @@ Sp, the day was nice. XU manager finally announced that our theam will be cut in
 Today I met Ksusha in Airport and it was very very good. She came back and I am happy about it. I also had an interview. I hope to have something positive there. I am not sure about it but maybe. Ksusha brought my arduino, some thing from India, a couple of jackets and so. I am really gald to have it. Tomorrow we are going to international office and finish achieving of our documents. It's a hight chance that I will get blau card. If it happens I will be amazingly happy. But the final thing I will know tomorrow. Also I need to visit a doctor tomorrow and take a phot of my teeth. I had a surger in october of november and it's important to check if it was successful. That's it.
 
 # 27 März - Mittworch - Berlin - 554 Tag der Einwanderung - Warm Sunny
+
+The day was perfect. My blau card has been aprooved and I need just to wait for a plastic card.
