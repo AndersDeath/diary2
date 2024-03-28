@@ -221,3 +221,5 @@ Today I met Ksusha in Airport and it was very very good. She came back and I am 
 # 27 März - Mittworch - Berlin - 554 Tag der Einwanderung - Warm Sunny
 
 The day was perfect. My blau card has been aprooved and I need just to wait for a plastic card. In fact it is already valid. I am really happy about that. After this point I visited dentist and did Computer Tomography investigation. So, in genereal all these things were really cool and extencieve. The day was nice. Another thing is that I finally recieved salary. It's also good. After moving to Germany I started feeling money again beause in Russia and Armenia I had enough money for everything. Here it is not a case yet. If I get another job I will have definetely better salary. Anyway, it's still my goal. I have a quite big ambitious.
+
+# 28 März - Mittworch - Berlin - 554 Tag der Einwanderung - Warm Sunny
