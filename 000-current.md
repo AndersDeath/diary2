@@ -224,4 +224,4 @@ The day was perfect. My blau card has been aprooved and I need just to wait for 
 
 # 28 März - Donnerstag - Berlin - 555 Tag der Einwanderung - Warm Sunny
 
-So, this day was really hard. I barely could handle it. I did really a lot of thing related to my project and so things. Also there was a final meeting with people from my team that were attached to Polish contractor.
+So, this day was really hard. I barely could handle it. I did really a lot of thing related to my project and so things. Also there was a final meeting with people from my team that were attached to Polish contractor. Unfortunately 
