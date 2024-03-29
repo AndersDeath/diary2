@@ -228,4 +228,4 @@ So, this day was really hard. I barely could handle it. I did really a lot of th
 
 # 29 März - Freitag - Berlin - 556 Tag der Einwanderung - Warm Sunny
 
-Easter is almost started. 
+Easter is almost started. Today is a good friday.
