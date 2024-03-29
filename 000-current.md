@@ -228,4 +228,4 @@ So, this day was really hard. I barely could handle it. I did really a lot of th
 
 # 29 März - Freitag - Berlin - 556 Tag der Einwanderung - Warm Sunny
 
-Easter is almost started. Today is a good friday. I celebrate it for the first time in my life because I grew up in orthodox culture and there is another schedule for church holidays. In general I coded a lot and also updated holy theory that is extremely cool thing.
+Easter is almost started. Today is a good friday. I celebrate it for the first time in my life because I grew up in orthodox culture and there is another schedule for church holidays. In general I coded a lot and also updated holy theory that is extremely cool thing. Afte some working hours me and Ksuhsa were in 
