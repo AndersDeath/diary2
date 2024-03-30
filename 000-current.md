@@ -231,3 +231,5 @@ So, this day was really hard. I barely could handle it. I did really a lot of th
 Easter is almost started. Today is a good friday. I celebrate it for the first time in my life because I grew up in orthodox culture and there is another schedule for church holidays. In general I coded a lot and also updated holy theory that is extremely cool thing. Afte some working hours me and Ksuhsa were in a gallery that is located in Banana Bunker. It's the bunker that was build in 1942 in order to protect people in that area. After the ww2 the building was reshaped just to a warehouse. After falling of the wall the place became a techno club. Several years ago is was closed and then the building was renovated. Current owners of it located a private art gallery. So, we visited it. The interesting point that almost all pieces of art located there have conceptions. Hopefully we had a guide that explaned everything to us. It was fun. His english was native. I like it and got a lot of pleasure listening to him. So, yea. It was my day.
 
 # 30 März - Samstag - Berlin - 557 Tag der Einwanderung - Warm Sunny
+
+Today I just had a rest and almost did nothing.
