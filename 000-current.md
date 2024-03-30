@@ -232,4 +232,4 @@ Easter is almost started. Today is a good friday. I celebrate it for the first t
 
 # 30 März - Samstag - Berlin - 557 Tag der Einwanderung - Warm Sunny
 
-Today I just had a rest and almost did nothing. We had a nice breakfast and the did nothing. Unfortunately Ksusha got sick a little bit and we could not walk for a long time. We finally visited Tempelhof field. It was a very important airdrom here it Berlin that was build by nazi party in 1930th approxemetely.
+Today I just had a rest and almost did nothing. We had a nice breakfast and the did nothing. Unfortunately Ksusha got sick a little bit and we could not walk for a long time. We finally visited Tempelhof field. It was a very important airdrom here it Berlin that was build by nazi party in 1930th approxemetely. After WW2 this place was window to the west 
