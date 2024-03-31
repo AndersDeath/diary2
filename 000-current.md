@@ -236,4 +236,4 @@ Today I just had a rest and almost did nothing. We had a nice breakfast and the 
 
 # 31 März - Sonstag - Berlin - 558 Tag der Einwanderung - Warm Sunny
 
-So, this is the last day of March (thank you capitan Obvious). Also today is easter fest. It's a family holiday here in German. To be honest It doesn't look like this. It's mostly a tradition than a religious holiday. It's really noce and cool.
+So, this is the last day of March (thank you capitan Obvious). Also today is easter fest. It's a family holiday here in German. To be honest It doesn't look like this. It's mostly a tradition than a religious holiday. It's really nice and cool.
