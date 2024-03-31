@@ -235,3 +235,5 @@ Easter is almost started. Today is a good friday. I celebrate it for the first t
 Today I just had a rest and almost did nothing. We had a nice breakfast and the did nothing. Unfortunately Ksusha got sick a little bit and we could not walk for a long time. We finally visited Tempelhof field. It was a very important airdrom here it Berlin that was build by nazi party in 1930th approxemetely. After WW2 this place was window to the west for The West Berlin. Right now it is a huge park. In general it was nice. I am going to this part to ride on skateboard. Also we finally bought all tickets and rent an apartments in Venice. I've never been there and will be really happy explore the place. I also will be happy to celebrate by birthday there. I will turn 36 years old.
 
 # 31 März - Sonstag - Berlin - 558 Tag der Einwanderung - Warm Sunny
+
+So, this is the last day of March (thank you cap)
