@@ -4,4 +4,4 @@ I hate day of fool. It's always a piece of shit. However nobody pranked me and I
 
 # 02 April - Dienstag - Berlin - 560 Tag der Einwanderung - Cold Sunny
 
-The same weather like yesterday. I feel worse today. We even got a couple of new termins to doctors. I hope to visit them on the next week. I hope to see them really. It looks like I am very close to surgery again. WIll see. I try to get some specific pills that can help me.
+The same weather like yesterday. I feel worse today. We even got a couple of new termins to doctors. I hope to visit them on the next week. I hope to see them really. It looks like I am very close to surgery again. WIll see. I try to get some specific pills that can help me. I need to be on diet now that is sad but important to me.
