@@ -4,4 +4,4 @@ I hate day of fool. It's always a piece of shit. However nobody pranked me and I
 
 # 02 April - Dienstag - Berlin - 560 Tag der Einwanderung - Cold Sunny
 
-The same weather like yesterday.
+The same weather like yesterday. I feel worse today. We even got a couple of new termins to doctors.
