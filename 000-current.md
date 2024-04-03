@@ -8,4 +8,4 @@ The same weather like yesterday. I feel worse today. We even got a couple of new
 
 # 03 April - Mittwoch - Berlin - 561 Tag der Einwanderung - Cold Sunny
 
-The day was nice. Nothing fency happened. I still don't feel good.
+The day was nice. Nothing fency happened. I still don't feel good. However I did a lot of good things and it's really cool.
