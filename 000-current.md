@@ -11,3 +11,5 @@ The same weather like yesterday. I feel worse today. We even got a couple of new
 The day was nice. Nothing fency happened. I still don't feel good. However I did a lot of good things and it's really cool. The day after tomorrow I will go to a doctor and get something him. I hope that my insurance will cover the visit. I really hope. I don't have money for this now. I think everything will be ok. I also have a termin to proctologist and it's  good.
 
 # 04 April - Dienstag - Berlin - 562 Tag der Einwanderung - Cold Sunny
+
+Today I also feel ok.
