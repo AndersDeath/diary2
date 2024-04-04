@@ -12,4 +12,4 @@ The day was nice. Nothing fency happened. I still don't feel good. However I did
 
 # 04 April - Dienstag - Berlin - 562 Tag der Einwanderung - Cold Sunny
 
-Today I also feel ok.
+Today I also feel ok. Surely I cannot postpone the visit to doctor.
