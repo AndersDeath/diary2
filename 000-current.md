@@ -16,4 +16,4 @@ Today I also feel ok. Surely I cannot postpone the visit to doctor. It's cool th
 
 # 05 April - Freitag - Berlin - 563 Tag der Einwanderung - Warm Cloudy
 
-I was in the doctor office today. He gave me a paper for proctologist quite easy and quickly. Here in Germany it's impossible going to such doctors without approval from a terapist.
+I was in the doctor office today. He gave me a paper for proctologist quite easy and quickly. Here in Germany it's impossible going to such doctors without approval from a therapist. So
