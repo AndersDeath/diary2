@@ -20,4 +20,4 @@ I was in the doctor office today. He gave me a paper for proctologist quite easy
 
 # 06 April - Samstag - Berlin - 564 Tag der Einwanderung - Warm Sunny
 
-The day ws nice. We were in Garder of the World in Eastern Berlin.
+The day ws nice. We were in Garder of the World in Eastern Berlin. We walked there with Gammel family and they showed us this place.
