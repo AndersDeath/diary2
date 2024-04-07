@@ -24,4 +24,4 @@ The day ws nice. We were in Garder of the World in Eastern Berlin. We walked the
 
 # 07 April - Sontag - Berlin - 565 Tag der Einwanderung - Warm Sunny
 
-Today we finally cleaned up our aoartments and did some other typicall activities.
+Today we finally cleaned up our aoartments and did some other typicall activities. The summer came to Berlin, the
