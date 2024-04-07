@@ -24,4 +24,4 @@ The day ws nice. We were in Garder of the World in Eastern Berlin. We walked the
 
 # 07 April - Sontag - Berlin - 565 Tag der Einwanderung - Warm Sunny
 
-Today we finally cleaned up our aoartments and did some other typicall activities. The summer came to Berlin, the weather is so cool. We had a lunch on outside table in one of local restaraunts. It's was really nice. Warm Berlin is really cool and enjoyable. I like it very very much. Surely the fact that we came to the place in the middle of the Winter played its bad role. We wasn't happy of the place, but now everything feels much better.
+Today we finally cleaned up our aoartments and did some other typicall activities. The summer came to Berlin, the weather is so cool. We had a lunch on outside table in one of local restaraunts. It's was really nice. Warm Berlin is really cool and enjoyable. I like it very very much. Surely the fact that we came to the place in the middle of the Winter played its bad role. We wasn't happy of the place, but now everything feels much better. Another thing is that 
