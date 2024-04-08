@@ -28,4 +28,4 @@ Today we finally cleaned up our aoartments and did some other typicall activitie
 
 # 08 April - Montag - Berlin - 566 Tag der Einwanderung - Warm Sunny
 
-The summer has come. The weather is awesome. Being on the streen is even better than in the room.
+The summer has come. The weather is awesome. Being on the street is even better than in the room. 
