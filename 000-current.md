@@ -28,4 +28,4 @@ Today we finally cleaned up our aoartments and did some other typicall activitie
 
 # 08 April - Montag - Berlin - 566 Tag der Einwanderung - Warm Sunny
 
-The summer has come. The weather is awesome. Being on the street is even better than in the room. This really helps to be in normal conditions. I feel normal, my hemorrhoids doesn't pain. It's good. In one week I will visit a doctor that is really cool and I am waiting for it really hard.
+The summer has come. The weather is awesome. Being on the street is even better than in the room. This really helps to be in normal conditions. I feel normal, my hemorrhoids doesn't pain. It's good. In one week I will visit a doctor that is really cool and I am waiting for it really hard. I expect some surgery afeter this visit, but I cannot say when it might happen.
