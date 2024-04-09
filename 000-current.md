@@ -32,4 +32,4 @@ The summer has come. The weather is awesome. Being on the street is even better 
 
 # 09 April - Dienstag - Berlin - 567 Tag der Einwanderung - Warm Sunny
 
-The weather was so cool that I could sit 
+The weather was so cool that I could sit on balcony and work.
