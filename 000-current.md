@@ -31,3 +31,5 @@ Today we finally cleaned up our aoartments and did some other typicall activitie
 The summer has come. The weather is awesome. Being on the street is even better than in the room. This really helps to be in normal conditions. I feel normal, my hemorrhoids doesn't pain. It's good. In one week I will visit a doctor that is really cool and I am waiting for it really hard. I expect some surgery after this visit, but I cannot say when it might happen. I hope that it will be not so annoying and painful. However, I will see. Besides that I released another holy theory bunch and so on. Additionally I had an interview with one company, it was mostly cultural fit talk. I have a hope to be invited to the next step. This company has 6 interviews but if it is good I will get really nice position. For keeping myself in normal mental state I just don't think about it and try to be ready to everything but don't press my mentality. I really don't want to be crazy.
 
 # 09 April - Dienstag - Berlin - 567 Tag der Einwanderung - Warm Sunny
+
+The weather was so cool that I could sit 
