@@ -35,3 +35,5 @@ The summer has come. The weather is awesome. Being on the street is even better 
 The weather was so cool that I could sit on balcony and work. In general I was coding for a whole day. I finished with some things that I could concentrate my efforts. Now everything is nice. TOmorrow I am going to the office. THey asked me to do it because some potential investors are going to visit us. I am curious about it. Overall my mood is better again. I cannot say that I am absolutely ok, but anyway. Also today happened interesting thing. I was talking to a recruiter that rejected my application to some position but offered me other one that was a company that already rejected me. Sadly but it was true. At the same time this is the first such case in my life. It's funny.
 
 # 10 April - Mittwoch - Berlin - 568 Tag der Einwanderung - Warm Sunny
+
+I spent the whole day in the office
