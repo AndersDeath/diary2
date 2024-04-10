@@ -36,4 +36,4 @@ The weather was so cool that I could sit on balcony and work. In general I was c
 
 # 10 April - Mittwoch - Berlin - 568 Tag der Einwanderung - Warm Sunny
 
-I spent the whole day in the office
+I spent the whole day in the office that was nice but a little bit painful 
