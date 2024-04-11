@@ -40,4 +40,4 @@ I spent the whole day in the office that was nice but a little bit painful due t
 
 # 11 April - Donnerstag - Berlin - 567 Tag der Einwanderung - Warm Sunny
 
-The day was nice. I was working on fixing interesting bug in XU company. It consumed almost all my day.
+The day was nice. I was working on fixing interesting bug in XU company. It consumed almost all my day. Additionally I tried to do a checking of a car that I am going to rest on Sunday.
