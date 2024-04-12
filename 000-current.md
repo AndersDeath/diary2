@@ -44,4 +44,4 @@ The day was nice. I was working on fixing interesting bug in XU company. It cons
 
 # 12 April - Freitag - Berlin - 568 Tag der Einwanderung - Warm Sunny
 
-The day was nice. I finished with some tasks for XU, and finished doing a bunch of improvements for my projects. In general I was at home for a whole day but in the evening me and Ksusha were in Volskpark Freidrichshine. I am not sure that wroted down this title correctly. The place was really nice and it is just in 20 minutes walking from my home.
+The day was nice. I finished with some tasks for XU, and finished doing a bunch of improvements for my projects. In general I was at home for a whole day but in the evening me and Ksusha were in Volskpark Freidrichshine. I am not sure that wroted down this title correctly. The place was really nice and it is just in 20 minutes walking from my home. It's really cool that the place is so close to us.
