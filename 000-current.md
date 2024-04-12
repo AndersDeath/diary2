@@ -44,4 +44,4 @@ The day was nice. I was working on fixing interesting bug in XU company. It cons
 
 # 12 April - Freitag - Berlin - 568 Tag der Einwanderung - Warm Sunny
 
-The day was nice. I finished with some tasks for XU, and finished doing a bunch of improvements for 
+The day was nice. I finished with some tasks for XU, and finished doing a bunch of improvements for my projects.
