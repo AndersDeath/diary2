@@ -48,4 +48,4 @@ The day was nice. I finished with some tasks for XU, and finished doing a bunch 
 
 # 13 April - Samstag - Berlin - 569 Tag der Einwanderung - Warm Sunny
 
-The spring in Berlin is really warm.
+The spring in Berlin is really warm. I heard that it's really unusual weather for the city.
