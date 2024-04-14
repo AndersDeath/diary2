@@ -49,3 +49,7 @@ The day was nice. I finished with some tasks for XU, and finished doing a bunch 
 # 13 April - Samstag - Berlin - 569 Tag der Einwanderung - Warm Sunny
 
 The spring in Berlin is really warm. I heard that it's really unusual weather for the city. So we were today in Amerika House in the city center. We looked at two exhibitions there. The first one was dedicated to some crazy woman that liked to shoot naked photos of herself and another one about rapist and rape as a process. the second exhibition was more interesting for me. Also we baked croissants this morning that were much tastier that in local cafes. I can say that bakeries and cafes here are not so cool. The quality of them in Saint-Petersburg is much better. It's interesting. Also Yesterday I started writing builder v3. It will be the final version on builder. I will plan it better than before. Two proofs of concepts that I did are vey confusing from code perspective I cannot understand anything I did =). Tomorrow we are going to rent a car in the airport and visit Dresden - I believe this trip will be really cool. I miss driving car very much and will be happy to do it again.
+
+# 14 April - Sontag - Berlin - Lübenau - Drezden - 570 Tag der Einwanderung - Warm Sunny
+
+Today we rent a car and were in Lübenau and Drezden. It was interesting and cool trip here. I enjoyed it very much.
