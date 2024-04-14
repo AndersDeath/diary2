@@ -52,4 +52,4 @@ The spring in Berlin is really warm. I heard that it's really unusual weather fo
 
 # 14 April - Sontag - Berlin - Lübenau - Drezden - 570 Tag der Einwanderung - Warm Sunny
 
-Today we rent a car and were in Lübenau and Drezden. It was interesting and cool trip here. I enjoyed it very much.
+Today we rent a car and were in Lübenau and Drezden. It was interesting and cool trip here. I enjoyed it very much. Lübenau is a small town in 40 minutes drive from Berlin.
