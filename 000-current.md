@@ -56,4 +56,4 @@ Today we rent a car and were in Lübenau and Drezden. It was interesting and coo
 
 # 15 April - Montag - Berlin - 571 Tag der Einwanderung - Warm Sunny
 
-Today I visited proctologist. I had a one hour trip to another corner of Berlin and did everything.
+Today I visited proctologist. I had a one hour trip to another corner of Berlin and did everything. The procedure went very smooth and I didn't have problems.
