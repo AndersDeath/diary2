@@ -60,4 +60,4 @@ Today I visited proctologist. I had a one hour trip to another corner of Berlin 
 
 # 16 April - Dienstag - Berlin - 572 Tag der Einwanderung - Cold Cloudy
 
-Today I was in the home doctor office.
+Today I was in the home doctor office. I goy papers that I need to surgery and 
