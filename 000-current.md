@@ -60,4 +60,4 @@ Today I visited proctologist. I had a one hour trip to another corner of Berlin 
 
 # 16 April - Dienstag - Berlin - 572 Tag der Einwanderung - Cold Cloudy
 
-Today I was in the home doctor office. I got papers that I need to surgery and some medications for the problem on my heel. Besides that I will get a checkup in may that is great. Also I had an interview today that I had to do from cafe that I didn't like. I like talking to people from home or office.
+Today I was in the home doctor office. I got papers that I need to surgery and some medications for the problem on my heel. Besides that I will get a checkup in may that is great. Also I had an interview today that I had to do from cafe that I didn't like. I like talking to people from home or office. Also I was coding for a whole day
