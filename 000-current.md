@@ -58,4 +58,4 @@ Today we rent a car and were in Lübenau and Drezden. It was interesting and coo
 
 Today I visited proctologist. I had a one hour trip to another corner of Berlin and did everything. The procedure went very smooth and I didn't have problems. It is a really high chance that I will go to surgery in two weeks. IT's not decided yet but possible. The clinic was nice and cozy. The building looked like I am in some American movie. IT was very interesting for me. The diagnosis is thrombosis. The rest of the day nice and I finished all things that I didn't have time to do yesterday. Also I am going to my family doctor tomorrow. I need to get some paper for the future surgery. Also I got a message from my Dentist that is in Yerevan. She told me that one of surgeries I had last summer was successful. I am happy about it. The  german class was cancelled today because the teacher was in consulate in another country. He is on Balkans now, probably in Serbia of Montenegro. I believe he is resolving his immigration problems.
 
-# 16 April - Montag - Berlin - 571 Tag der Einwanderung - Warm Sunny
+# 16 April - Dienstag - Berlin - 571 Tag der Einwanderung - Cold Cloudy
