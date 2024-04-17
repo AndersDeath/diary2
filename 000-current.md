@@ -64,4 +64,4 @@ Today I was in the home doctor office. I got papers that I need to surgery and s
 
 # 17 April - Mittwoch - Berlin - 573 Tag der Einwanderung - Cold Cloudy
 
-The day was very very good. I tiered as fuck. We finally visited rhethoric club that was very very good.
+The day was very very good. I tiered as fuck. We finally visited rhethoric club that was very very good. I enjoyed watching how people can speak publically. It's really cool.
