@@ -68,3 +68,4 @@ The day was very very good. I tiered as fuck. We finally visited rhethoric club 
 
 # 18 April - Donnerstag - Berlin - 574 Tag der Einwanderung - Cold Cloudy
 
+I was coding for a whole day and to be hones lost the track what I needed to do.
