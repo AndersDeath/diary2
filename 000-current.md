@@ -68,4 +68,4 @@ The day was very very good. I tiered as fuck. We finally visited rhethoric club 
 
 # 18 April - Donnerstag - Berlin - 574 Tag der Einwanderung - Cold Cloudy
 
-I was coding for a whole day and to be hones lost the track what I needed to do. I am really tired and want just to lie and die. I had a german class today it was really hard and heavy I feel so stupid and so. Learning is so hard process for me that I just feel myself as a some stupid bag of shit. In the evening just after lesson I was on Berlin React meetup where enjoyed two presentations and then came back home. I still cannot get why people here drink been on professional meetups.
+I was coding for a whole day and to be hones lost the track what I needed to do. I am really tired and want just to lie and die. I had a german class today it was really hard and heavy I feel so stupid and so. Learning is so hard process for me that I just feel myself as a some stupid bag of shit. In the evening just after lesson I was on Berlin React meetup where enjoyed two presentations and then came back home. I still cannot get why people here drink been on professional meetups. I cancelled alcohol finally this year. 
