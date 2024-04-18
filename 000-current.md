@@ -68,4 +68,4 @@ The day was very very good. I tiered as fuck. We finally visited rhethoric club 
 
 # 18 April - Donnerstag - Berlin - 574 Tag der Einwanderung - Cold Cloudy
 
-I was coding for a whole day and to be hones lost the track what I needed to do. I am really tired and want just to lie and die. I had a german class today it was really hard and heavy I feel so stupid and so
+I was coding for a whole day and to be hones lost the track what I needed to do. I am really tired and want just to lie and die. I had a german class today it was really hard and heavy I feel so stupid and so.
