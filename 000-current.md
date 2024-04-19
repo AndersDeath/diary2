@@ -72,4 +72,4 @@ I was coding for a whole day and to be hones lost the track what I needed to do.
 
 # 19 April - Freitag - Berlin - 575 Tag der Einwanderung - Cold Cloudy
 
-So, Finally I am about to be on vacation. It was hard day where I really tiered. In general nothing important happened. I was coding for a whole day and fighting with procrastination. I don't know why but I am already tiered of XU company. I don't see my future there. It's a normal thing from one side and a disaster from another one.
+So, Finally I am about to be on vacation. It was hard day where I really tiered. In general nothing important happened. I was coding for a whole day and fighting with procrastination. I don't know why but I am already tiered of XU company. I don't see my future there. It's a normal thing from one side and a disaster from another one. I would like to change the job just because of it.
