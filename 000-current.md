@@ -75,3 +75,5 @@ I was coding for a whole day and to be hones lost the track what I needed to do.
 So, Finally I am about to be on vacation. It was hard day where I really tiered. In general nothing important happened. I was coding for a whole day and fighting with procrastination. I don't know why but I am already tiered of XU company. I don't see my future there. It's a normal thing from one side and a disaster from another one. I would like to change the job just because of it. It's not my place I feel it. In general it's the first time in my life when I feel it. It's such an interesting experience. It's something new. Yes.
 
 # 20 April - Samstag - Berlin - Venice - 576 Tag der Einwanderung - Cold Cloudy
+
+For some reasons I was really nervouse today.
