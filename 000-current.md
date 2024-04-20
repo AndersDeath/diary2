@@ -76,4 +76,4 @@ So, Finally I am about to be on vacation. It was hard day where I really tiered.
 
 # 20 April - Samstag - Berlin - Venice - 576 Tag der Einwanderung - Cold Cloudy
 
-For some reasons I was really nervous today. The main things and the event of the day was our flight to Venice. Dream comes true. So, I nocied that when I have a flight I become a little bit aggressive. I belive that it's some kind of inner 
+For some reasons I was really nervous today. The main things and the event of the day was our flight to Venice. Dream comes true. So, I nocied that when I have a flight I become a little bit aggressive. I believe that it's some kind of inner problem.
