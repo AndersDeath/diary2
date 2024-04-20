@@ -76,4 +76,4 @@ So, Finally I am about to be on vacation. It was hard day where I really tiered.
 
 # 20 April - Samstag - Berlin - Venice - 576 Tag der Einwanderung - Cold Cloudy
 
-For some reasons I was really nervouse today.
+For some reasons I was really nervous today.
