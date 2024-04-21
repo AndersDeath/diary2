@@ -80,5 +80,5 @@ For some reasons I was really nervous today. The main things and the event of th
 
 # 21 April - Sonntag  - Venice - 577 Tag der Einwanderung - Cold Cloudy
 
-Today we went to Venice biennale. It's the first such events in my life. We visited a lot of different exhibitions of many countries.
+Today we went to Venice biennale. It's the first such events in my life. We visited a lot of different exhibitions of many countries. The topic was a how to save your culture in modern world.
 
