@@ -84,3 +84,5 @@ Today we went to Venice biennale. It's the first such events in my life. We visi
 
 # 22 April - Montag  - Venice - 578 Tag der Einwanderung - Cold Rainy
 
+The weather is bad today.
+
