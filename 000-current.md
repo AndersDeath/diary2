@@ -84,4 +84,4 @@ Today we went to Venice biennale. It's the first such events in my life. We visi
 
 # 22 April - Montag  - Venice - 578 Tag der Einwanderung - Cold Rainy
 
-The weather is bad today. it's very rainy and windy I can say. It's a little bit unfortunate but it's what it is. We were sitting for a half of the day at home because of it and because I had an interview and german lesson. I just didn't have time to do everything. Also I was reading, coding, learning german for a whole day. I wasn't disappointed.
+The weather is bad today. it's very rainy and windy I can say. It's a little bit unfortunate but it's what it is. We were sitting for a half of the day at home because of it and because I had an interview and german lesson. I just didn't have time to do everything. Also I was reading, coding, learning german for a whole day. I wasn't disappointed. Tomorrow is my birthday.
