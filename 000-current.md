@@ -81,3 +81,5 @@ For some reasons I was really nervous today. The main things and the event of th
 # 21 April - Sonntag  - Venice - 577 Tag der Einwanderung - Cold Cloudy
 
 Today we went to Venice biennale. It's the first such events in my life. We visited a lot of different exhibitions of many countries. The topic was a how to save your culture in modern world. I liked it and saw a lot of cools pieces of art. It's really cool. For a whole day we were walking from place to place and my legs are just in pain. It wasn't easy but enjoyable. The weather was also nice. Unfortunately the forecast is bad and only today the weather was nice. At the same time the city is so perfect that it's absolutely not a problem for me. I took tons of photos that I don't think I publish ever. However they will be my memories for the future like pictures I took in Saint-Petersburg became a history of my life.
+
+# 22 April - Montag  - Venice - 578 Tag der Einwanderung - Cold Cloudy
