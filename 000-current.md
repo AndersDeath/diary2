@@ -92,4 +92,4 @@ The weather is better today but still a little bit rainy and cold. I am turned 3
 
 # 24 April - Mittwoch  - Venice - Berlin - 580 Tag der Einwanderung - Cold Rainy
 
-It was really hard to carry our baggage in Venice this morning.
+It was really hard to carry our baggage in Venice this morning. The city has a lot of bridge that we needed to cross with heavy weight.
