@@ -94,5 +94,4 @@ The weather is better today but still a little bit rainy and cold. I am turned 3
 
 It was really hard to carry our baggage in Venice this morning. The city has a lot of bridge that we needed to cross with heavy weight. The worst thing was that I cannot lift heavy things right now and Ksusha had to do it. As a top on the cake, it was heavy raining and we were extremely wet, so to speak. At the same time the flight was smooth and convenient. Everything was nice. The transportation from airport to our home was great and fast. I slept a little bit and did some programming. Also we received electronic auswise letters. it means that our documents are ready. Tomorrow I will go to their office and ask for plastic cards. Maybe they are also ready. After that I need to find a place where I can copy an information from dvd to my flash stick. My dentist asked for an old computer tomography, she wants to compare the current situation to past situation. I hope to find the place. Additionally I will have a german class and another interview.
 
-
-# 26 April - Mittwoch  - Venice - Berlin - 580 Tag der Einwanderung - Cold Rainy
+# 25 April - Mittwoch  - Venice - Berlin - 580 Tag der Einwanderung - Cold Rainy
