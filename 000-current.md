@@ -96,4 +96,4 @@ It was really hard to carry our baggage in Venice this morning. The city has a l
 
 # 25 April - Donnerstag  - Berlin - 581 Tag der Einwanderung - Cold Cloudy
 
-So, I finally got plastic blaue card. It happened and I am really grad so say that I am fully packed right now.
+So, I finally got plastic blaue card. It happened and I am really grad so say that I am fully packed right now. It's sooooo cool.
