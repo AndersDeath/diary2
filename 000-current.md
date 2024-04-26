@@ -100,3 +100,4 @@ So, I finally got plastic blaue card. It happened and I am really grad so say th
 
 # 26 April - Freitag  - Berlin - 582 Tag der Einwanderung - Warm Cloudy
 
+The main thing that happened today was that tax office moved me from 3 tax class to 4th one and recalculated all paid taxes from the begining of the year.
