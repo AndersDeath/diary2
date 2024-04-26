@@ -100,4 +100,4 @@ So, I finally got plastic blaue card. It happened and I am really grad so say th
 
 # 26 April - Freitag  - Berlin - 582 Tag der Einwanderung - Warm Cloudy
 
-The main thing that happened today was that tax office moved me from 3 tax class to 4th one and recalculated all paid taxes from the begining of the year. I recieved a salary in two times less than I expected.
+The main thing that happened today was that tax office moved me from 3 tax class to 4th one and recalculated all paid taxes from the begining of the year. I recieved a salary in two times less than I expected. So as I understood when we started the process of obtaining of residency we should visit finanzamt and tell them that I am still on 3rd and Ksusha on 5th class.
