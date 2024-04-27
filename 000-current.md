@@ -104,4 +104,4 @@ The main thing that happened today was that tax office moved me from 3 tax class
 
 # 27 April - Samstag  - Berlin - 583 Tag der Einwanderung - Warm Sunny
 
-Today we were walking for a whole day. It was nice. Firstly we visited salon where Ksusha made brows then we drove at a bus to a market and looked at it. After that we visited Crematory that is beautiful architecture. After that we came back home and did some deals there. In general the day was nice and I cannot recall anything significant. Unfortunately tomorrow is the latest day of my vacation that is sad. 
+Today we were walking for a whole day. It was nice. Firstly we visited salon where Ksusha made brows then we drove at a bus to a market and looked at it. After that we visited Crematory that is beautiful architecture. After that we came back home and did some deals there. In general the day was nice and I cannot recall anything significant. Unfortunately tomorrow is the latest day of my vacation that is sad. I don't want to go back to work.
