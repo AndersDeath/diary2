@@ -104,4 +104,4 @@ The main thing that happened today was that tax office moved me from 3 tax class
 
 # 27 April - Samstag  - Berlin - 583 Tag der Einwanderung - Warm Sunny
 
-Today we were t
+Today we were walking for a whole day.
