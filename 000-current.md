@@ -108,4 +108,4 @@ Today we were walking for a whole day. It was nice. Firstly we visited salon whe
 
 # 28 April - Sontag  - Berlin - 584 Tag der Einwanderung - Hot Sunny
 
-The day was nice and really hot. I was on eastside gallery again.
+The day was nice and really hot. I was on eastside gallery again. I like this place.
