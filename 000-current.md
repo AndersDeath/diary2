@@ -108,4 +108,4 @@ Today we were walking for a whole day. It was nice. Firstly we visited salon whe
 
 # 28 April - Sontag  - Berlin - 584 Tag der Einwanderung - Hot Sunny
 
-The day was nice and really hot. I was on eastside gallery again. I like this place. ALso Mercedes arena is Uber one. It's interesting. I analyzed agreement that Visiable offered to me. I prepared a lot of questions that are important to be answered. Also I did a lot of things. I am good. In the evening we went to the part and had a good time. Everything is nice. I am still very nervous because of everything. It's a trauma to have that shit from tax office. In general the day was nice.
+The day was nice and really hot. I was on eastside gallery again. I like this place. ALso Mercedes arena is Uber one. It's interesting. I analyzed agreement that Visiable offered to me. I prepared a lot of questions that are important to be answered. Also I did a lot of things. I am good. In the evening we went to the part and had a good time. Everything is nice. I am still very nervous because of everything. It's a trauma to have that shit from tax office. In general the day was nice. Tomorrow I am going to doctor.
