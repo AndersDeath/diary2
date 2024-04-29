@@ -112,4 +112,4 @@ The day was nice and really hot. I was on eastside gallery again. I like this pl
 
 # 29 April - Montag  - Berlin - 585 Tag der Einwanderung - Hot Sunny
 
-Today I was in the hospital and did some preparations for fridays surgery. yes that's right, the operation will be in the end of the week.
+Today I was in the hospital and did some preparations for fridays surgery. yes that's right, the operation will be in the end of the week. Some misunderstanding happened.
