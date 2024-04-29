@@ -111,3 +111,5 @@ Today we were walking for a whole day. It was nice. Firstly we visited salon whe
 The day was nice and really hot. I was on eastside gallery again. I like this place. ALso Mercedes arena is Uber one. It's interesting. I analyzed agreement that Visiable offered to me. I prepared a lot of questions that are important to be answered. Also I did a lot of things. I am good. In the evening we went to the part and had a good time. Everything is nice. I am still very nervous because of everything. It's a trauma to have that shit from tax office. In general the day was nice. Tomorrow I am going to doctor. I hope to have a surgery tomorrow. I think it will be cool and successful.
 
 # 29 April - Montag  - Berlin - 585 Tag der Einwanderung - Hot Sunny
+
+Today I was in the hospital and did some preparations for fridays surgery.
