@@ -116,4 +116,4 @@ Today I was in the hospital and did some preparations for fridays surgery. yes t
 
 # 30 April - Dienstag  - Berlin - 586 Tag der Einwanderung - Hot Sunny
 
-So, my months has been finished. In the morning I was in Finanzamt and gave them my statement about changing tax class. The bad news is that it will be almost impossible to get that money back. It's really sad. I never fucked up so much.
+So, my months has been finished. In the morning I was in Finanzamt and gave them my statement about changing tax class. The bad news is that it will be almost impossible to get that money back. It's really sad. I never fucked up so much. After that I had a just usual working day.
