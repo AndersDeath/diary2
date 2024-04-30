@@ -116,4 +116,4 @@ Today I was in the hospital and did some preparations for fridays surgery. yes t
 
 # 30 April - Dienstag  - Berlin - 586 Tag der Einwanderung - Hot Sunny
 
-So, my months has been end.
+So, my months has been finished.
