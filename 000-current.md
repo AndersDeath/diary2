@@ -115,3 +115,5 @@ The day was nice and really hot. I was on eastside gallery again. I like this pl
 Today I was in the hospital and did some preparations for fridays surgery. yes that's right, the operation will be in the end of the week. Some misunderstanding happened. Anyway It's cool that S85 train carry me without transport switching and it was great. After that I was coding and did a lot of important things. I aligned with my team in XU and also did some coding for them. The another version of HT was released today and this is nice. I also printed a statement for finanzamt that I am going to visit tomorrow morning. The summer weather came back and it's also cool. In general the day was good and I am happy about it.
 
 # 30 April - Dienstag  - Berlin - 586 Tag der Einwanderung - Hot Sunny
+
+So, my months has been end.
