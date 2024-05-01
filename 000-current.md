@@ -120,4 +120,4 @@ So, my months has been finished. In the morning I was in Finanzamt and gave them
 
 # 01 May - Mittwoch  - Berlin - 587 Tag der Einwanderung - Hot Sunny
 
-Today was a holiday that I really enjoyed. I did a lot of things during the day including german lesson, programming, some other projects. In general I dedicated the whole day to myself. Tomorrow morning I am going to a doctor and then to the office. I was not there for a while, so I would like to be there, after that I will go a meetup.
+Today was a holiday that I really enjoyed. I did a lot of things during the day including german lesson, programming, some other projects. In general I dedicated the whole day to myself. Tomorrow morning I am going to a doctor and then to the office. I was not there for a while, so I would like to be there, after that I will go a meetup. But it's also depends on my abilities.
