@@ -120,4 +120,4 @@ So, my months has been finished. In the morning I was in Finanzamt and gave them
 
 # 01 May - Mittwoch  - Berlin - 587 Tag der Einwanderung - Hot Sunny
 
-Today was a holiday that I really enjoyed.
+Today was a holiday that I really enjoyed. I did a lot of things during the day including german lesson
