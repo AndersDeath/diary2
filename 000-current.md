@@ -243,3 +243,5 @@ I was on EMS training today. In the end of it I felt a little bit sick =) It was
 Finaly day with XU was nice. We spend nice time in the office I returned all equipment and in general everything wen smoothly. In my final retro we firstly just chatting about everything including AI and Paul forces to ChatGPT that were run on two phone to have a conversation. It's was really funny. The intersting moment also happened - Ludwig who is a HR intern was robbed. His working laptop, keys, some personal things were stolen. I am not happy about him. I hope that he has good insurance.
 
 # 01 June - Samstag - Berlin - 618 Tag der Einwanderung - Hot Sunny
+
+I did a maniqure today
