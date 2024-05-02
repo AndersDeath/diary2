@@ -124,4 +124,4 @@ Today was a holiday that I really enjoyed. I did a lot of things during the day 
 
 # 02 May - Donerstag  - Berlin - 588 Tag der Einwanderung - Hot Sunny
 
-Today I was in the doctor office and gave them my blood.
+Today I was in the doctor office and gave them my blood. It's the first step of my health checkup that I really want to do.
