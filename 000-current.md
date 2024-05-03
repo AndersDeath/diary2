@@ -128,4 +128,4 @@ Today I was in the doctor office and gave them my blood. It's the first step of 
 
 # 03 May - Freitag  - Berlin - 589 Tag der Einwanderung - Hot Sunny
 
-The surgery went smooth.
+The surgery went smooth. I went to the hospital early morning and 
