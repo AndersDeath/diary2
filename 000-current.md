@@ -128,4 +128,4 @@ Today I was in the doctor office and gave them my blood. It's the first step of 
 
 # 03 May - Freitag  - Berlin - 589 Tag der Einwanderung - Hot Sunny
 
-The surgery went smooth. I went to the hospital early morning and did all preparations they asked me to do. I did everything well and if you see this lines I am still alive.
+The surgery went smooth. I went to the hospital early morning and did all preparations they asked me to do. I did everything well and if you see this lines I am still alive. It's really cool.
