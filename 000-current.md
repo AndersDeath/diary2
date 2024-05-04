@@ -131,3 +131,5 @@ Today I was in the doctor office and gave them my blood. It's the first step of 
 The surgery went smooth. I went to the hospital early morning and did all preparations they asked me to do. I did everything well and if you see this lines I am still alive. It's really cool. Ksusha supported me and went to the hospital to pick me up. Without her I should be there for 24 hours. It's a very important part of healing process. Surely I feel pain and my mood is not so good, but I needed to do this. After that I need to focus on sport again, in other case the situation will repeat. I also got a call from Visable and we clarified several question I asked. The conversation was nice and went well. Everything was nice. Addionally DR SMILE didn't send me an email they promised. I am not surprised because they are really poorly organized. In general the day was nice.
 
 # 04 May - Samstag  - Berlin - 590 Tag der Einwanderung - Hot Sunny
+
+So, today I felt ok and we even went for a walk in the city.
