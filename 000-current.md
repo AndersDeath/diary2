@@ -132,4 +132,4 @@ The surgery went smooth. I went to the hospital early morning and did all prepar
 
 # 04 May - Samstag  - Berlin - 590 Tag der Einwanderung - Hot Sunny
 
-So, today I felt ok and we even went for a walk in the city. We visited nice greek cafe and then went to designer week. The exhibition was so bad that I could not imagine that so big world center like Berlin
+So, today I felt ok and we even went for a walk in the city. We visited nice greek cafe and then went to designer week. The exhibition was so bad that I could not imagine that so big world center like Berlin can have so badly done events.
