@@ -136,4 +136,4 @@ So, today I felt ok and we even went for a walk in the city. We visited nice gre
 
 # 05 May - Sonstag  - Berlin - 591 Tag der Einwanderung - Hot Sunny
 
-Today I did a short walk in the morning and we had a big cleaning. I hate such things especially that I have some continuances of the surgery.
+Today I did a short walk in the morning and we had a big cleaning. I hate such things especially that I have some continuances of the surgery. However I tried to do my best and clan everything well.
