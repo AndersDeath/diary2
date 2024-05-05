@@ -133,3 +133,5 @@ The surgery went smooth. I went to the hospital early morning and did all prepar
 # 04 May - Samstag  - Berlin - 590 Tag der Einwanderung - Hot Sunny
 
 So, today I felt ok and we even went for a walk in the city. We visited nice greek cafe and then went to designer week. The exhibition was so bad that I could not imagine that so big world center like Berlin can have so badly done events. The good side of it that I got two shoppers (bags) and ate some snacks for free. It was nice. In the evening I did nothing and had a rest. Unfortunately It's imposible to recover after surgery in one day. anyway, I don't feel bad and it's nice. Maybe the situation will change. I will see. Oh, the one big difference I wanted to say, here in Germany doctors tend to avoid medications if they are not necessary. It's a big difference from russian or armenian doctors. The russian medical school tend to prescribe medication in order to decrease the level of uncomfortableness.
+
+# 05 May - Samstag  - Berlin - 591 Tag der Einwanderung - Hot Sunny
