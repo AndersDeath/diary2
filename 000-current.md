@@ -136,4 +136,4 @@ So, today I felt ok and we even went for a walk in the city. We visited nice gre
 
 # 05 May - Sonstag  - Berlin - 591 Tag der Einwanderung - Hot Sunny
 
-Today I did a short walk in the morning and we had a big cleaning. I hate such things especially that I have some continuances of the surgery. However I tried to do my best and clan everything well. I believe I did a great job. Ksusha also did everything very very well. In general I was so tiered that I just had laid down to my bad and spent the rest of the day there. Also I wanted to menion that I
+Today I did a short walk in the morning and we had a big cleaning. I hate such things especially that I have some continuances of the surgery. However I tried to do my best and clan everything well. I believe I did a great job. Ksusha also did everything very very well. In general I was so tiered that I just had laid down to my bad and spent the rest of the day there. Also I wanted to menton that I started reading autobiography of George Washington last week.
