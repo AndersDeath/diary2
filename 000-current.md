@@ -139,3 +139,5 @@ So, today I felt ok and we even went for a walk in the city. We visited nice gre
 Today I did a short walk in the morning and we had a big cleaning. I hate such things especially that I have some continuances of the surgery. However I tried to do my best and clan everything well. I believe I did a great job. Ksusha also did everything very very well. In general I was so tiered that I just had laid down to my bad and spent the rest of the day there. Also I wanted to menton that I started reading autobiography of George Washington last week. It's so interesting to dive intro the so well shaped text every that it was translated to russian. Surely the words are different but the text structure is the same. Maybe in the future I need to do some analysis of the text. Right now I just enjoy the text and read it. It's cool, smart, and interesting.
 
 # 06 May - Montag  - Berlin - 592 Tag der Einwanderung - Hot Sunny
+
+This monday was calm and simple.
