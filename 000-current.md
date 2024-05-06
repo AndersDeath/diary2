@@ -140,4 +140,4 @@ Today I did a short walk in the morning and we had a big cleaning. I hate such t
 
 # 06 May - Montag  - Berlin - 592 Tag der Einwanderung - Hot Sunny
 
-This monday was calm and simple. Nothing really impressive happened today.
+This monday was calm and simple. Nothing really impressive happened today. I just spent some time on work and did other tasks.
