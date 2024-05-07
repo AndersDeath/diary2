@@ -144,4 +144,4 @@ This monday was calm and simple. Nothing really impressive happened today. I jus
 
 # 07 May - Dienstag  - Berlin - 593 Tag der Einwanderung - Hot Sunny
 
-A lot of things changed today. Firstly I was in my doctor office. He explained what I had in my blood test results.
+A lot of things changed today. Firstly I was in my doctor office. He explained what I had in my blood test results. Everything is fine in general.
