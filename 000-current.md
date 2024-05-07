@@ -144,4 +144,4 @@ This monday was calm and simple. Nothing really impressive happened today. I jus
 
 # 07 May - Dienstag  - Berlin - 593 Tag der Einwanderung - Hot Sunny
 
-A lot of things changed today. Firstly I was in my doctor office. He explained what I had in my blood test results. Everything is fine in general. Also he asked me to sit at home this week and don't do anything. I am happy about it because it is a legal opportunity for me to just have a rest.
+A lot of things changed today. Firstly I was in my doctor office. He explained what I had in my blood test results. Everything is fine in general. Also he asked me to sit at home this week and don't do anything. I am happy about it because it is a legal opportunity for me to just have a rest. Additionally I visited Dr SMILE office and one guy from the place 
