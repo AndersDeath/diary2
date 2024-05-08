@@ -148,4 +148,4 @@ A lot of things changed today. Firstly I was in my doctor office. He explained w
 
 # 08 May - Mittwoch  - Berlin - 594 Tag der Einwanderung - Hot Sunny
 
-The sum that I got from payout letter is so low that I can understand why they asked me to sign additional NDA. It's so crazy.
+The sum that I got from payout letter is so low that I can understand why they asked me to sign additional NDA. It's so crazy. DRSMILE feels really bad. it's crazy.
