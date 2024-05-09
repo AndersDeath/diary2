@@ -152,4 +152,4 @@ The sum that I got from payout letter is so low that I can understand why they a
 
 # 09 May - Donnerstag  - Berlin - 595 Tag der Einwanderung - Hot Sunny
 
-Today I just did nothing. It's a holiday in Berlin and we were chilling for a chole day. Additionally we cleaned the apartment that is very important and nice. I like to be in a cleaned place. To be hones I don't know what to add here. I finished a autobiography by Franklin. It was nice and I was impressed by the person and the how he impacted the world and the US in general.
+Today I just did nothing. It's a holiday in Berlin and we were chilling for a chole day. Additionally we cleaned the apartment that is very important and nice. I like to be in a cleaned place. To be hones I don't know what to add here. I finished a autobiography by Franklin. It was nice and I was impressed by the person and the how he impacted the world and the US in general. Besides that I did tons of German tasks and had a class.
