@@ -151,3 +151,5 @@ A lot of things changed today. Firstly I was in my doctor office. He explained w
 The sum that I got from payout letter is so low that I can understand why they asked me to sign additional NDA. It's so crazy. DRSMILE feels really bad. it's crazy. Anyway this about of money will be enough for me to fix my teeth finally. I am happy about it. In the evening I was on toastmasters meeting. It was cool and I enjoyed all activiites and speaches of that people. In the future when I join ot the place I can even add it to my CV. I will definetly do it. Also I signed a contract with Visable. I will be a part of the company. I need to say about it to XU in a week. Another page of my life has turned.
 
 # 09 May - Donnerstag  - Berlin - 595 Tag der Einwanderung - Hot Sunny
+
+Today I just did nothing.
