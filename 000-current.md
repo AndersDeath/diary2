@@ -156,4 +156,4 @@ Today I just did nothing. It's a holiday in Berlin and we were chilling for a ch
 
 # 10 May - Freitag  - Berlin - 596 Tag der Einwanderung - Hot Sunny
 
-We were thinking about visiting of Rugen island but cancelled the idea due to a bad weather there. It's sad but not so because I feel bad after surgery. Nothing happened. I don't understand why doctors didn't presribed antibiotics to me. My ass is in pain. I decided to start using one gel that helped me when I was surgered last time in Russia. However my condition is not so good.
+We were thinking about visiting of Rugen island but cancelled the idea due to a bad weather there. It's sad but not so because I feel bad after surgery. Nothing happened. I don't understand why doctors didn't presribed antibiotics to me. My ass is in pain. I decided to start using one gel that helped me when I was surgered last time in Russia. However my condition is not so good. It's crazy.
