@@ -160,4 +160,4 @@ We were thinking about visiting of Rugen island but cancelled the idea due to a 
 
 # 11 May - Samstag  - Berlin - 597 Tag der Einwanderung - Hot Sunny
 
-We finally visited two central libraried in under den linded area. Those places are so cool from architecture perspective and in general. My dream comes true. In the future I am going to visit the place again ang again for obtaining some silance get inspiration, concentrate on my writing things and so. This week is my last chilling one. I need to focus on my future role that will be started on 1st of june.
+We finally visited two central libraried in under den linded area. Those places are so cool from architecture perspective and in general. My dream comes true. In the future I am going to visit the place again ang again for obtaining some silance get inspiration, concentrate on my writing things and so. This week is my last chilling one. I need to focus on my future role that will be started on 1st of june. It's really important to be prepared.
