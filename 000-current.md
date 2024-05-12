@@ -164,4 +164,4 @@ We finally visited two central libraried in under den linded area. Those places 
 
 # 12 May - Sonstag  - Berlin - 598 Tag der Einwanderung - Hot Sunny
 
-Today I sit at home and do nice things.
+Today I sit at home and do nice things. I was finished with a lot of important stuff that I planned before and so on.
