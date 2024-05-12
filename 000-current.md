@@ -164,4 +164,4 @@ We finally visited two central libraried in under den linded area. Those places 
 
 # 12 May - Sonstag  - Berlin - 598 Tag der Einwanderung - Hot Sunny
 
-Today I sit at home and do nice things. I was finished with a lot of important stuff that I planned before and so on. German class, some programming, some writing gained my mood. I feel nice. The gel I started using for recovery is really helping me. I don't feel well but better than yesterday for example.
+Today I sit at home and do nice things. I was finished with a lot of important stuff that I planned before and so on. German class, some programming, some writing gained my mood. I feel nice. The gel I started using for recovery is really helping me. I don't feel well but better than yesterday for example. The recovery process is so slow that I don't know what to think. It's crazy.
