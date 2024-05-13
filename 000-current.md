@@ -168,4 +168,4 @@ Today I sit at home and do nice things. I was finished with a lot of important s
 
 # 13 May - Montag - Berlin - 599 Tag der Einwanderung - Hot Sunny
 
-The weather is really nice. My recovery after surgery is still in progress and goes quite smoothly. I still in paid but I will be ok in a couple of week. At least I hope so.
+The weather is really nice. My recovery after surgery is still in progress and goes quite smoothly. I still in paid but I will be ok in a couple of week. At least I hope so. The money situation is not so good.
