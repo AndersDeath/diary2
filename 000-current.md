@@ -167,3 +167,5 @@ We finally visited two central libraried in under den linded area. Those places 
 Today I sit at home and do nice things. I was finished with a lot of important stuff that I planned before and so on. German class, some programming, some writing gained my mood. I feel nice. The gel I started using for recovery is really helping me. I don't feel well but better than yesterday for example. The recovery process is so slow that I don't know what to think. It's crazy. Howevery I am trying to be calm and not overrating my confition. I am trying to behaive well and correctly in such nerviouse situation. Additonally I lost a piece of tooth. It's sad because I will see a dentist in August in a best case. Until that moment I need to save the tooth somehow.
 
 # 13 May - Montag - Berlin - 599 Tag der Einwanderung - Hot Sunny
+
+The weather is really nice.
