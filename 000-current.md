@@ -172,4 +172,4 @@ The weather is really nice. My recovery after surgery is still in progress and g
 
 # 14 May - Dienstag - Berlin - 600 Tag der Einwanderung - Hot Sunny
 
-I did it and talked to Paul about my quitting. He was not so happy about it but got it with understanding. Now I am in two weeks transition period when I aleady quit from my curreny job but don't join to new one. It's always painful thing for me. 
+I did it and talked to Paul about my quitting. He was not so happy about it but got it with understanding. Now I am in two weeks transition period when I aleady quit from my curreny job but don't join to new one. It's always painful thing for me. Due to money problem I canont join to Toasmasters this month.
