@@ -172,4 +172,4 @@ The weather is really nice. My recovery after surgery is still in progress and g
 
 # 14 May - Dienstag - Berlin - 600 Tag der Einwanderung - Hot Sunny
 
-I did it and talked to Paul about my quitting.
+I did it and talked to Paul about my quitting. He was not so happy about it but got it with understanding.
