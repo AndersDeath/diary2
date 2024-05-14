@@ -169,3 +169,5 @@ Today I sit at home and do nice things. I was finished with a lot of important s
 # 13 May - Montag - Berlin - 599 Tag der Einwanderung - Hot Sunny
 
 The weather is really nice. My recovery after surgery is still in progress and goes quite smoothly. I still in paid but I will be ok in a couple of week. At least I hope so. The money situation is not so good. I don't have a lot of them in my pocket and this is really sad and bad in general. I hope to recieve additoinal money from DR SMILE that will save me very much. I need to find a way how to send them to Germany as well. In general the day was nice. I am a little bit nervause about quitting of XU group. It's impossible to solve. It's just a part of my life. I need to do so steps.
+
+# 14 May - Dienstag - Berlin - 600 Tag der Einwanderung - Hot Sunny
