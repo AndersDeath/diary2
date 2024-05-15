@@ -176,4 +176,4 @@ I did it and talked to Paul about my quitting. He was not so happy about it but 
 
 # 15 May - Mittowoch - Berlin - 601 Tag der Einwanderung - Hot Sunny
 
-This day was nice. Yesteday I shared to Paul that I am going to leave the company. I am also have been waiting for a contract from Visable side. I hope to recieve it this week. It would be perfect. The weather is beautiful. It's really summer. However my 
+This day was nice. Yesteday I shared to Paul that I am going to leave the company. I am also have been waiting for a contract from Visable side. I hope to recieve it this week. It would be perfect. The weather is beautiful. It's really summer. However my motivation is under the floor.
