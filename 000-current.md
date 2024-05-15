@@ -176,3 +176,4 @@ I did it and talked to Paul about my quitting. He was not so happy about it but 
 
 # 15 May - Mittowoch - Berlin - 601 Tag der Einwanderung - Hot Sunny
 
+This day was nice. Yesteday I shared to Paul that I am going to leave the company. I am also
