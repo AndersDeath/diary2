@@ -180,3 +180,4 @@ This day was nice. Yesteday I shared to Paul that I am going to leave the compan
 
 # 16 May - Donnerstag - Berlin - 602 Tag der Einwanderung - Hot Sunny
 
+Today I was on meetup in Thoughswork.
