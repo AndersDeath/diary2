@@ -184,4 +184,4 @@ Today I was on meetup in Thoughswork. They prepare TechRadar report where they a
 
 # 17 May - Freitag - Berlin - 603 Tag der Einwanderung - Hot Sunny
 
-I was in the office today and gave written statement to an administrator. Everything went smoothly. I forgot to write down yesterday that I feel much better now. It's so cool. I am so tiered of the situation with my ass. The treatment process is very long right now that is very sad. The gel that I bought in Russia helps me a lot. In general the day was nice.
+I was in the office today and gave written statement to an administrator. Everything went smoothly. I forgot to write down yesterday that I feel much better now. It's so cool. I am so tiered of the situation with my ass. The treatment process is very long right now that is very sad. The gel that I bought in Russia helps me a lot. In general the day was nice. the weather is really hot.
