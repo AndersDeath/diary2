@@ -183,3 +183,5 @@ This day was nice. Yesteday I shared to Paul that I am going to leave the compan
 Today I was on meetup in Thoughswork. They prepare TechRadar report where they aggregate information of trend in new technologoes. The bunch of experts select products, technologies, languager, etc and assess them. It was nice and interesting. Additionally I had a german lesson that I enjoyed very much. Besides that I recieved a contract from Visable and prepared a statement about leaving to XU. Everything goes nice and Visable even didn't do a mistake in salary point. It's nice. In general the day was nice. I enjoyed it very much.
 
 # 17 May - Freitag - Berlin - 603 Tag der Einwanderung - Hot Sunny
+
+I was in the office today and gave written statement to an administrator.
