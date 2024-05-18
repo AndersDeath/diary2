@@ -188,4 +188,4 @@ I was in the office today and gave written statement to an administrator. Everyt
 
 # 18 May - Samstag - Berlin - 604 Tag der Einwanderung - Hot Sunny
 
-The day wasn't so differenct from all others I had.
+The day wasn't so differenct from all others I had. It was a cheat meal day that I usually really like.
