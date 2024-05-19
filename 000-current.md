@@ -192,4 +192,4 @@ The day wasn't so differenct from all others I had. It was a cheat meal day that
 
 # 19 May - Sontag - Berlin - 605 Tag der Einwanderung - Hot Sunny
 
-The weather is again really cool. However we had to spend a lot of time at home because of list of things to do. Ksusha was working on her things I was reading and doing builder3 and managerial things. The day was busy. Tomorrow is another holiday that makes me hapy and so joyful. I am really tiered and would be happy to just refresh myself.
+The weather is again really cool. However we had to spend a lot of time at home because of list of things to do. Ksusha was working on her things I was reading and doing builder3 and managerial things. The day was busy. Tomorrow is another holiday that makes me hapy and so joyful. I am really tiered and would be happy to just refresh myself. Surely we were walking across the district but in general nothing else.
