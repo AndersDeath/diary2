@@ -191,3 +191,5 @@ I was in the office today and gave written statement to an administrator. Everyt
 The day wasn't so differenct from all others I had. It was a cheat meal day that I usually really like. We were on a lake today and were walking there. I still in shock that Berlin is so green city. It's surely a big metropolice in the central Europe but the weather is extremely cool and all other things about climate are also nice. I was working on builder3 today a lot wich is not so new thing but very important. In two week I will be on aother job that is makes me really nervouse.
 
 # 19 May - Sontag - Berlin - 605 Tag der Einwanderung - Hot Sunny
+
+The weather is again really cool.
