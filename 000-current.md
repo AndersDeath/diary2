@@ -196,4 +196,4 @@ The weather is again really cool. However we had to spend a lot of time at home 
 
 # 20 May - Montag - Berlin - 606 Tag der Einwanderung - Hot Sunny
 
-I recieved really horrible news today. One of my close fiends Паша Пащеня passed away. He suffered from diabetis and had other health issues. Let me be frank, he was an alcoholic and his death is the end of his habits.
+I recieved really horrible news today. One of my close fiends Паша Пащеня passed away. He suffered from diabetis and had other health issues. Let me be frank, he was an alcoholic and his death is the end of his habits. It was so bad piece of news that I was crying first time for many months.
