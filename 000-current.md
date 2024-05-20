@@ -195,3 +195,5 @@ The day wasn't so differenct from all others I had. It was a cheat meal day that
 The weather is again really cool. However we had to spend a lot of time at home because of list of things to do. Ksusha was working on her things I was reading and doing builder3 and managerial things. The day was busy. Tomorrow is another holiday that makes me hapy and so joyful. I am really tiered and would be happy to just refresh myself. Surely we were walking across the district but in general nothing else.
 
 # 20 May - Montag - Berlin - 606 Tag der Einwanderung - Hot Sunny
+
+I recieved really horrible news today.
