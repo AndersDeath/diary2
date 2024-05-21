@@ -200,4 +200,4 @@ I recieved really horrible news today. One of my close fiends Паша Паще�
 
 # 21 May - Dienstag - Berlin - 607 Tag der Einwanderung - Hot Sunny
 
-Today 
+Today I texted to my ex friend that was really close buddy, almost brother - Vadim Erokhov.
