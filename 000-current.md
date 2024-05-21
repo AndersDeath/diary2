@@ -200,4 +200,4 @@ I recieved really horrible news today. One of my close fiends Паша Паще�
 
 # 21 May - Dienstag - Berlin - 607 Tag der Einwanderung - Hot Sunny
 
-Today I texted to my ex friend that was really close buddy, almost brother - Vadim Erokhov. I delivered a piece of news about Pasha. Besides that I was in Visable office today. I needed to bring a signed contract. So I did it. Additionally I was in the XU office and did some other things. The guy that supposed to be from Morocco is actually from Saudi Arabia.
+Today I texted to my ex friend that was really close buddy, almost brother - Vadim Erokhov. I delivered a piece of news about Pasha. Besides that I was in Visable office today. I needed to bring a signed contract. So I did it. Additionally I was in the XU office and did some other things. The guy that supposed to be from Morocco is actually from Saudi Arabia. I could not expect this.
