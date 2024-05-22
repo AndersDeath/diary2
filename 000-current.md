@@ -204,4 +204,4 @@ Today I texted to my ex friend that was really close buddy, almost brother - Vad
 
 # 22 May - Mitwoch - Berlin - 608 Tag der Einwanderung - Hot Sunny
 
-I found an information about Pashas burials.
+I found an information about Pashas burials. I texted to his mother.
