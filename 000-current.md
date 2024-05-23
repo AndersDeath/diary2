@@ -208,4 +208,4 @@ I found an information about Pashas burials. One of his colleegs sent me his mot
 
 # 23 May - Donnerstag - Berlin - 609 Tag der Einwanderung - Hot Sunny
 
-Pasha was buried.
+Pasha was buried. To be preiece his family burned him.
