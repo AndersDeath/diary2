@@ -207,3 +207,5 @@ Today I texted to my ex friend that was really close buddy, almost brother - Vad
 I found an information about Pashas burials. One of his colleegs sent me his mother's number and I just texted her several good words. She informed me about everything and I sent the information to my frieds. They we go to the ceremony tomorrow. It's so sad that I cannot go and say good buy to Pavel. It's sad. Also I decided pass today's toastmasters meeting because I just wasn't in a mood for it.
 
 # 23 May - Donnerstag - Berlin - 609 Tag der Einwanderung - Hot Sunny
+
+Pasha was buried.
