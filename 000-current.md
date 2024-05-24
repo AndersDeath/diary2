@@ -209,3 +209,5 @@ I found an information about Pashas burials. One of his colleegs sent me his mot
 # 23 May - Donnerstag - Berlin - 609 Tag der Einwanderung - Hot Sunny
 
 Pasha was buried. To be preiece his family burned him. It's ok I believe. The all day I dedicated to a work and didn't do anything specific. I was doing german, builder3, and prepared all information that I should share to XU colleeges. It's importand stuff. I am good. Additoinally I feel so bad because I am almost out of money. The situation with tax office almost destroyed me. It was so bad. I hope that I will return that money back next year.
+
+# 24 May - Donnerstag - Berlin - 609 Tag der Einwanderung - Hot Sunny
