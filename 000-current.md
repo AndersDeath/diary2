@@ -212,4 +212,4 @@ Pasha was buried. To be preiece his family burned him. It's ok I believe. The al
 
 # 24 May - Freitag - Berlin - 610 Tag der Einwanderung - Hot Sunny
 
-I spent an hour in a queue to doctor. I needed to do ultrasonic diagnostics that showed that I don't have any problems with health.
+I spent an hour in a queue to doctor. I needed to do ultrasonic diagnostics that showed that I don't have any problems with health. I am happy about it.
