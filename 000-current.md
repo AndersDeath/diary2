@@ -216,4 +216,4 @@ I spent an hour in a queue to doctor. I needed to do ultrasonic diagnostics that
 
 # 25 May - Samstag - Berlin - 611 Tag der Einwanderung - Hot Sunny
 
-We were in Tiergarden today.
+We were in Tiergarden today. It's so cool there today. I enjoyed our walk
