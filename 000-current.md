@@ -220,4 +220,4 @@ We were in Tiergarden today. It's so cool there today. I enjoyed our walk. It wa
 
 # 26 May - Samstag - Berlin - 612 Tag der Einwanderung - Hot Sunny
 
-I prepared profiles of all my future peers. It's really nice. I already started preparations to my new job. It's important .
+I prepared profiles of all my future peers. It's really nice. I already started preparations to my new job. It's important.
