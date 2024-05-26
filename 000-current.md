@@ -217,3 +217,5 @@ I spent an hour in a queue to doctor. I needed to do ultrasonic diagnostics that
 # 25 May - Samstag - Berlin - 611 Tag der Einwanderung - Hot Sunny
 
 We were in Tiergarden today. It's so cool there today. I enjoyed our walk. It was really nice and refreshing. I was thinking about many things today. in general I am in a good track in terms of goals. I have not sterted working for Visable yet but already planning the future. I will be not surprices if in 5 years I will be in the US. Will see. Besies that I did nothing today. It was just calm and nice day. Oh,! I sceduled a trial training next thirsday.
+
+# 26 May - Samstag - Berlin - 611 Tag der Einwanderung - Hot Sunny
