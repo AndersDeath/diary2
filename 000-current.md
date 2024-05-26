@@ -220,4 +220,4 @@ We were in Tiergarden today. It's so cool there today. I enjoyed our walk. It wa
 
 # 26 May - Samstag - Berlin - 612 Tag der Einwanderung - Hot Sunny
 
-I prepared profiles of all my future peers. It's really nice. I already started preparations to my new job. It's important. Also we were walking today. I try to dedicate more time to Ksusha because she feels lonely here in Berlin. It's sad but true. Besides that I was working on Builder3 that is very important project. I cannot postpone it or cancel. I am about to finish full refactoring of the project that is really nice and imporant. If I finish working on it next week it will be perfect.
+I prepared profiles of all my future peers. It's really nice. I already started preparations to my new job. It's important. Also we were walking today. I try to dedicate more time to Ksusha because she feels lonely here in Berlin. It's sad but true. Besides that I was working on Builder3 that is very important project. I cannot postpone it or cancel. I am about to finish full refactoring of the project that is really nice and imporant. If I finish working on it next week it will be perfect. Will see.
