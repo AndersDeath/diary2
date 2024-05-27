@@ -224,4 +224,4 @@ I prepared profiles of all my future peers. It's really nice. I already started 
 
 # 27 May - Sonntag - Berlin - 613 Tag der Einwanderung - Hot Sunny
 
-Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. I
+Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. Step by step my documents moves from working laptop to mine one.
