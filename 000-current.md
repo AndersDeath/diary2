@@ -224,4 +224,4 @@ I prepared profiles of all my future peers. It's really nice. I already started 
 
 # 27 May - Sonntag - Berlin - 613 Tag der Einwanderung - Hot Sunny
 
-Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. Step by step my documents moves from working laptop to mine one. I gradually saying good buy to XU company. It's good. In the evening I had a german class. It's really hard to learn this language. Surely English was also extremely difficult for me.
+Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. Step by step my documents moves from working laptop to mine one. I gradually saying good buy to XU company. It's good. In the evening I had a german class. It's really hard to learn this language. Surely English was also extremely difficult for me. But this one is much harder due to absence of vocabulary.
