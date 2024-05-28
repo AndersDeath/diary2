@@ -226,5 +226,5 @@ I prepared profiles of all my future peers. It's really nice. I already started 
 
 Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. Step by step my documents moves from working laptop to mine one. I gradually saying good buy to XU company. It's good. In the evening I had a german class. It's really hard to learn this language. Surely English was also extremely difficult for me. But this one is much harder due to absence of vocabulary. I don't have word's collection in my memory.
 
-# 28 May - Dienstag - Berlin - 613 Tag der Einwanderung - Hot Sunny
+# 28 May - Dienstag - Berlin - 614 Tag der Einwanderung - Hot Sunny
 
