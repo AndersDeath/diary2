@@ -228,5 +228,5 @@ Everything is really good today. I did a lot of things and besides that it's the
 
 # 28 May - Dienstag - Berlin - 614 Tag der Einwanderung - Hot Rainy
 
-Good news from DR SMILE. They asked me to prepare additional documents and it looks like that I will have money on my account next week. It's really nice. Besides that I did nice update for Holy Theory project. In general it looks better and better now.
+Good news from DR SMILE. They asked me to prepare additional documents and it looks like that I will have money on my account next week. It's really nice. Besides that I did nice update for Holy Theory project. In general it looks better and better now. I enjoy it very very much.
 
