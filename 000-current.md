@@ -228,5 +228,5 @@ Everything is really good today. I did a lot of things and besides that it's the
 
 # 28 May - Dienstag - Berlin - 614 Tag der Einwanderung - Hot Rainy
 
-Good 
+Good news from DR SMILE.
 
