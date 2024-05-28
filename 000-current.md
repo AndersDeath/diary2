@@ -222,9 +222,11 @@ We were in Tiergarden today. It's so cool there today. I enjoyed our walk. It wa
 
 I prepared profiles of all my future peers. It's really nice. I already started preparations to my new job. It's important. Also we were walking today. I try to dedicate more time to Ksusha because she feels lonely here in Berlin. It's sad but true. Besides that I was working on Builder3 that is very important project. I cannot postpone it or cancel. I am about to finish full refactoring of the project that is really nice and imporant. If I finish working on it next week it will be perfect. Will see.
 
-# 27 May - Montag - Berlin - 613 Tag der Einwanderung - Hot Sunny
+# 27 May - Montag - Berlin - 613 Tag der Einwanderung - Hot Rainy
 
 Everything is really good today. I did a lot of things and besides that it's the last week here for me. I am really happy about it. At the same time I am a little bit nervouse. Step by step my documents moves from working laptop to mine one. I gradually saying good buy to XU company. It's good. In the evening I had a german class. It's really hard to learn this language. Surely English was also extremely difficult for me. But this one is much harder due to absence of vocabulary. I don't have word's collection in my memory.
 
-# 28 May - Dienstag - Berlin - 614 Tag der Einwanderung - Hot Sunny
+# 28 May - Dienstag - Berlin - 614 Tag der Einwanderung - Hot Rainy
+
+Good 
 
