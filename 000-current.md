@@ -232,4 +232,4 @@ Good news from DR SMILE. They asked me to prepare additional documents and it lo
 
 # 29 May - Mottwoch - Berlin - 615 Tag der Einwanderung - Hot Rainy
 
-Nothing significat happened today. I just worked and did my own tasks. I don't have anything in XU to finish. I've done with everything. In general they even could free me but 
+Nothing significat happened today. I just worked and did my own tasks. I don't have anything in XU to finish. I've done with everything. In general they even could free me but I decided to turn my vacation days to money.
