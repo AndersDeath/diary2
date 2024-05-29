@@ -232,4 +232,4 @@ Good news from DR SMILE. They asked me to prepare additional documents and it lo
 
 # 29 May - Mottwoch - Berlin - 615 Tag der Einwanderung - Hot Rainy
 
-Nothing significat happened today. I just worked and did my own tasks. I don't have anything in XU to finish. I've done with everything. In general they even could free me but I decided to turn my vacation days to money. It's because I am fucking greedy. Also I visited toastmasters club and won my first "the best table topic" thing. 
+Nothing significat happened today. I just worked and did my own tasks. I don't have anything in XU to finish. I've done with everything. In general they even could free me but I decided to turn my vacation days to money. It's because I am fucking greedy. Also I visited toastmasters club and won my first "the best table topic" thing. Table topic master asked me "Whom from my relatives I could select and move to this place"
