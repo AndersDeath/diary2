@@ -230,8 +230,10 @@ Everything is really good today. I did a lot of things and besides that it's the
 
 Good news from DR SMILE. They asked me to prepare additional documents and it looks like that I will have money on my account next week. It's really nice. Besides that I did nice update for Holy Theory project. In general it looks better and better now. I enjoy it very very much. I like new architecture and maintainability of the project. In general the day was nice but hard. Not all things can be done smoothly.
 
-# 29 May - Mottwoch - Berlin - 615 Tag der Einwanderung - Hot Rainy
+# 29 May - Mottwoch - Berlin - 615 Tag der Einwanderung - Hot Sunny
 
 Nothing significat happened today. I just worked and did my own tasks. I don't have anything in XU to finish. I've done with everything. In general they even could free me but I decided to turn my vacation days to money. It's because I am fucking greedy. Also I visited toastmasters club and won my first "the best table topic" thing. Table topic master asked me "Whom from my relatives I could select and move to this place" smth like this. Since I moved to Germany because of the was also I spoke about my mother. It was honest and emotional. It's always easy to say truth.
 
-# 30 May - Donnerstag - Berlin - 616 Tag der Einwanderung - Hot Rainy
+# 30 May - Donnerstag - Berlin - 616 Tag der Einwanderung - Hot Sunny
+
+
