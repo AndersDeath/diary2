@@ -236,4 +236,4 @@ Nothing significat happened today. I just worked and did my own tasks. I don't h
 
 # 30 May - Donnerstag - Berlin - 616 Tag der Einwanderung - Hot Sunny
 
-I was on EMS training today. In the end of it I felt a little bit sick =) 
+I was on EMS training today. In the end of it I felt a little bit sick =) It was not a problem but still.
