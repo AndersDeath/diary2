@@ -238,4 +238,4 @@ Nothing significat happened today. I just worked and did my own tasks. I don't h
 
 I was on EMS training today. In the end of it I felt a little bit sick =) It was not a problem but still. So what is ems training? It's when you wear special sute that stimulates your musles and you can do less repeats but increase efficency of your exercises. So, yes, It was nice. I hope to get a price next week and decide if I would like to proceed such activity. Also I paid for toasmasters and I am officially a member now. I am happy about it because It was always my dream to be able speaking in from of audience. Will see what will be the result.
 
-# 31 May - Freitag - Berlin - 616 Tag der Einwanderung - Hot Sunny
+# 31 May - Freitag - Berlin - 617 Tag der Einwanderung - Hot Sunny
