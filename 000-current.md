@@ -240,4 +240,4 @@ I was on EMS training today. In the end of it I felt a little bit sick =) It was
 
 # 31 May - Freitag - Berlin - 617 Tag der Einwanderung - Hot Sunny
 
-Finaly day with XU was nice.
+Finaly day with XU was nice. We spend nice time in the office I returned all equipment and in general everything wen smoothly.
