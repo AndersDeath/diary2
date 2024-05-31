@@ -240,4 +240,4 @@ I was on EMS training today. In the end of it I felt a little bit sick =) It was
 
 # 31 May - Freitag - Berlin - 617 Tag der Einwanderung - Hot Sunny
 
-Finaly day with XU was nice. We spend nice time in the office I returned all equipment and in general everything wen smoothly. In my final retro we firstly just chatting about everything including AI and Paul forces to ChatGPT that were run on two phone to have a conversation. It's was really funny.
+Finaly day with XU was nice. We spend nice time in the office I returned all equipment and in general everything wen smoothly. In my final retro we firstly just chatting about everything including AI and Paul forces to ChatGPT that were run on two phone to have a conversation. It's was really funny. The intersting moment also happened - Ludwig who is a HR intern was 
