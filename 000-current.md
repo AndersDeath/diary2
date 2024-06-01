@@ -110,10 +110,12 @@ Nothing happened today. Really I just was at home for a whole day and did my job
 
 I didn't do a lot of things because my main goal today was to pack my suitecase and backpack. I was in the office, looked at some strange and stupid things and then came back hope. Just after this we went to Brandenburg airport. The flyght was calm and short. It's 1.40 hour from Berlin to Paris. It's quite short distance. In France capital we met Alina that is Ksusha's old friend. We rent an apartment together and also planned our trip. I am really excited about this weekend.
 
-# 29 - Freitag - Paris - 646 Tag der Einwanderung - Cool Rainy
+# 29 June - Freitag - Paris - 646 Tag der Einwanderung - Cool Rainy
 
 So, Paris it amazing. I am so happy to be there again and with money. It's so cool. Today we were walking in the city center and whatched a lot of cool building, museums and stuff. One of the points was to visit new excibition are in ex-Birzha. I don't know how to write it downd and it's why I used russian word. Also we were walking and looking for something. In commot in Paris you can just go and enjoy. All that things makes the day amazing. At the end we were on the top of Eifel tower. I was happy to repeat that experience because it's 11 years passed when I was there last time. So, the day was nice but I am tiered as fuck.
 
-# 30 - Sonntag - Paris - 647 Tag der Einwanderung - Cool Rainy
+# 30 June - Sonntag - Paris - 647 Tag der Einwanderung - Cool Rainy
 
 Today we again were walking around. Our stamina has gone. It's hard to walk at 36 years old like when I was 25. It's really diferent, but money compensate it. So, Paris became really better for all that years, local authorities did great job. Also The olympic games are about to start in the city. It makes everything better but construction is everywhere and it's a little bit frustrating. So, also we were today on Louis vitone center that is build in post-constructivism style. I liked it very much. In general it's hard to describe all my impressions. Everything was really cool. I would like to visit Paris again in the future.
+
+# 01 Juli - Sonntag - Paris - 647 Tag der Einwanderung - Cool Rainy
