@@ -120,4 +120,4 @@ Today we again were walking around. Our stamina has gone. It's hard to walk at 3
 
 # 01 Juli - Montag - Paris - 648 Tag der Einwanderung - Cool Rainy
 
-Today I was working in the first part of the days and was walking alone in the second one. Alina and Ksusha went to 
+Today I was working in the first part of the days and was walking alone in the second one. Alina and Ksusha went to Disnay land without me. I am
