@@ -118,4 +118,4 @@ So, Paris it amazing. I am so happy to be there again and with money. It's so co
 
 Today we again were walking around. Our stamina has gone. It's hard to walk at 36 years old like when I was 25. It's really diferent, but money compensate it. So, Paris became really better for all that years, local authorities did great job. Also The olympic games are about to start in the city. It makes everything better but construction is everywhere and it's a little bit frustrating. So, also we were today on Louis vitone center that is build in post-constructivism style. I liked it very much. In general it's hard to describe all my impressions. Everything was really cool. I would like to visit Paris again in the future.
 
-# 01 Juli - Monntag - Paris - 648 Tag der Einwanderung - Cool Rainy
+# 01 Juli - Montag - Paris - 648 Tag der Einwanderung - Cool Rainy
