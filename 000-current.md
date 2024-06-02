@@ -4,4 +4,4 @@ I did a maniqure today and it was enjoyful for me. I will repeat it definitely. 
 
 # 02 June - Sonnstag - Berlin - 619 Tag der Einwanderung - Hot Sunny
 
-I liked this Sunday. I did tons of things. For example I prepared a technical task for a freelancer that supposed to fix Mostmag finally. I am tiered of removing virus and I don't have enough time for it. I did my homework and prepared for tomorrow's onboarding in Visable.
+I liked this Sunday. I did tons of things. For example I prepared a technical task for a freelancer that supposed to fix Mostmag finally. I am tiered of removing virus and I don't have enough time for it. I did my homework and prepared for tomorrow's onboarding in Visable. It's nice.
