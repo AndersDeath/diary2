@@ -8,4 +8,4 @@ I liked this Sunday. I did tons of things. For example I prepared a technical ta
 
 # 03 June - Montag - Berlin - 620 Tag der Einwanderung - Hot Sunny
 
-Today was my the first day in Visable company. I experienced a nice onboarding in the morning and recieved a pretty cool laptop for work. I was surprices because I didn't expect so nice thing. It's m3 laptop with tons of memory.
+Today was my the first day in Visable company. I experienced a nice onboarding in the morning and recieved a pretty cool laptop for work. I was surprices because I didn't expect so nice thing. It's m3 laptop with tons of memory. In the end of the day I was really tired and barely could think.
