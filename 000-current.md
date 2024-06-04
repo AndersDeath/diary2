@@ -12,4 +12,4 @@ Today was my the first day in Visable company. I experienced a nice onboarding i
 
 # 04 June - Dienstag - Berlin - 621 Tag der Einwanderung - Warm Sunny
 
-I have to rearrange my schedule because It's it really hard to do things now. I don't have time. This day was really hard. Tons of onboarding meetings just expoded my mind.
+I have to rearrange my schedule because It's it really hard to do things now. I don't have time. This day was really hard. Tons of onboarding meetings just expoded my mind. I also was in the office today because I needed to be there.
