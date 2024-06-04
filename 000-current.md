@@ -11,3 +11,5 @@ I liked this Sunday. I did tons of things. For example I prepared a technical ta
 Today was my the first day in Visable company. I experienced a nice onboarding in the morning and recieved a pretty cool laptop for work. I was surprices because I didn't expect so nice thing. It's m3 laptop with tons of memory. In the end of the day I was really tired and barely could think. Because of visiting of the office I had to cancel german lesson. I don't like when something like this happened. It was sad. I also met some of my new colleegs. Yes. Final good buy to xu company. It was intersting buy I will not miss it.
 
 # 04 June - Dienstag - Berlin - 621 Tag der Einwanderung - Warm Sunny
+
+I have to rearrange my schedule because It's it really hard to do things now.
