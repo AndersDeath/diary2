@@ -16,4 +16,4 @@ I have to rearrange my schedule because It's it really hard to do things now. I 
 
 # 05 June - Mittwoch - Berlin - 622 Tag der Einwanderung - Warm Sunny
 
-I was working from home for a whole day. I started scheduling meeting with my programmers. I have 5 people under me that is really nice for me. I wan't to esablish my skills better and better. So I need to work on it a lot. At the same time I found some minimal time for my own projects. All of the are hevily important for me.
+I was working from home for a whole day. I started scheduling meeting with my programmers. I have 5 people under me that is really nice for me. I wan't to esablish my skills better and better. So I need to work on it a lot. At the same time I found some minimal time for my own projects. All of the are hevily important for me. In the evening I was in Toastmasters club as a member for the first time.
