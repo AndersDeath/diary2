@@ -16,4 +16,4 @@ I have to rearrange my schedule because It's it really hard to do things now. I 
 
 # 05 June - Mittwoch - Berlin - 622 Tag der Einwanderung - Warm Sunny
 
-I was working from home for a whole dat.
+I was working from home for a whole day.
