@@ -14,4 +14,4 @@ Today was my the first day in Visable company. I experienced a nice onboarding i
 
 I have to rearrange my schedule because It's it really hard to do things now. I don't have time. This day was really hard. Tons of onboarding meetings just expoded my mind. I also was in the office today because I needed to be there. I cannot say that it was really enjoyable but still. I needed to be there. In common this comapny has a specific policy that forces people to be in the office twice per week. All other time we can work at home. It's not so good but me as a part of IT department can break the rule. I can be in the office 8 day in a row and then I can fomr home until the end of the month.
 
-# 04 June - Mittwochj - Berlin - 621 Tag der Einwanderung - Warm Sunny
+# 05 June - Mittwoch - Berlin - 622 Tag der Einwanderung - Warm Sunny
