@@ -20,4 +20,4 @@ I was working from home for a whole day. I started scheduling meeting with my pr
 
 # 06 June - Donnerstag - Berlin - 622 Tag der Einwanderung - Warm Sunny
 
-Today I had an arguments with Ksusha. It's really rare situation when we conflict. It was hard. I almost did nothing. I could only to concetrate somehow and visit German lesson. The day was horrible. Also I cannot undertand if dr smile sent me money or not. It looks like they fucked me up again. I hate them so much. They are absolutely insane and stupid morons.
+Today I had an arguments with Ksusha. It's really rare situation when we conflict. It was hard. I almost did nothing. I could only to concetrate somehow and visit German lesson. The day was horrible. Also I cannot undertand if dr smile sent me money or not. It looks like they fucked me up again. I hate them so much. They are absolutely insane and stupid morons. It's something unbelivable.
