@@ -20,4 +20,4 @@ I was working from home for a whole day. I started scheduling meeting with my pr
 
 # 06 June - Donnerstag - Berlin - 622 Tag der Einwanderung - Warm Sunny
 
-Today I had an arguments with Ksusha.
+Today I had an arguments with Ksusha. It's really rare situation when we conflict.
