@@ -24,4 +24,4 @@ Today I had an arguments with Ksusha. It's really rare situation when we conflic
 
 # 07 June - Freitag - Berlin - 624 Tag der Einwanderung - Warm Rainy
 
-We are ok now. I believe that huge pressure that we experienced broke us a little bit. Luckily we handled this. Today I worked from home and it was good. I didn't do a lot of things because it's really hard to memorize everything. At the same time I did good progress this week in Visable. I talked to all people that I leed and it's really cool thing. I am happy about it.
+We are ok now. I believe that huge pressure that we experienced broke us a little bit. Luckily we handled this. Today I worked from home and it was good. I didn't do a lot of things because it's really hard to memorize everything. At the same time I did good progress this week in Visable. I talked to all people that I leed and it's really cool thing. I am happy about it. Funny thing is that this friday makes me really happy because I need to have a little rest.
