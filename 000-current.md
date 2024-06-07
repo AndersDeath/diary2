@@ -24,4 +24,4 @@ Today I had an arguments with Ksusha. It's really rare situation when we conflic
 
 # 07 June - Freitag - Berlin - 624 Tag der Einwanderung - Warm Rainy
 
-We are ok now.
+We are ok now. I believe that huge pressure that we experienced broke us a little bit.
