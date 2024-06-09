@@ -30,4 +30,4 @@ We are ok now. I believe that huge pressure that we experienced broke us a littl
 
 I did literally nothing today. We were on closed radar station that was built by the US army during the cold war. It's a bunch of buildings are located on an artificial mountain in the Berlins part. I already forgot the name of it. The place is really cool. Berlin is stuffed by amazing places and all of them are cool and interesting. Also it's my first year in the country and that means I am still curious of everything happens here.
 
-# 09 June - Sonnstag - Berlin - 625 Tag der Einwanderung - Warm Sunny
+# 09 June - Sonnstag - Berlin - 626 Tag der Einwanderung - Warm Sunny
