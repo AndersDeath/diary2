@@ -32,4 +32,4 @@ I did literally nothing today. We were on closed radar station that was built by
 
 # 09 June - Sonnstag - Berlin - 626 Tag der Einwanderung - Cold Sunny
 
-I decided to change an approach to the Holy Theory project. Before that I did weekly releases but now I don't have time. I am goung to change them to monthly ones. Tomorrow I will publish an article of it. At the same time I need to finalize the project in one month because I did good work but didn't do a workable proto. I need to change it. Besides that the
+I decided to change an approach to the Holy Theory project. Before that I did weekly releases but now I don't have time. I am goung to change them to monthly ones. Tomorrow I will publish an article of it. At the same time I need to finalize the project in one month because I did good work but didn't do a workable proto. I need to change it. Besides that the weather changed and ruined all our plans.
