@@ -36,4 +36,4 @@ I decided to change an approach to the Holy Theory project. Before that I did we
 
 # 10 June - Montag - Berlin - 627 Tag der Einwanderung - Cold 
 
-The weather turned to really cold. I worked from home today and didn't go anywhere.
+The weather turned to really cold. I worked from home today and didn't go anywhere. It's just cold.
