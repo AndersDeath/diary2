@@ -39,3 +39,5 @@ I decided to change an approach to the Holy Theory project. Before that I did we
 The weather turned to really cold. I worked from home today and didn't go anywhere. It's just cold. Besides that nothing really fancy happened. I still don't have money from fucking DR SMILE. Tomorrow I am going to escalate the problem. If they don't change anything I will go to the their office and force them to talk to me in person. It's so stupid. Oh I forgot to mention it. They forgot to send moey to me. Fucking morons. I believe that they will fix it this week.
 
 # 11 June - Diestag - Berlin - 628 Tag der Einwanderung - Cold Rainy
+
+I had a full day of meeting today because I decided that tuesday is a good day for it.
