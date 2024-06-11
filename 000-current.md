@@ -40,4 +40,4 @@ The weather turned to really cold. I worked from home today and didn't go anywhe
 
 # 11 June - Diestag - Berlin - 628 Tag der Einwanderung - Cold Rainy
 
-I had a full day of meeting today because I decided that tuesday is a good day for it.
+I had a full day of meeting today because I decided that tuesday is a good day for it. I am so tiered that I just cannot describe it.
