@@ -44,4 +44,4 @@ I had a full day of meeting today because I decided that tuesday is a good day f
 
 # 12 June - Mittwoch - Berlin - 629 Tag der Einwanderung - Cold Rainy
 
-I texted to fucking director of Finance from dr smile.
+I texted to fucking director of Finance from dr smile. THey just ignore me. It's so stupid.
