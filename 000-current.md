@@ -48,4 +48,4 @@ I texted to fucking director of Finance from dr smile. THey just ignore me. It's
 
 # 13 June - Donnerstag - Berlin - 630 Tag der Einwanderung - Cold Rainy
 
-I really like working from home. It makes me happy. So I did it. My working day are so intencive now that I really don't know what to say. Maybe I need to change an approach for making this notes. In the evening I had a nice german lesson.
+I really like working from home. It makes me happy. So I did it. My working day are so intencive now that I really don't know what to say. Maybe I need to change an approach for making this notes. In the evening I had a nice german lesson. I started gradually understand something and it is really good.
