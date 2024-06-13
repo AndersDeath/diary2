@@ -47,3 +47,5 @@ I had a full day of meeting today because I decided that tuesday is a good day f
 I texted to fucking director of Finance from dr smile. THey just ignore me. It's so stupid. I worked from the office today. To be hones I am in so bad mood that I don't want to text here anything but I need to mention that I was on amazing event with toastmastes in the evening. I enjoyed it a lot.
 
 # 13 June - Donnerstag - Berlin - 630 Tag der Einwanderung - Cold Rainy
+
+I really like working from home.
