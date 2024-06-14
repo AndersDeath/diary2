@@ -52,4 +52,4 @@ I really like working from home. It makes me happy. So I did it. My working day 
 
 # 14 June - Freitag - Berlin - 631 Tag der Einwanderung - Cold Rainy
 
-I finally got an answer from that morons. They sent my money yesterday, I hope they are not so crazy and I will recive them on monday.
+I finally got an answer from that morons. They sent my money yesterday, I hope they are not so crazy and I will recive them on monday. As craziness I mean possible mistakes that they can do in the invoice.
