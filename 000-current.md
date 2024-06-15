@@ -56,4 +56,4 @@ I finally got an answer from that morons. They sent my money yesterday, I hope t
 
 # 15 June - Samstag - Berlin - 632 Tag der Einwanderung - Warm Sunny
 
-
+The weather became normal finally.
