@@ -54,4 +54,4 @@ I really like working from home. It makes me happy. So I did it. My working day 
 
 I finally got an answer from that morons. They sent my money yesterday, I hope they are not so crazy and I will recive them on monday. As craziness I mean possible mistakes that they can do in the payment statement. Also I am happy to be in Friday again. It means that I will have a cool weekend. Adtionaly I wouldlike to say that our relations with Ksusha is absolutely brilliant now. I'm happy. I love her so much and don't want to loose her.
 
-# 15 June - Freitag - Berlin - 632 Tag der Einwanderung - Cold Rainy
+# 15 June - Samstag - Berlin - 632 Tag der Einwanderung - Cold Rainy
