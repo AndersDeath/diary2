@@ -56,4 +56,4 @@ I finally got an answer from that morons. They sent my money yesterday, I hope t
 
 # 15 June - Samstag - Berlin - 632 Tag der Einwanderung - Warm Sunny
 
-The weather became normal finally. However I did literally nothing today I was at home and did nothing. Also I forgot to write here down that I was in the cinema this week. It was the first time in my life when I watched a movie without subtitles. The language was english subs were in german. Therefore I could not use text in the screen. It was cool and successful thing.
+The weather became normal finally. However I did literally nothing today I was at home and did nothing. Also I forgot to write here down that I was in the cinema this week. It was the first time in my life when I watched a movie without subtitles. The language was english subs were in german. Therefore I could not use text in the screen. It was cool and successful thing because I enjoyed the movied and understood everything.
