@@ -60,4 +60,4 @@ The weather became normal finally. However I did literally nothing today I was a
 
 # 16 June - Sonnerstag - Berlin - 633 Tag der Einwanderung - Warm Sunny
 
-I finally did some cleaning in the apartments today. It's nice. 
+I finally did some cleaning in the apartments today. It's nice. Absence of time on my and Ksusha's sides lead us to dirty rooms that I don't like.
