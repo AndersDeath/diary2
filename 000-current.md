@@ -60,4 +60,4 @@ The weather became normal finally. However I did literally nothing today I was a
 
 # 16 June - Sonnerstag - Berlin - 633 Tag der Einwanderung - Warm Sunny
 
-I finally did some cleaning in the apartments today. It's nice. Absence of time on my and Ksusha's sides lead us to dirty rooms that I don't like. Also I had a call with Arsenii and showed him Berlin a little bit. He was happy to talk to me. Also I finally finished thing that I postponed. The reason was absence of time. I am good and did a great job. If money from fucking smile will come to me tomorrow I will be much more happy than now. I hate them really. In general the day was nice and good.
+I finally did some cleaning in the apartments today. It's nice. Absence of time on my and Ksusha's sides lead us to dirty rooms that I don't like. Also I had a call with Arsenii and showed him Berlin a little bit. He was happy to talk to me. Also I finally finished thing that I postponed. The reason was absence of time. I am good and did a great job. If money from fucking smile will come to me tomorrow I will be much more happy than now. I hate them really. In general the day was nice and good. I liked it.
