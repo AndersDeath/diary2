@@ -64,4 +64,4 @@ I finally did some cleaning in the apartments today. It's nice. Absence of time 
 
 # 17 June - Montag - Berlin - 634 Tag der Einwanderung - Warm Rainy
 
-Money are not here. It's so annoying. I will wait until tommorow and if nothing changes escalate the problem. Today was a home office day. I just sat at home and did some business. It's really hard to do things without strong experience. It's something absolutely new.
+Money are not here. It's so annoying. I will wait until tommorow and if nothing changes escalate the problem. Today was a home office day. I just sat at home and did some business. It's really hard to do things without strong experience. It's something absolutely new. I try to be everywhere and to do things correctly.
