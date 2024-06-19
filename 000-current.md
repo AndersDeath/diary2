@@ -71,3 +71,5 @@ Money are not here. It's so annoying. I will wait until tommorow and if nothing 
 I decide that tuesday will be dedicated fully to 1-1 meetings and office work. So, I spent the whole day in the office and it was hard and nice in the same time. Additionaly my money fell to my account finally. I am really happy about it. I don't want to connect to drsmile anymore. They are absolutely crazy and unprofessional. It's annoying. The day was really busy. I don't have even time to think about something.
 
 # 19 June - Mittwoch - Berlin - 636 Tag der Einwanderung - Warm Cloudy
+
+My mood was not so good today.
