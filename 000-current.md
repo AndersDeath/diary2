@@ -72,4 +72,4 @@ I decide that tuesday will be dedicated fully to 1-1 meetings and office work. S
 
 # 19 June - Mittwoch - Berlin - 636 Tag der Einwanderung - Warm Cloudy
 
-My mood was not so good today. It's sad to be honest.
+My mood was not so good today. It's sad to be honest. I thougt that I would be able to buy somthing that I wanted to, but I could not.
