@@ -76,4 +76,4 @@ My mood was not so good today. It's sad to be honest. I thougt that I would be a
 
 # 20 June - Donnerstag - Berlin - Hamburg - 637 Tag der Einwanderung - Warm Cloudy
 
-I am writing it from train to Hamburg. In 20 minutes I will be there. It's nice. Also it's my firt lonely trip to some place.
+I am writing it from train to Hamburg. In 20 minutes I will be there. It's nice. Also it's my firt lonely trip to some place. I will be alone in hotel and I am only one in the carrier.
