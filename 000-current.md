@@ -77,3 +77,8 @@ My mood was not so good today. It's sad to be honest. I thougt that I would be a
 # 20 June - Donnerstag - Berlin - Hamburg - 637 Tag der Einwanderung - Warm Cloudy
 
 I am writing it from train to Hamburg. In 20 minutes I will be there. It's nice. Also it's my firt lonely trip to some place. I will be alone in hotel and I am only one in the carrier. As alone I mean absence of Ksusha. Surely there are some people, but I don't care about them. Also I've never been in Hamburg, it will be my first visit to the city. I expect to get nice experience. In general I believe everything will be good and cool. Ksusha met her boss and that meeting went well. I expect nice collaboration. Another thing - the train arrived and derpatured in time. It's something amazing and so unusual for Deutsche bahn.
+
+# 21 June - Freitag - Hamburg - 638 Tag der Einwanderung - Warm Rainy
+
+
+
