@@ -80,5 +80,4 @@ I am writing it from train to Hamburg. In 20 minutes I will be there. It's nice.
 
 # 21 June - Freitag - Hamburg - 638 Tag der Einwanderung - Warm Rainy
 
-
-
+It's so strange thing when you are in such trips like I have now.
