@@ -80,4 +80,4 @@ I am writing it from train to Hamburg. In 20 minutes I will be there. It's nice.
 
 # 21 June - Freitag - Hamburg - 638 Tag der Einwanderung - Warm Rainy
 
-It's so strange thing when you are in such trips like I have now. The feeling that I am in the office even at night was with me for a whole day. In the morning I was on people management meating where heads of the company presented something about current state.
+It's so strange thing when you are in such trips like I have now. The feeling that I am in the office even at night was with me for a whole day. In the morning I was on people management meating where heads of the company presented something about current state. It was really interesting and valuable for my personal grows because I saw how differently the same info can be presented for different audiences.
