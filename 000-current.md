@@ -84,4 +84,4 @@ It's so strange thing when you are in such trips like I have now. The feeling th
 
 # 22 June - Samstag - Hamburg - Berlin - 639 Tag der Einwanderung - Warm Cloudy
 
-Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in general it was ok. Usually situation with this is much worse.
+Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in general it was ok. Usually situation with this is much worse. I am happy to come back to Ksusha.
