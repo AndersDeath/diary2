@@ -88,4 +88,4 @@ Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in ge
 
 # 23 June - Sonnerstag - Hamburg - 640 Tag der Einwanderung - Warm Rainy
 
-I cannot get why that germans don't work on Sundays. It's so stupid. Because of this I have to be at hope or come up with some activities that I don't want to have. Today we went to Templhof airdrop and had fun there. We walked a lot and then came back home.
+I cannot get why that germans don't work on Sundays. It's so stupid. Because of this I have to be at hope or come up with some activities that I don't want to have. Today we went to Templhof airdrop and had fun there. We walked a lot and then came back home. In general this day was absolutely lazy and didn't have and siginificant valuable things inside.
