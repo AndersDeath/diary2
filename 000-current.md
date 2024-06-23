@@ -86,4 +86,4 @@ It's so strange thing when you are in such trips like I have now. The feeling th
 
 Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in general it was ok. Usually situation with this is much worse. I am happy to come back to Ksusha. Today we went for a walk and did a lot of interesting and cool things. Unfortunately I feel abosolutely demotivated to do something. I belive that it's an aftershok after two year streess, looking for another job and so on. I try to be ok and in good mood. It's hard. I should admit it, but I do my best. Also I finally need to buy something and I finally did it. I ordered a lot of stupid things that I hope will make me a little bit happier.
 
-# 23 June - Sonnerstag - Hamburg - 640 Tag der Einwanderung - Warm Cloudy
+# 23 June - Sonnerstag - Hamburg - 640 Tag der Einwanderung - Warm Rainy
