@@ -88,4 +88,4 @@ Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in ge
 
 # 23 June - Sonnerstag - Hamburg - 640 Tag der Einwanderung - Warm Rainy
 
-I cannot get why that germans don't work on Sundays.
+I cannot get why that germans don't work on Sundays. It's so stupid.
