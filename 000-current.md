@@ -86,6 +86,6 @@ It's so strange thing when you are in such trips like I have now. The feeling th
 
 Today I had a train from Hamburg to Berlin. It was deleyed for an hour but in general it was ok. Usually situation with this is much worse. I am happy to come back to Ksusha. Today we went for a walk and did a lot of interesting and cool things. Unfortunately I feel abosolutely demotivated to do something. I belive that it's an aftershok after two year streess, looking for another job and so on. I try to be ok and in good mood. It's hard. I should admit it, but I do my best. Also I finally need to buy something and I finally did it. I ordered a lot of stupid things that I hope will make me a little bit happier.
 
-# 23 June - Sonnerstag - Hamburg - 640 Tag der Einwanderung - Warm Rainy
+# 23 June - Sonnerstag - Berlin - 640 Tag der Einwanderung - Warm Rainy
 
-I cannot get why that germans don't work on Sundays. It's so stupid. Because of this I have to be at hope or come up with some activities that I don't want to have. Today we went to Templhof airdrop and had fun there. We walked a lot and then came back home. In general this day was absolutely lazy and didn't have and siginificant valuable things inside. It was just calm and nothing.
+I cannot get why that germans don't work on Sundays. It's so stupid. Because of this I have to be at hope or come up with some activities that I don't want to have. Today we went to Templhof airdrop and had fun there. We walked a lot and then came back home. In general this day was absolutely lazy and didn't have and siginificant valuable things inside. It was just calm and nothing. I was thinking a lot about that Hamburg
