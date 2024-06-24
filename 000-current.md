@@ -92,4 +92,4 @@ I cannot get why that germans don't work on Sundays. It's so stupid. Because of 
 
 # 24 June - Montag - Berlin - 641 Tag der Einwanderung - Warm Rainy
 
-I worked from home and It was nice. Also my skateboard is with me. I bought a cruiser and now I need to find some protection because I don't know how to skate properly. The helmet with other knee and arm shields should be here soon. It it really important to have them.
+I worked from home and It was nice. Also my skateboard is with me. I bought a cruiser and now I need to find some protection because I don't know how to skate properly. The helmet with other knee and arm shields should be here soon. It it really important to have them. Also I ordered a wierd podcast kit.
