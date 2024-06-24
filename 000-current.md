@@ -92,4 +92,4 @@ I cannot get why that germans don't work on Sundays. It's so stupid. Because of 
 
 # 24 June - Montag - Berlin - 641 Tag der Einwanderung - Warm Rainy
 
-I worked from home and It was nice.
+I worked from home and It was nice. Also my skateboard is with me.
