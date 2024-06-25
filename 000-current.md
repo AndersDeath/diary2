@@ -96,3 +96,4 @@ I worked from home and It was nice. Also my skateboard is with me. I bought a cr
 
 # 25 June - Dienstag - Berlin - 642 Tag der Einwanderung - Warm Rainy
 
+I was in the office today and it was nice.
