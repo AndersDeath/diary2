@@ -99,3 +99,5 @@ I worked from home and It was nice. Also my skateboard is with me. I bought a cr
 I was in the home office today. I worked on typical tasks and tried to find mindfuel for doning important things like writing articles. I don't want to do it. I am so tiered that it's just a violence to force myself doing it. Helmet came and it's so shitty that returned it back. I will go to a physicall shop. I don't know size and so. Bsides that nothing happened. The day was calm and cool.
 
 # 26 June - Mittwoch - Berlin - 643 Tag der Einwanderung - Warm Rainy
+
+In the office I was on a lunch with Chinese colleges.
