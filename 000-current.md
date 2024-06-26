@@ -100,4 +100,4 @@ I was in the home office today. I worked on typical tasks and tried to find mind
 
 # 26 June - Mittwoch - Berlin - 643 Tag der Einwanderung - Warm Rainy
 
-In the office I was on a lunch with Chinese colleges. It was so stupic and shitty that I didn't know what to think. The heads of Visable are really old fasion businessmen that 
+In the office I was on a lunch with Chinese colleges. It was so stupic and shitty that I didn't know what to think. The heads of Visable are really old fasion businessmen that try to push dust in partners eyes.
