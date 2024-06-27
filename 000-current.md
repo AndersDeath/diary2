@@ -102,4 +102,4 @@ I was in the home office today. I worked on typical tasks and tried to find mind
 
 In the office I was on a lunch with Chinese colleges. It was so stupic and shitty that I didn't know what to think. The heads of Visable are really old fasion businessmen that try to push dust in partners eyes. It was so ridiculous and fun. I hope that understand what they do but I am not sure. BVG ticket from my company is still not with me. It's also fun because it's another fuck up from provider's side. Some clothes came to me and I am happy because I almost packed for Paris. It's really nice.
 
-# 27 June - Mittwoch - Berlin - 643 Tag der Einwanderung - Warm Rainy
+# 27 June - Donnerstag - Berlin - 643 Tag der Einwanderung - Warm Rainy
