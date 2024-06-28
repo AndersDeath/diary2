@@ -105,3 +105,5 @@ In the office I was on a lunch with Chinese colleges. It was so stupic and shitt
 # 27 June - Donnerstag - Berlin - 644 Tag der Einwanderung - Warm Rainy
 
 Nothing happened today. Really I just was at home for a whole day and did my job. Besides that I didn't do anything. German lessin surely was and that's it. It was such a stupid and meaningless day. Quite rare situtation to be honest. Tomorrow we are flying to Paris and it's cool.
+
+# 28 June - Donnerstag - Berlin - 644 Tag der Einwanderung - Warm Rainy
