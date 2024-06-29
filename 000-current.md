@@ -112,4 +112,4 @@ I didn't do a lot of things because my main goal today was to pack my suitecase 
 
 # 29 - Freitag - Paris - 646 Tag der Einwanderung - Cool Rainy
 
-So, Paris it amazing. I am so happy to be there again and with money. It's so cool.
+So, Paris it amazing. I am so happy to be there again and with money. It's so cool. Today we were walking in the city center and whatched a lot of cool building, museums and stuff.
