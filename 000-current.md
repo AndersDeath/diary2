@@ -112,4 +112,4 @@ I didn't do a lot of things because my main goal today was to pack my suitecase 
 
 # 29 - Freitag - Paris - 646 Tag der Einwanderung - Cool Rainy
 
-So, Paris it amazing. I am so happy to be there again and with money. It's so cool. Today we were walking in the city center and whatched a lot of cool building, museums and stuff. One of the points was to visit new excibition are in ex-Birzha. I don't know how to write it downd and it's why I used russian word. Also we were walking and looking for something.
+So, Paris it amazing. I am so happy to be there again and with money. It's so cool. Today we were walking in the city center and whatched a lot of cool building, museums and stuff. One of the points was to visit new excibition are in ex-Birzha. I don't know how to write it downd and it's why I used russian word. Also we were walking and looking for something. In commot in Paris you can just go and enjoy. 
