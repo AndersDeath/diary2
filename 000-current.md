@@ -110,4 +110,4 @@ Nothing happened today. Really I just was at home for a whole day and did my job
 
 I didn't do a lot of things because my main goal today was to pack my suitecase and backpack. I was in the office, looked at some strange and stupid things and then came back hope. Just after this we went to Brandenburg airport. The flyght was calm and short. It's 1.40 hour from Berlin to Paris. It's quite short distance. In France capital we met Alina that is Ksusha's old friend. We rent an apartment together and also planned our trip. I am really excited about this weekend.
 
-# 29 - Freitag - Paris - 646 Tag der Einwanderung - Warm Rainy
+# 29 - Freitag - Paris - 646 Tag der Einwanderung - Cool Rainy
