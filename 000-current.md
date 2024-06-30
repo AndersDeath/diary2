@@ -116,4 +116,4 @@ So, Paris it amazing. I am so happy to be there again and with money. It's so co
 
 # 30 - Sonntag - Paris - 647 Tag der Einwanderung - Cool Rainy
 
-Today we again were walking around. 
+Today we again were walking around. Our stamina has gone.
