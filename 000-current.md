@@ -116,4 +116,4 @@ So, Paris it amazing. I am so happy to be there again and with money. It's so co
 
 # 30 - Sonntag - Paris - 647 Tag der Einwanderung - Cool Rainy
 
-Today we again were walking around. Our stamina has gone. It's hard to walk at 36 years old like when I was 25. It's really diferent, but money compensate it. So, Paris became really better for all that years, local authorities did great job. Also The olympic games are about to start in the city. It makes everything better but construction is everywhere and it's a little bit frustrating. So, also we were today on Louis vitone 
+Today we again were walking around. Our stamina has gone. It's hard to walk at 36 years old like when I was 25. It's really diferent, but money compensate it. So, Paris became really better for all that years, local authorities did great job. Also The olympic games are about to start in the city. It makes everything better but construction is everywhere and it's a little bit frustrating. So, also we were today on Louis vitone center that is build in post-constructivism style. I like
