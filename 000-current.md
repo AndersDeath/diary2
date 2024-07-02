@@ -124,4 +124,4 @@ Today I was working in the first part of the days and was walking alone in the s
 
 # 02 Juli - Dienstag - Paris - Berlin - 649 Tag der Einwanderung - Cool Rainy
 
-Today we sad good buy to Alina in the morning and then went to Orly airport. I need to say that place is not so good as I expected. Surely it's another big international airport and so on
+Today we sad good buy to Alina in the morning and then went to Orly airport. I need to say that place is not so good as I expected. Surely it's another big international airport and so on, but the place is quite badly organized.
