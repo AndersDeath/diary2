@@ -123,3 +123,5 @@ Today we again were walking around. Our stamina has gone. It's hard to walk at 3
 Today I was working in the first part of the days and was walking alone in the second one. Alina and Ksusha went to Disnay land without me. It was cool because I really wanted to walk alone. I was on Monparnas and just walked in the city center, took photos, looked at libraries and universities. That places are very pwerful for me. I like to be there. I was alone for a whole day and was thinking a lot about my life. I am ready for recharging doing cool things again. I feel much better. I needed to have such trip. It's cool to be with money and live in Europe with local documents. Also I got an idea that Paris in what Saint-Peterburg wanted to be. It's just strange but something like this.
 
 # 02 Juli - Dienstag - Paris - Berlin - 649 Tag der Einwanderung - Cool Rainy
+
+Today we sad good buy to Alina in the morning and then went to Orly airport.
