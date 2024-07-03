@@ -127,3 +127,5 @@ Today I was working in the first part of the days and was walking alone in the s
 Today we sad good buy to Alina in the morning and then went to Orly airport. I need to say that place is not so good as I expected. Surely it's another big international airport and so on, but the place is quite badly organized. After checkin and passing control we had to find an internal bus that moved us to real barn on the edge of airport. It was quite stupid. Also french people are not so friendly like germans usually are. Besides that they don't duplicate anouncements in egnlish. It was quite annoing. After arriving to Berlin we came home smoothly and without any problems. It was nice. We had a little rest and were ok.
 
 # 03 Juli - Mittwoch - Berlin - 650 Tag der Einwanderung - Cool Rainy
+
+I had to miss Toastmasters today because I didn't feel well.
