@@ -128,4 +128,4 @@ Today we sad good buy to Alina in the morning and then went to Orly airport. I n
 
 # 03 Juli - Mittwoch - Berlin - 650 Tag der Einwanderung - Cool Rainy
 
-I had to miss Toastmasters today because I didn't feel well. The flight made me so tiered. I in general don't feel so good for having all those additional activities I planned before.
+I had to miss Toastmasters today because I didn't feel well. The flight made me so tiered. I in general don't feel so good for having all those additional activities I planned before. Howerver I try to do my best for being ok.
