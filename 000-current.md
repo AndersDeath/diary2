@@ -132,3 +132,5 @@ I had to miss Toastmasters today because I didn't feel well. The flight made me 
 
 # 04 Juli - Donnerstag - Berlin - 651 Tag der Einwanderung - Warm Clear sky
 
+This morning I checked my eyes in some weird clicic.
+
