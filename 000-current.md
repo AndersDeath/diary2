@@ -132,5 +132,5 @@ I had to miss Toastmasters today because I didn't feel well. The flight made me 
 
 # 04 Juli - Donnerstag - Berlin - 651 Tag der Einwanderung - Warm Clear sky
 
-This morning I checked my eyes in some weird clinic. I experted to have some normal checkup but in face I just experiences some strange stuff. Surely they checked my eyes but if face they didn't 
+This morning I checked my eyes in some weird clinic. I experted to have some normal checkup but in face I just experiences some strange stuff. Surely they checked my eyes but if face they didn't offer me to have anything.
 
