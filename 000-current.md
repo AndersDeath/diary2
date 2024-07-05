@@ -136,4 +136,4 @@ This morning I checked my eyes in some weird clinic. I experted to have some nor
 
 # 05 Juli - Freitag - Berlin - 652 Tag der Einwanderung - Warm Clear sky
 
-I recieved all final papers from XU and also was fucked a little by. They desided that I should not have birthday certificat because I left company. It was so stupid because at that moment I was a employee. It is unfair and speaks a lot about them. I am preparing an plan agains them that I will do definetly. Besides review on some websited I also plan contacting to ex coleeges and say some words about them 
+I recieved all final papers from XU and also was fucked a little by. They desided that I should not have birthday certificat because I left company. It was so stupid because at that moment I was a employee. It is unfair and speaks a lot about them. I am preparing an plan agains them that I will do definetly. Besides review on some websited I also plan contacting to ex coleeges and say some words about them. It's my intention. 
