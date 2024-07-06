@@ -140,4 +140,4 @@ I recieved all final papers from XU and also was fucked a little by. They deside
 
 # 06 Juli - Samstag - Berlin - 653 Tag der Einwanderung - Warm Clear sky
 
-We wanted to visit a botanic garden but cancelled it due to lazyness. The good thing that I finally bought some skateboarding protection that allows me to stard using my skateboard. The probles is time. I need time for it. So, yes we were walking for a whole day and everything was really nice.
+We wanted to visit a botanic garden but cancelled it due to lazyness. The good thing that I finally bought some skateboarding protection that allows me to stard using my skateboard. The probles is time. I need time for it. So, yes we were walking for a whole day and everything was really nice. It was cool calm saturday that I missed so much.
