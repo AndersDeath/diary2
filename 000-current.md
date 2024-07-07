@@ -144,4 +144,4 @@ We wanted to visit a botanic garden but cancelled it due to lazyness. The good t
 
 # 07 Juli - Sonntag - Berlin - 654 Tag der Einwanderung - Warm Clear sky
 
-It's hard to find so useless day in this uneverce. we were walking and sitting at home.
+It's hard to find so useless day in this uneverce. we were walking and sitting at home. Not more.
