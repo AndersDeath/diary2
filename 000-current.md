@@ -148,4 +148,4 @@ It's hard to find so useless day in this uneverce. we were walking and sitting a
 
 # 08 Juli - Montag - Berlin - 655 Tag der Einwanderung - Warm Clear sky
 
-This monday is really important.
+This monday is really important. I finally slpit my Holy Theory project to two parts.
