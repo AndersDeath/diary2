@@ -148,4 +148,4 @@ It's hard to find so useless day in this uneverce. we were walking and sitting a
 
 # 08 Juli - Montag - Berlin - 655 Tag der Einwanderung - Warm Clear sky
 
-This monday is really important. I finally slpit my Holy Theory project to two parts. The first one is a piece of software for building books and another one is about wiritng a book itself. I thought about it for a really long time. The biggest consern that I had was impossibility of publishubg software and text under the same licence. In fact If I want to protect what I do I must split them and select proper licences for them.
+This monday is really important. I finally slpit my Holy Theory project to two parts. The first one is a piece of software for building books and another one is about wiritng a book itself. I thought about it for a really long time. The biggest consern that I had was impossibility of publishubg software and text under the same licence. In fact If I want to protect what I do I must split them and select proper licences for them. I decided to use gpl2 for soft and some other for text.
