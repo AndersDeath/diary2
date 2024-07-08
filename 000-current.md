@@ -146,4 +146,4 @@ We wanted to visit a botanic garden but cancelled it due to lazyness. The good t
 
 It's hard to find so useless day in this uneverce. we were walking and sitting at home. Not more. I literally did nothing today. Usually it is quite rare situation but this is a fact. I did nothing.
 
-# 08 Juli - Montag - Berlin - 654 Tag der Einwanderung - Warm Clear sky
+# 08 Juli - Montag - Berlin - 655 Tag der Einwanderung - Warm Clear sky
