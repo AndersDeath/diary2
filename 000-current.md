@@ -149,3 +149,5 @@ It's hard to find so useless day in this uneverce. we were walking and sitting a
 # 08 Juli - Montag - Berlin - 655 Tag der Einwanderung - Warm Rainy
 
 This monday is really important. I finally slpit my Holy Theory project to two parts. The first one is a piece of software for building books and another one is about wiritng a book itself. I thought about it for a really long time. The biggest consern that I had was impossibility of publishubg software and text under the same licence. In fact If I want to protect what I do I must split them and select proper licences for them. I decided to use gpl2 for soft and some other for text. I am going to change versioning approach as well. It's important thing in general. So yes. It is a new step of my projct. I am really exited to having something new. I need to pick a name for software, theoretical articles will be Holy Theory like it was planned initially. Besides that I was in the office today and did a lot of interesting things.
+
+# 09 Juli - Dienstag - Berlin - 656 Tag der Einwanderung - Warm Rainy
