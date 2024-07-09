@@ -152,4 +152,4 @@ This monday is really important. I finally slpit my Holy Theory project to two p
 
 # 09 Juli - Dienstag - Berlin - 656 Tag der Einwanderung - Warm Rainy
 
-I selected new name for the project, I will be called flexographer. It is a little bit long but I don't care. It's is a name for the soft, not for a product.
+I selected new name for the project, I will be called flexographer. It is a little bit long but I don't care. It's is a name for the soft, not for a product. The weather in Berling quite shitty.
