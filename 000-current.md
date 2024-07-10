@@ -156,3 +156,4 @@ I selected new name for the project, I will be called flexographer. It is a litt
 
 # 10 Juli - Mittwoch - Berlin - 657 Tag der Einwanderung - Warm Rainy
 
+The office day was nice and rainy a litte bit.
