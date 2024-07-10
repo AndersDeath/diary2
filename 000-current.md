@@ -156,4 +156,4 @@ I selected new name for the project, I will be called flexographer. It is a litt
 
 # 10 Juli - Mittwoch - Berlin - 657 Tag der Einwanderung - Warm Rainy
 
-The office day was nice and rainy a litte bit. In the evening I was on Toastmasters meeting and It was absolutely disaster. First of all I was aextremely tiered and the place where we were was extremely heat.
+The office day was nice and rainy a litte bit. In the evening I was on Toastmasters meeting and It was absolutely disaster. First of all I was aextremely tiered and the place where we were was extremely heat. I could not brethe almost.
