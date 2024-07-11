@@ -158,4 +158,4 @@ I selected new name for the project, I will be called flexographer. It is a litt
 
 The office day was nice and rainy a litte bit. In the evening I was on Toastmasters meeting and It was absolutely disaster. First of all I was aextremely tiered and the place where we were was extremely heat. I could not brethe almost. Crazy. Because of it I left the meeting in the middle of it and the heavy rain cought me. I was so bad that I had to move my passport to the pants pocket because my backpack literally was watered. It was crazy.
 
-# 11 Juli - Dienstag - Berlin - 657 Tag der Einwanderung - Warm Rainy
+# 11 Juli - Dienstag - Berlin - 658 Tag der Einwanderung - Warm Rainy
