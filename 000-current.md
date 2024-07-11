@@ -160,4 +160,4 @@ The office day was nice and rainy a litte bit. In the evening I was on Toastmast
 
 # 11 Juli - Donnerstag - Berlin - 658 Tag der Einwanderung - Warm Rainy
 
-I was at home toaday. I like such days. Office is a good thing is some respect but destroying.
+I was at home toaday. I like such days. Office is a good thing is some respect but destroying. Every time I struggle because of something there.
