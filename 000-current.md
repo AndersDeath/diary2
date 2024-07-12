@@ -164,4 +164,4 @@ I was at home toaday. I like such days. Office is a good thing is some respect b
 
 # 12 Juli - Freitag - Berlin - 659 Tag der Einwanderung - Warm Rainy
 
-Today we were in the cinema and whatched a movide in english. I don't remember a name of it but it was a light film about Chennig tatum and how he was participating in Apllo program. It was really fun. But the funniest thing that made day was a karaoke box with 4 girls inside that were signing Руки Вверх band song.
+Today we were in the cinema and whatched a movide in english. I don't remember a name of it but it was a light film about Chennig tatum and how he was participating in Apllo program. It was really fun. But the funniest thing that made day was a karaoke box with 4 girls inside that were signing Руки Вверх band song. Karaoke box is a cabin, that looks like street toulet or photo box where you can close youself, pay some money and sing a song.
