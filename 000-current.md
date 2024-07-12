@@ -163,3 +163,5 @@ The office day was nice and rainy a litte bit. In the evening I was on Toastmast
 I was at home toaday. I like such days. Office is a good thing is some respect but destroying. Every time I struggle because of something there. However I had a nice day at home and did nothing. I like such days so much. Some cool things were delivered at home and it was also cool.
 
 # 12 Juli - Freitag - Berlin - 659 Tag der Einwanderung - Warm Rainy
+
+Today we were in the cinema and whatched a movide in english.
