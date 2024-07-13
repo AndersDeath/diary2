@@ -168,5 +168,5 @@ Today we were in the cinema and whatched a movide in english. I don't remember a
 
 # 13 Juli - Samstag - Berlin - 660 Tag der Einwanderung - Warm Sunny
 
-One of the main principles for me on this stage of my life is to have a good rest. Today I did nothing.
+One of the main principles for me on this stage of my life is to have a good rest. Today I did nothing. It was really good. I can highly recommend it to others.
 
