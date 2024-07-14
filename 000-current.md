@@ -172,4 +172,4 @@ One of the main principles for me on this stage of my life is to have a good res
 
 # 14 Juli - Sonnstag - Berlin - 661 Tag der Einwanderung - Warm Sunny
 
-We finally were in Botanic garden.
+We finally were in Botanic garden. It is nice place but it's not so atmospheric I would say.
