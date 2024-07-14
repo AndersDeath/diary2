@@ -172,4 +172,4 @@ One of the main principles for me on this stage of my life is to have a good res
 
 # 14 Juli - Sonnstag - Berlin - 661 Tag der Einwanderung - Warm Sunny
 
-We finally were in Botanic garden. It is nice place but it's not so atmospheric I would say. If you ask me to rate all botanic gardens I were inside I would place Yerevan's one to the first place, Saint-Petersburg's one to the second, and the Berlin's Botanic garthe I place to third. It was nice but not so phantastic or atmospheric. Yea. 
+We finally were in Botanic garden. It is nice place but it's not so atmospheric I would say. If you ask me to rate all botanic gardens I were inside I would place Yerevan's one to the first place, Saint-Petersburg's one to the second, and the Berlin's Botanic garthe I place to third. It was nice but not so phantastic or atmospheric. Yea. But I am really glad to visit it finally.
