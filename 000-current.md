@@ -176,4 +176,4 @@ We finally were in Botanic garden. It is nice place but it's not so atmospheric 
 
 # 15 Juli - Montag - Berlin - 662 Tag der Einwanderung - Warm Sunny
 
-One of the most important things in my life is to have a schedule. I don't put everything to this but I really thing it's crusial to have some big parts planned. I decided that tuesdays and wednesdays will be my office ones. I can change it only occasionally. Also I decide to stop using todoist. Yes, it's a cool piece of software but I don't use the full potentional of it.
+One of the most important things in my life is to have a schedule. I don't put everything to this but I really thing it's crusial to have some big parts planned. I decided that tuesdays and wednesdays will be my office ones. I can change it only occasionally. Also I decide to stop using todoist. Yes, it's a cool piece of software but I don't use the full potentional of it. Payebal services are not for me.
