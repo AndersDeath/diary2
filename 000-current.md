@@ -180,4 +180,4 @@ One of the most important things in my life is to have a schedule. I don't put e
 
 # 16 Juli - Diestag - Berlin - 663 Tag der Einwanderung - Warm Sunny
 
-
+Office day was nice but annoying.
