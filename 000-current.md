@@ -184,3 +184,5 @@ Office day was nice but annoying. I didn't sleep well and it made me soft and st
 
 # 17 Juli - Mittwoch - Berlin - 664 Tag der Einwanderung - Warm Sunny
 
+I was so tiered that just skip another Toastmasters meeting.
+
