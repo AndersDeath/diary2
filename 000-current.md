@@ -186,3 +186,4 @@ Office day was nice but annoying. I didn't sleep well and it made me soft and st
 
 I was so tiered that just skip another Toastmasters meeting. It was bad but I could not. My office problem is still with me, I cannot focus there and cannot find power for concentration. The road is not destroying me anymore like it was in Saint-Petersburg, but the weather and my condition in general just remove all power from me. However who did say that I would be easy? I resolved all main immigrational problem but I still in some aftershock after all bullshit that happened to me. The life is not fair. It's just true.
 
+# 18 Juli - Mittwoch - Berlin - 665 Tag der Einwanderung - Warm Sunny
