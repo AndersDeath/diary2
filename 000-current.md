@@ -188,4 +188,4 @@ I was so tiered that just skip another Toastmasters meeting. It was bad but I co
 
 # 18 Juli - Donnerstag - Berlin - 665 Tag der Einwanderung - Warm Sunny
 
-My stepfather had a birthday today. Sometimes when I think about his and my mother's lifes I feel regret. They are so smart people but live in very bad conditions and don't have mental power for changing it. It's really sad.
+My stepfather had a birthday today. Sometimes when I think about his and my mother's lifes I feel regret. They are so smart people but live in very bad conditions and don't have mental power for changing it. It's really sad. I wish them all the best but It's still very very sad.
