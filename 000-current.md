@@ -188,4 +188,4 @@ I was so tiered that just skip another Toastmasters meeting. It was bad but I co
 
 # 18 Juli - Donnerstag - Berlin - 665 Tag der Einwanderung - Warm Sunny
 
-My stepfather had a birthday today.
+My stepfather had a birthday today. Sometimes when I think about his and my mother's lifes I feel regret.
