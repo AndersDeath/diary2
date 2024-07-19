@@ -192,4 +192,4 @@ My stepfather had a birthday today. Sometimes when I think about his and my moth
 
 # 19 Juli - Freitag - Berlin - 666 Tag der Einwanderung - Hot Sunny
 
-I felt so tiered today that it is even hard to describe. I don't remember when I was so tired last time. I was working for a whole day on different interesting and not things and did my job. The temperature outside is really hot. It't not so easy to be concentrated on job due to it. However we did a small present to ourselfs this evening.
+I felt so tiered today that it is even hard to describe. I don't remember when I was so tired last time. I was working for a whole day on different interesting and not things and did my job. The temperature outside is really hot. It't not so easy to be concentrated on job due to it. However we did a small present to ourselfs this evening. We were in Thai massage salon.
