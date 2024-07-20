@@ -196,4 +196,4 @@ I felt so tiered today that it is even hard to describe. I don't remember when I
 
 # 20 Juli - Sontag - Berlin - 667 Tag der Einwanderung - Hot Sunny
 
-This saturday was absolutely cool as for me. Firstly I was in barbershop and now I look good.
+This saturday was absolutely cool as for me. Firstly I was in barbershop and now I look good. Secondly we were in Stadtbad Lichtenberg that is a historical city swimming pool that was opened in 1911 and closed in 1991 approximetely.
