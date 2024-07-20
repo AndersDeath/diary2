@@ -196,4 +196,4 @@ I felt so tiered today that it is even hard to describe. I don't remember when I
 
 # 20 Juli - Sontag - Berlin - 667 Tag der Einwanderung - Hot Sunny
 
-This saturday was absolutely cool as from me.
+This saturday was absolutely cool as for me.
