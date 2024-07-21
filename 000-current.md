@@ -200,4 +200,4 @@ This saturday was absolutely cool as for me. Firstly I was in barbershop and now
 
 # 21 Juli - Sontag - Berlin - 668 Tag der Einwanderung - Hot Sunny
 
-The weater was extremely hot today. It was 32 degrees but with high humidity that chnaged everything and made life harder. However the day was nice.
+The weater was extremely hot today. It was 32 degrees but with high humidity that chnaged everything and made life harder. However the day was nice. We did't walk a lot today and mostly were at home.
