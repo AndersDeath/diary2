@@ -84,4 +84,4 @@ The weater was extremely hot today. It was 32 degrees but with high humidity tha
 
 # 22 Juli - Mondag - Berlin - 669 Tag der Einwanderung - Warm Rainy
 
-Thist day was nice but and I did really a lot of things.
+Thist day was nice but and I did really a lot of things. It's not so often thing last times but today I did something extraordinary.
