@@ -92,4 +92,4 @@ I decided to apply a new approach for my deals. Now I write down everything I di
 
 # 24 Juli - Mittwoch - Berlin - 671 Tag der Einwanderung - Warm Sunny
 
-Today I was in the office again. The pride month has been started in Germany and 
+Today I was in the office again. The pride month has been started in Germany and one of our colleges organized a 
