@@ -86,6 +86,8 @@ The weater was extremely hot today. It was 32 degrees but with high humidity tha
 
 Thist day was nice but and I did really a lot of things. It's not so often thing last times but today I did something extraordinary. First of all I tasted my work finally. I had a good rest at night and it helped me to be ready for work. I did a lot of notes in my files, improved a lot of thigs, etc. Also I finally recieved my packages from temu with things that I wanted to obtain for some time. It's a case for documents and powerbank. My phone is not so good anymore and battery is quite tiered. If I go out for some walk and take photos the energy is going out very fast. So yes, now I am really better prepared for such situation. It's less than a month to my Armenia trip. I am going to close some bank accounts there and finally finish teeth treatment. I hope everything will be fine in this terms. So yes, the day productive and quite well done. I am glad about myself.
 
-# 23 Juli - Mondag - Berlin - 670 Tag der Einwanderung - Warm Rainy
+# 23 Juli - Dienstag - Berlin - 670 Tag der Einwanderung - Warm Rainy
 
 I decided to apply a new approach for my deals. Now I write down everything I did during my days on my job in order ro remember what I was finished and what actually was going on. It helps me very much with selfcontrol. Besides that I was in the office today and the day was hard. I had tons of call about everything and was really tiered. I am actually still tiered. It is really hard people. I expected that it will be hard and it is.
+
+# 24 Juli - Mondag - Berlin - 670 Tag der Einwanderung - Warm Sunny
