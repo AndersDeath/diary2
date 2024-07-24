@@ -91,3 +91,5 @@ Thist day was nice but and I did really a lot of things. It's not so often thing
 I decided to apply a new approach for my deals. Now I write down everything I did during my days on my job in order ro remember what I was finished and what actually was going on. It helps me very much with selfcontrol. Besides that I was in the office today and the day was hard. I had tons of call about everything and was really tiered. I am actually still tiered. It is really hard people. I expected that it will be hard and it is.
 
 # 24 Juli - Mittwoch - Berlin - 671 Tag der Einwanderung - Warm Sunny
+
+Today I was in the office again.
