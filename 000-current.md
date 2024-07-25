@@ -96,4 +96,4 @@ Today I was in the office again. The pride month has been started in Germany and
 
 # 25 Juli - Donnerstag - Berlin - 672 Tag der Einwanderung - Warm Sunny
 
-I like to work from home.
+I like to work from home. I hate office. 
