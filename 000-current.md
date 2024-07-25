@@ -93,3 +93,5 @@ I decided to apply a new approach for my deals. Now I write down everything I di
 # 24 Juli - Mittwoch - Berlin - 671 Tag der Einwanderung - Warm Sunny
 
 Today I was in the office again. The pride month has been started in Germany and one of our colleges organized showing a show about drag queens. It was fun but a little bit too much. The thing is that I don't like it aesthetically. I grew up in different cultural and like more classic forms. I don't have anything against lgbrq+ people but I really love something different. It is what it is. However it was fun. In the evening I faced a weired situation with toastmasters. I came to a place that I thought to be a location for a meeting but I confuces addresses. The actual meeting was in a different location but the place has the same name. I was really angry because of sitation because I am so tired now and I gathered myself somehow to visit the place and so fucked up. It was sad.
+
+# 25 Juli - Donnerstag - Berlin - 672 Tag der Einwanderung - Warm Sunny
