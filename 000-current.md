@@ -98,4 +98,4 @@ Today I was in the office again. The pride month has been started in Germany and
 
 I like to work from home. I hate office. The reason why people should be there sometimes is absolutely clear to me and I support it but I am fucking hate being in the office. I did a lot of things today. First of all I finilized step of speach preparation. It's really good. I need to find time for it but in general all is good with it. I need to adjust my schedule and reshape it to something really workable. Right now I fuck up every day with something unfortunately. It happend with both personal and work related tasks. I am very unstable in this sence.
 
-# 26 Juli - Freitag - Berlin - 673 Tag der Einwanderung - Warm Sunny
+# 26 Juli - Freitag - Berlin - 673 Tag der Einwanderung - Warm Rainy
