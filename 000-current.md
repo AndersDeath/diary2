@@ -100,4 +100,4 @@ I like to work from home. I hate office. The reason why people should be there s
 
 # 26 Juli - Freitag - Berlin - 673 Tag der Einwanderung - Warm Rainy
 
-If you are a normal person you like friday like I do. So, I overslept today. It happens very rarely with me and I was surprised.
+If you are a normal person you like friday like I do. So, I overslept today. It happens very rarely with me and I was surprised. I just didn't head my alarm.
