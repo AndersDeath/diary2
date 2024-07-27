@@ -104,4 +104,4 @@ If you are a normal person you like friday like I do. So, I overslept today. It 
 
 # 27 Juli - Samstag - Berlin - 674 Tag der Einwanderung - Warm Rainy
 
-Berlin's summer is really rainy I must say. It's not what I excpected. however we were walking today a lot.
+Berlin's summer is really rainy I must say. It's not what I excpected. however we were walking today a lot. Firsly we spent the morning in some pleasant routine and then ejoyed a pizza in a local cafe.
