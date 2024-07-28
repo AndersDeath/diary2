@@ -108,4 +108,4 @@ Berlin's summer is really rainy I must say. It's not what I excpected. however w
 
 # 28 Juli - Sontag - Berlin - 675 Tag der Einwanderung - Warm Rainy
 
-The rain is still here. It's amazing. Well. this day was dedicated to cleaning of the apartments.
+The rain is still here. It's amazing. Well. this day was dedicated to cleaning of the apartments. We are going to Yerevan in two weeks and it would be cool to keep the home clean.
