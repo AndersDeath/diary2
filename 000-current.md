@@ -108,4 +108,4 @@ Berlin's summer is really rainy I must say. It's not what I excpected. however w
 
 # 28 Juli - Sontag - Berlin - 675 Tag der Einwanderung - Warm Rainy
 
-The rain is still here.
+The rain is still here. It's amazing.
