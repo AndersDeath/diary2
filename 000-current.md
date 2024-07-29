@@ -112,4 +112,4 @@ The rain is still here. It's amazing. Well. this day was dedicated to cleaning o
 
 # 29 Juli - Montag - Berlin - 676 Tag der Einwanderung - Warm Sunny
 
-
+Unfortunatrly, my german teacher is not able to do leesson today.
