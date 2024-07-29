@@ -112,4 +112,4 @@ The rain is still here. It's amazing. Well. this day was dedicated to cleaning o
 
 # 29 Juli - Montag - Berlin - 676 Tag der Einwanderung - Warm Sunny
 
-Unfortunatrly, my german teacher was not able to do leesson today. He could not because the internet connection in his Bremen's apartments was bad and he asked to cancel lessons for the next two weeks.
+Unfortunatrly, my german teacher was not able to do leesson today. He could not because the internet connection in his Bremen's apartments was bad and he asked to cancel lessons for the next two weeks. It's sad and I don't like it.
