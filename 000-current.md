@@ -116,4 +116,4 @@ Unfortunatrly, my german teacher was not able to do leesson today. He could not 
 
 # 30 Juli - Dienstag - Berlin - 678 Tag der Einwanderung - Warm Sunny
 
-I finally sent an email to XU CEO.
+I finally sent an email to XU CEO. It includes some critics of their HR department work.
