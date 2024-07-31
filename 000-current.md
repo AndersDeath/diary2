@@ -120,4 +120,4 @@ I finally sent an email to XU CEO. It includes some critics of their HR departme
 
 # 31 Juli - Mittwoch - Berlin - 678 Tag der Einwanderung - Warm Sunny
 
-Today I finally visited toastmasters meeting. It was really nice and cool. I had fun that was really important. After returning from Yerevan I am going to visit meetups again. I want to schedule at least two ones every month. I need to comunicate to people. It will be fun and really valuable.
+Today I finally visited toastmasters meeting. It was really nice and cool. I had fun that was really important. After returning from Yerevan I am going to visit meetups again. I want to schedule at least two ones every month. I need to comunicate to people. It will be fun and really valuable. However I need to mention bad stuff happened to me today.
