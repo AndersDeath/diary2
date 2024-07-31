@@ -114,6 +114,8 @@ The rain is still here. It's amazing. Well. this day was dedicated to cleaning o
 
 Unfortunatrly, my german teacher was not able to do leesson today. He could not because the internet connection in his Bremen's apartments was bad and he asked to cancel lessons for the next two weeks. It's sad and I don't like it, but I have to deal with it somehow. In general the day was nice, I was at home today and I really like it. I am going to the office only on Thirsday and Friday. I decided to do it because I want to count that days to August statistics due to my trip to Yerevan.
 
-# 30 Juli - Dienstag - Berlin - 678 Tag der Einwanderung - Warm Sunny
+# 30 Juli - Dienstag - Berlin - 677 Tag der Einwanderung - Warm Sunny
 
 I finally sent an email to XU CEO. It includes some critics of their HR department work. It's really low chance to be read but I did it and I am proud of myself. For the last two months I feel so bad in terms of my self-confidence. It's really strage thing. It's so bad that I decided to gradually go out of this shit. In other case I will not be able to live normally unfortunately. I set so many interesting and cool goals that I need to achieve somehow. I need to be consistent.
+
+# 31 Juli - Dienstag - Berlin - 678 Tag der Einwanderung - Warm Sunny
