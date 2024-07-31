@@ -118,4 +118,4 @@ Unfortunatrly, my german teacher was not able to do leesson today. He could not 
 
 I finally sent an email to XU CEO. It includes some critics of their HR department work. It's really low chance to be read but I did it and I am proud of myself. For the last two months I feel so bad in terms of my self-confidence. It's really strage thing. It's so bad that I decided to gradually go out of this shit. In other case I will not be able to live normally unfortunately. I set so many interesting and cool goals that I need to achieve somehow. I need to be consistent.
 
-# 31 Juli - Dienstag - Berlin - 678 Tag der Einwanderung - Warm Sunny
+# 31 Juli - Mittwoch - Berlin - 678 Tag der Einwanderung - Warm Sunny
