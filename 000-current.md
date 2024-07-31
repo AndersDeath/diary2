@@ -120,4 +120,4 @@ I finally sent an email to XU CEO. It includes some critics of their HR departme
 
 # 31 Juli - Mittwoch - Berlin - 678 Tag der Einwanderung - Warm Sunny
 
-Today I finally moved to 
+Today I finally visited toastmasters meeting.
