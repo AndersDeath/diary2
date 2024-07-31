@@ -120,4 +120,4 @@ I finally sent an email to XU CEO. It includes some critics of their HR departme
 
 # 31 Juli - Mittwoch - Berlin - 678 Tag der Einwanderung - Warm Sunny
 
-Today I finally visited toastmasters meeting. It was really nice and cool. I
+Today I finally visited toastmasters meeting. It was really nice and cool. I had fun that was really important.
