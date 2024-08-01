@@ -124,4 +124,4 @@ Today I finally visited toastmasters meeting. It was really nice and cool. I had
 
 # 01 August - Donnerstag - Berlin - 679 Tag der Einwanderung - Warm Sunny
 
-The day was nice despite that I had to spend time in office. I don't like it, you know. Since I was there for a whole nothing really important happened. However in the evening me and Ksusha were in Templhof where I finally stand on my skateboard.
+The day was nice despite that I had to spend time in office. I don't like it, you know. Since I was there for a whole nothing really important happened. However in the evening me and Ksusha were in Templhof where I finally stand on my skateboard. I enjoyed it very much.
