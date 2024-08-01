@@ -123,3 +123,5 @@ I finally sent an email to XU CEO. It includes some critics of their HR departme
 Today I finally visited toastmasters meeting. It was really nice and cool. I had fun that was really important. After returning from Yerevan I am going to visit meetups again. I want to schedule at least two ones every month. I need to comunicate to people. It will be fun and really valuable. However I need to mention bad stuff happened to me today. The main and only thing is that I feel toothache. It's very annoying. A peace of my tooth broked and my denta is in pain. It's really bad and only thing that makes me calm is a soon visit to Armenia. My doctor is there. He will remove all that shit and fix it.
 
 # 01 August - Donnerstag - Berlin - 679 Tag der Einwanderung - Warm Sunny
+
+The day was nice despite that I had to spend time in office,
