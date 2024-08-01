@@ -128,4 +128,4 @@ The day was nice despite that I had to spend time in office. I don't like it, yo
 
 # 02 August - Freitag - Berlin - 680 Tag der Einwanderung - Warm Sunny
 
-Another office day was today. I am so tiered. I think that our HR's department has some unique tendency to hire young russian speaking women.
+Another office day was today. I am so tiered. I think that our HR's department has some unique tendency to hire young russian speaking women. It's so strange.
