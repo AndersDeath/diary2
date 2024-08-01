@@ -126,4 +126,6 @@ Today I finally visited toastmasters meeting. It was really nice and cool. I had
 
 The day was nice despite that I had to spend time in office. I don't like it, you know. Since I was there for a whole nothing really important happened. However in the evening me and Ksusha were in Templhof where I finally stand on my skateboard. I enjoyed it very much. Of course due to my flyight to Armenia I cannot repeat it again until I come back. I will not have time for it. Additionally I started recording of my pppodcasts. It's one of the first steps towards returning of my self-confidence that I lose due to huge stress. It's nice.
 
-# -3 August - Freitag - Berlin - 680 Tag der Einwanderung - Warm Sunny
+# 02 August - Freitag - Berlin - 680 Tag der Einwanderung - Warm Sunny
+
+
