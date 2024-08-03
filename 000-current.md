@@ -132,4 +132,4 @@ Another office day was today. I am so tiered. I think that our HR's department h
 
 # 03 August - Samstag - Berlin - 681 Tag der Einwanderung - Warm Sunny
 
-I like saturdays. I like them especially when my tierdness starting destroyin me. Today was exact that case
+I like saturdays. I like them especially when my tierdness starting destroyin me. Today was exact that case. We cleaned the apartment in the first part of the day. that was nice.
