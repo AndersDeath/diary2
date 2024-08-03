@@ -131,3 +131,5 @@ The day was nice despite that I had to spend time in office. I don't like it, yo
 Another office day was today. I am so tiered. I think that our HR's department has some unique tendency to hire young russian speaking women. It's so strange. After office I met Ksusha on ex-Mercedes platz that is Uber platz now. We were in a cinema and whatched "Trap" movie. It was a thriller about maniac that was trapped on a music concert. The movie was naive a little bit but well shaped. I enjoyed. I needed to what something light and enjoying. Also during of writing this lines I realized that forgot to turn 2nd of August back on this machine. It happened because I tested something today that was related to wrong date. I tested a specific case when a client and a server have diffrent dates and times.
 
 # 03 August - Samstag - Berlin - 681 Tag der Einwanderung - Warm Sunny
+
+I like saturdays
