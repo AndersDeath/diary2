@@ -136,3 +136,4 @@ I like saturdays. I like them especially when my tierdness starting destroyin me
 
 # 04 August - Sontag - Berlin - 682 Tag der Einwanderung - Warm Sunny
 
+It was the last sunday in this berlins summer.
