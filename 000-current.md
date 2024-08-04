@@ -136,4 +136,4 @@ I like saturdays. I like them especially when my tierdness starting destroyin me
 
 # 04 August - Sontag - Berlin - 682 Tag der Einwanderung - Warm Sunny
 
-It was the last sunday in this berlins summer. I will meet autumn in Yerevan. We were in chinese restaraunt today that offer bowls with soup that can assemble by your own. The problem was that they prohibited sharing of that dish between several persons. I hate this
+It was the last sunday in this berlins summer. I will meet autumn in Yerevan. We were in chinese restaraunt today that offer bowls with soup that can assemble by your own. The problem was that they prohibited sharing of that dish between several persons. I hate this. I cannot understand what is wrong with that peoples.
