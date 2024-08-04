@@ -133,3 +133,6 @@ Another office day was today. I am so tiered. I think that our HR's department h
 # 03 August - Samstag - Berlin - 681 Tag der Einwanderung - Warm Sunny
 
 I like saturdays. I like them especially when my tierdness starting destroyin me. Today was exact that case. We cleaned the apartment in the first part of the day. that was nice. I hate to do it but I had to because we are going to armenia in the end of the next week.  After that we were in the future museum where founders of that place tried to convince me that I need to save planet. I am not against it but I don't believe in everything that then push to me. This is true. After that we were at home and just enjoyed saturday.
+
+# 04 August - Sontag - Berlin - 682 Tag der Einwanderung - Warm Sunny
+
