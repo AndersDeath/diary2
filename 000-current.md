@@ -140,4 +140,4 @@ It was the last sunday in this berlins summer. I will meet autumn in Yerevan. We
 
 # 05 August - Montag - Berlin - 683 Tag der Einwanderung - Warm Sunny
 
-The heavy week has been started today. I need to be in the office daily because I am flying to Armenia very soon. I am not so exited about it because I don't like office work. I still believe that it's ok to go there only when it's important and a team has some mandatory meeting. It's complitely other thing. However I need to be strict with it due to my obligations. It's also very important for me.
+The heavy week has been started today. I need to be in the office daily because I am flying to Armenia very soon. I am not so exited about it because I don't like office work. I still believe that it's ok to go there only when it's important and a team has some mandatory meeting. It's complitely other thing. However I need to be strict with it due to my obligations. It's also very important for me. Besides that nothing really important happened today.
