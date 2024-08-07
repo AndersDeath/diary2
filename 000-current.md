@@ -145,3 +145,7 @@ The heavy week has been started today. I need to be in the office daily because 
 # 06 August - Dienstag - Berlin - 684 Tag der Einwanderung - Warm Sunny
 
 I am in the office again. I did a lot of important things but I was so tiered when come back home that I didn't do anything else. Also I had a german lesson today and I had to be in call office box. It was not so convinient and stupid in some respect. The only good thing is that the weather is great and it's cool to be outside.
+
+# 07 August - Mittwoch - Berlin - 685 Tag der Einwanderung - Warm Sunny
+
+
