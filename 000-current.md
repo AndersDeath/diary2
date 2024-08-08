@@ -152,4 +152,4 @@ I supposed to be on Mercury meeting today but I skipped it due to tierness. The 
 
 # 08 August - Dienstag - Berlin - 685 Tag der Einwanderung - Warm Sunny
 
-Today I was in office again and it's not a surprice for you. I finilazed all things that should be done. It's good.
+Today I was in office again and it's not a surprice for you. I finilazed all things that should be done. It's good. Also I had a german lesson that went not so smoothly because of my tiereness.
