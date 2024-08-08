@@ -150,4 +150,4 @@ I am in the office again. I did a lot of important things but I was so tiered wh
 
 I supposed to be on Mercury meeting today but I skipped it due to tierness. The weather is fine, but I am not fine =) Three days in the office are too much for me. I also need to be there two days more. Also I filally got that we are flying to Milan in friday afternoon, not evening like I thought. It was stupid =). So, I prepared a list of things that I need to take with me to Yerevan. I am ready morally and physically.
 
-# 08 August - Mittwoch - Berlin - 685 Tag der Einwanderung - Warm Sunny
+# 08 August - Dienstag - Berlin - 685 Tag der Einwanderung - Warm Sunny
