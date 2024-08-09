@@ -150,6 +150,8 @@ I am in the office again. I did a lot of important things but I was so tiered wh
 
 I supposed to be on Mercury meeting today but I skipped it due to tierness. The weather is fine, but I am not fine =) Three days in the office are too much for me. I also need to be there two days more. Also I filally got that we are flying to Milan in friday afternoon, not evening like I thought. It was stupid =). So, I prepared a list of things that I need to take with me to Yerevan. I am ready morally and physically.
 
-# 08 August - Dienstag - Berlin - 685 Tag der Einwanderung - Warm Sunny
+# 08 August - Dienstag - Berlin - 686 Tag der Einwanderung - Warm Sunny
 
 Today I was in office again and it's not a surprice for you. I finilazed all things that should be done. It's good. Also I had a german lesson that went not so smoothly because of my tiereness. I need to focus on language more beacuse It looks like I waste my time instead of doing good progress. I will focus on it more in Armenia. I give you my word.
+
+# 09 August - Dienstag - Berlin - Milan - 687 Tag der Einwanderung - Warm Sunny
