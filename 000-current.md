@@ -156,4 +156,4 @@ Today I was in office again and it's not a surprice for you. I finilazed all thi
 
 # 09 August - Dienstag - Berlin - Milan - 687 Tag der Einwanderung - Heat Sunny
 
-So, we arrived to Milan smoothly. It was really easy because it's just 1.5 hour flight. It was really fast. We even didn't select seats because it was paible option but the flyight was really fast. I sat in the beginning of aircraft, Ksusha at the end. However everything went smoothly. Milan was also ok,  from place to place was really fast and convinient.
+So, we arrived to Milan smoothly. It was really easy because it's just 1.5 hour flight. It was really fast. We even didn't select seats because it was paible option but the flyight was really fast. I sat in the beginning of aircraft, Ksusha at the end. However everything went smoothly. Milan was also ok,  from place to place was really fast and convinient. I am fine with that.
