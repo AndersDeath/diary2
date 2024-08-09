@@ -154,4 +154,4 @@ I supposed to be on Mercury meeting today but I skipped it due to tierness. The 
 
 Today I was in office again and it's not a surprice for you. I finilazed all things that should be done. It's good. Also I had a german lesson that went not so smoothly because of my tiereness. I need to focus on language more beacuse It looks like I waste my time instead of doing good progress. I will focus on it more in Armenia. I give you my word.
 
-# 09 August - Dienstag - Berlin - Milan - 687 Tag der Einwanderung - Warm Sunny
+# 09 August - Dienstag - Berlin - Milan - 687 Tag der Einwanderung - Heat Sunny
