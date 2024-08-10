@@ -160,4 +160,4 @@ So, we arrived to Milan smoothly. It was really easy because it's just 1.5 hour 
 
 # 10 August - Dienstag - Milan - Yerevan - 688 Tag der Einwanderung - Heat Sunny
 
-Something was wrong to my stomach and I had heavy diarea for a whole night. Lucklty my condition became better in the mornig and we could go for a walk.
+Something was wrong to my stomach and I had heavy diarea for a whole night. Lucklty my condition became better in the mornig and we could go for a walk. We actually visited several places of interest like Duomo, Castle, Building with hanging gardens and so.
