@@ -164,4 +164,4 @@ Something was wrong to my stomach and I had heavy diarea for a whole night. Luck
 
 # 11 August - Sonntag - Yerevan - 689 Tag der Einwanderung - Heat Sunny
 
-So, yerevan is absolutely the same like it was a year ago.
+So, yerevan is almost the same like it was a year ago. 
