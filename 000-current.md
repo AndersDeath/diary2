@@ -164,4 +164,4 @@ Something was wrong to my stomach and I had heavy diarea for a whole night. Luck
 
 # 11 August - Sonntag - Yerevan - 689 Tag der Einwanderung - Heat Sunny
 
-So, yerevan is almost the same like it was a year ago. In general nothing changes, people are friendly and everything goes well. We didn't do a lot of thing today because of hard flight,
+So, yerevan is almost the same like it was a year ago. In general nothing changes, people are friendly and everything goes well. We didn't do a lot of thing today because of hard flight, but we walked a little bit for sure.
