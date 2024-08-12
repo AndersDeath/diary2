@@ -167,3 +167,5 @@ Something was wrong to my stomach and I had heavy diarea for a whole night. Luck
 So, yerevan is almost the same like it was a year ago. In general nothing changes, people are friendly and everything goes well. We didn't do a lot of thing today because of hard flight, but we walked a little bit for sure. I am happy to come back to Armenia. In general I don't have a lot of things to add because nothing happened.
 
 # 12 August - Montag - Yerevan - 690 Tag der Einwanderung - Heat Sunny
+
+The weather is crazy,
