@@ -168,4 +168,4 @@ So, yerevan is almost the same like it was a year ago. In general nothing change
 
 # 12 August - Montag - Yerevan - 690 Tag der Einwanderung - Heat Sunny
 
-The weather is crazy, it's really very very hot on outside. I was working in the first part of the day. My goal was to finish a lot of things that I did actually.
+The weather is crazy, it's really very very hot on outside. I was working in the first part of the day. My goal was to finish a lot of things that I did actually. I'm good with it.
