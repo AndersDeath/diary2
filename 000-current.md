@@ -172,4 +172,4 @@ The weather is crazy, it's really very very hot on outside. I was working in the
 
 # 13 August - Dienstag - Yerevan - 691 Tag der Einwanderung - Heat Sunny
 
-The working day was absilutely usual and so. The coolest thing that I bought a extremely cheap shitty cup of coffee in the supermarket that I really like.
+The working day was absilutely usual and so. The coolest thing that I bought a extremely cheap shitty cup of coffee in the supermarket that I really like. Sometimes thing that are cheap and bad can be really tastefull and enjoyable.
