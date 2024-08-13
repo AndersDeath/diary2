@@ -171,3 +171,5 @@ So, yerevan is almost the same like it was a year ago. In general nothing change
 The weather is crazy, it's really very very hot on outside. I was working in the first part of the day. My goal was to finish a lot of things that I did actually. I'm good with it. In the evening I was in the doctors office and she checked what is going on with me. Mariam did CT and it showed that I have to remove one of my teeth. It is impossible to save unfortunately. So, in the end of the treatment I will have to wait a little bit again. Luckily I have the next appointment for tomorrow.
 
 # 13 August - Dienstag - Yerevan - 691 Tag der Einwanderung - Heat Sunny
+
+The working day was absilutely usual and so.
