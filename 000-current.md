@@ -176,4 +176,4 @@ The working day was absilutely usual and so. The coolest thing that I bought a e
 
 # 14 August - Mittwoch - Yerevan - 692 Tag der Einwanderung - Heat Sunny
 
-We were walking in the city center today and it was extremely nice and fine. I liked it very much. It's so cool when people around speak you mothertoung. It relief stres and improve the mood in general. I can definetely say that Armenia is some kind of rehub after Berlin.
+We were walking in the city center today and it was extremely nice and fine. I liked it very much. It's so cool when people around speak you mothertoung. It relief stres and improve the mood in general. I can definetely say that Armenia is some kind of rehub after Berlin. It's realy cool.
