@@ -180,4 +180,4 @@ We were walking in the city center today and it was extremely nice and fine. I l
 
 # 15 August - Donnerstag - Yerevan - 693 Tag der Einwanderung - Heat Sunny
 
-My days are filled by job.
+My days are filled by job. I really wanted to get it but it's not what I really wanted.
