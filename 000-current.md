@@ -178,4 +178,4 @@ The working day was absilutely usual and so. The coolest thing that I bought a e
 
 We were walking in the city center today and it was extremely nice and fine. I liked it very much. It's so cool when people around speak you mothertoung. It relief stres and improve the mood in general. I can definetely say that Armenia is some kind of rehub after Berlin. It's realy cool. The only problem that I have to work and live in diferrent time zones that is a little bit annoying. I start work too late and stops too late as well. It's unfixable issue. I need to change location for getting rid of the problem. So, I need to cincider this as no a problem. This is only way.
 
-# 15 August - Donnerstag - Yerevan - 692 Tag der Einwanderung - Heat Sunny
+# 15 August - Donnerstag - Yerevan - 693 Tag der Einwanderung - Heat Sunny
