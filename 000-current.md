@@ -183,3 +183,5 @@ We were walking in the city center today and it was extremely nice and fine. I l
 My days are filled by job. I really wanted to get it but it's not what I really wanted. I think that in my case it's impossible to obtain something that I would like. Anyway I am tiered and need some rest. Because of this we walked today a little bit. The bad thing is that I feel a little bit under the weather. My tooth pains very very much. I am so happy that surgeon will remove it tomorrow.
 
 # 16 August - Freitag - Yerevan - 694 Tag der Einwanderung - Heat Sunny
+
+So, I have at one tooth less than before.
