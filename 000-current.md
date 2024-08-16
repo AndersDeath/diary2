@@ -184,4 +184,4 @@ My days are filled by job. I really wanted to get it but it's not what I really 
 
 # 16 August - Freitag - Yerevan - 694 Tag der Einwanderung - Heat Sunny
 
-So, I have at one tooth less than before. It is sad but the cool part that the doctor set prostetic up and in 3-6 month I can set some artificial tooth. It will be nice. Also I had to move my barber to another week due to absence of time.
+So, I have at one tooth less than before. It is sad but the cool part that the doctor set prostetic up and in 3-6 month I can set some artificial tooth. It will be nice. Also I had to move my barber to another week due to his vacation.
