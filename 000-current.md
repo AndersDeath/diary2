@@ -188,4 +188,4 @@ So, I have at one tooth less than before. It is sad but the cool part that the d
 
 # 17 August - Samstag - Yerevan - 695 Tag der Einwanderung - Heat Sunny
 
-I don't feel good today but went for a walk with Ksusha.
+I don't feel good today but went for a walk with Ksusha. We planned to visit cinema, so I could not cancell this.
