@@ -187,3 +187,5 @@ My days are filled by job. I really wanted to get it but it's not what I really 
 So, I have at one tooth less than before. It is sad but the cool part that the doctor set prostetic up and in 3-6 month I can set some artificial tooth. It will be nice. Also I had to move my barber to another week due to his vacation. I will go to him in one week.
 
 # 17 August - Samstag - Yerevan - 695 Tag der Einwanderung - Heat Sunny
+
+I don't feel good today but went for a walk with Ksusha.
