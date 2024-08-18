@@ -191,3 +191,5 @@ So, I have at one tooth less than before. It is sad but the cool part that the d
 I don't feel good today but went for a walk with Ksusha. We planned to visit cinema, so I could not cancell this. Even more we were in Hard rock cafee. In general the day was nice. I alsways try to fulfill Ksushas expectations even if I am not ok. I think it is something really natual for every person that is in relations with someone.
 
 # 18 August - Sonntag - Yerevan - 696 Tag der Einwanderung - Heat Sunny
+
+We were walking for a whole day in Yerevan.
