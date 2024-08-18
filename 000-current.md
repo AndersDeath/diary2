@@ -192,4 +192,4 @@ I don't feel good today but went for a walk with Ksusha. We planned to visit cin
 
 # 18 August - Sonntag - Yerevan - 696 Tag der Einwanderung - Heat Sunny
 
-We were walking for a whole day in Yerevan.
+We were walking for a whole day in Yerevan. We were on Kaskad, on main streets like Pushin or Tumanyan.
