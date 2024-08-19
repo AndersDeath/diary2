@@ -195,3 +195,5 @@ I don't feel good today but went for a walk with Ksusha. We planned to visit cin
 We were walking for a whole day in Yerevan. We were on Kaskad, on main streets like Pushin or Tumanyan. In the evening we tried to visit Children's railroad and found it broken. A tree fell down and blocked railway. IF nobody removes it the children's railroaw will be another abadoned place in Yerevan. Will see but I don't expect something good.
 
 # 19 August - Montag - Yerevan - 697 Tag der Einwanderung - Heat Sunny
+
+Today's morning I was in Inecobank office and closed my entrepreneurship accounts.
