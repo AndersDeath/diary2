@@ -200,4 +200,4 @@ Today's morning I was in Inecobank office and closed my entrepreneurship account
 
 # 20 August - Dienstag - Yerevan - 698 Tag der Einwanderung - Heat Sunny
 
-My doctor started preparations of my teeth today.
+My doctor started preparations of my teeth today. He did something with them and then set a plastic temporary teeth for protection of my own.
