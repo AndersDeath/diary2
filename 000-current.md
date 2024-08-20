@@ -197,3 +197,5 @@ We were walking for a whole day in Yerevan. We were on Kaskad, on main streets l
 # 19 August - Montag - Yerevan - 697 Tag der Einwanderung - Heat Sunny
 
 Today's morning I was in Inecobank office and closed my entrepreneurship accounts. As you know I freezed my licence and don't want to keep it in the future. Since I immigrated to Germany I don't need it anymore. So, I closed it and it looks fine. I also reissued brocked euro card that stopped working some time ago. It's also very good. In the evening we stayed at home. I feel good today as well.
+
+# 20 August - Montag - Yerevan - 697 Tag der Einwanderung - Heat Sunny
