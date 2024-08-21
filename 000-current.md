@@ -204,3 +204,4 @@ My doctor started preparations of my teeth today. He did something with them and
 
 # 21 August - Mitwoch - Yerevan - 699 Tag der Einwanderung - Heat Sunny
 
+days go and go.
