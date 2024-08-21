@@ -204,4 +204,4 @@ My doctor started preparations of my teeth today. He did something with them and
 
 # 21 August - Mitwoch - Yerevan - 699 Tag der Einwanderung - Heat Sunny
 
-days go and go. I feel not good still.
+days go and go. I feel not good still. And it's not about physical feeling but more about moral onec.
