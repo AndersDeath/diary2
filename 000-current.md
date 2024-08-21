@@ -202,4 +202,4 @@ Today's morning I was in Inecobank office and closed my entrepreneurship account
 
 My doctor started preparations of my teeth today. He did something with them and then set a plastic temporary teeth for protection of my own. After preparations teeth beceme smaller and thinner. As a result evey food, drinks, or even air flow make me pain. It's strage. 
 
-# 21 August - Dienstag - Yerevan - 698 Tag der Einwanderung - Heat Sunny
+# 21 August - Dienstag - Yerevan - 699 Tag der Einwanderung - Heat Sunny
