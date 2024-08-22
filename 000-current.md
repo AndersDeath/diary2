@@ -207,3 +207,5 @@ My doctor started preparations of my teeth today. He did something with them and
 days go and go. I feel not good still. And it's not about physical feeling but more about moral onec. I am really close to depression. I think that I did a lot of important deals this year and just burned out completely. It's hard to admit but it is true. Also Ksusha is flying to Russia soon and I will be alone in Yerevan. I hope to handle it.
 
 # 22 August - Dienstag - Yerevan - 700 Tag der Einwanderung - Heat Sunny
+
+The main story for today and Ineco bank fucked me.
