@@ -208,4 +208,4 @@ days go and go. I feel not good still. And it's not about physical feeling but m
 
 # 22 August - Dienstag - Yerevan - 700 Tag der Einwanderung - Heat Sunny
 
-The main story for today and Ineco bank fucked me.
+The main story for today and Ineco bank fucked me. They told that I can keep my personal accounts after closing business onec but it was lie. I was almost mad to them. 
