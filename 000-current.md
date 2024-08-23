@@ -174,7 +174,7 @@ The weather is crazy, it's really very very hot on outside. I was working in the
 
 The working day was absilutely usual and so. The coolest thing that I bought a extremely cheap shitty cup of coffee in the supermarket that I really like. Sometimes thing that are cheap and bad can be really tastefull and enjoyable. I talked to the doctor and we planned some things to the next week. Before that I have to remove my tooth that is not ok. I will do in on Friday. Surgeon will do it. I hope everything will be fine with me.
 
-Today was our wedding anniversery.
+Today was our wedding anniversery. We spent really nice time in a restaraint that was extremely nice and cool. I as happy to be there.
 
 # 14 August - Mittwoch - Yerevan - 692 Tag der Einwanderung - Heat Sunny
 
