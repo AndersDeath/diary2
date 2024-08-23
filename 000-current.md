@@ -212,4 +212,4 @@ The main story for today and Ineco bank fucked me. They told that I can keep my 
 
 # 23 August - Freitag - Yerevan - 701 Tag der Einwanderung - Heat Sunny
 
-Ksusha is in Russia and I am alone here. Additionally, my brother had a birthday yesterday.
+Ksusha is in Russia and I am alone here. Additionally, my brother had a birthday yesterday. Additonally I added seomthing to August 13 that I forgot to write that day.
