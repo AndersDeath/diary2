@@ -217,3 +217,5 @@ The main story for today and Ineco bank fucked me. They told that I can keep my 
 Ksusha is in Russia and I am alone here. Additionally, my brother had a birthday yesterday. Additonally I added seomthing to August 13 that I forgot to write that day.  I had to had a surgery today but it was moved due to absence of electricity in clinic. It was crazy situation I hated it. The operation was moved to monday. I hope to handle it nice.
 
 # 24 August - Samstag - Yerevan - 702 Tag der Einwanderung - Heat Sunny
+
+The day was nice I didn't have appointments and such things. so, I justed walked around and had fun.
