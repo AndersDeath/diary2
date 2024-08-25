@@ -222,4 +222,4 @@ The day was nice I didn't have appointments and such things. so, I justed walked
 
 # 25 August - Sontag - Yerevan - 703 Tag der Einwanderung - Heat Sunny
 
-The same free day that I really wanted to have. I did nothing and just walked in Yerevan.
+The same free day that I really wanted to have. I did nothing and just walked in Yerevan. I visited almost all my favorite places that I missed.
