@@ -221,3 +221,5 @@ Ksusha is in Russia and I am alone here. Additionally, my brother had a birthday
 The day was nice I didn't have appointments and such things. so, I justed walked around and had fun. I started to think more and more about my mental conditions, basicall I need to change my approach to life. First of all I blocked and political channels that occupied my mind. People there don't do anything positive. They are absolutely incompetence dushbags that fighting to each other instead of helping people like me. I don't do politics and I want politicials doing they job well. But in fact they are just stupid morons.
 
 # 25 August - Sontag - Yerevan - 703 Tag der Einwanderung - Heat Sunny
+
+The same free day that I really wanted to have.
