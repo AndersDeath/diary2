@@ -225,3 +225,5 @@ The day was nice I didn't have appointments and such things. so, I justed walked
 The same free day that I really wanted to have. I did nothing and just walked in Yerevan. I visited almost all my favorite places that I missed. It was nice. Beside that I planned my future life a little bit and how I would change my mental approach to thing. Actually it was all my day. Also I had a nice videocall with Ksusha. I love her and miss very much.
 
 # 26 August - Montag - Yerevan - 704 Tag der Einwanderung - Heat Sunny
+
+The surgery was really hard.
