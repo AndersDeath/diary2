@@ -227,3 +227,5 @@ The same free day that I really wanted to have. I did nothing and just walked in
 # 26 August - Montag - Yerevan - 704 Tag der Einwanderung - Heat Sunny
 
 The surgery was really hard. Surgeon cut some pieces of my skin inside of my mouth and put them to another places. It was not so good and nice. It was hard. I don't feel good at all. In general I really don't know what to add. This is the main eveny in my life today.
+
+# 27 August - Montag - Yerevan - 704 Tag der Einwanderung - Heat Sunny
