@@ -230,4 +230,4 @@ The surgery was really hard. Surgeon cut some pieces of my skin inside of my mou
 
 # 27 August - Dienstag - Yerevan - 705 Tag der Einwanderung - Heat Sunny
 
-I don't feel well again.
+I don't feel well again. It works as a catalisator and maked me more depressive than usual.
