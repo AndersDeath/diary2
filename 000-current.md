@@ -232,4 +232,4 @@ The surgery was really hard. Surgeon cut some pieces of my skin inside of my mou
 
 I don't feel well again. It works as a catalisator and maked me more depressive than usual. First of all it is hard to sleep with that pain. The refrigirator in the studio we rentes is so loud that I hade to use ear plugs for decresing the noise, it doesn't help so much but somehow. Also I read cool book that helps me to mitigate my depression. I try really hard to get rid of my problems.
 
-# 28 August - Dienstag - Yerevan - 705 Tag der Einwanderung - Heat Sunny
+# 28 August - Mittwoch - Yerevan - 706 Tag der Einwanderung - Heat Sunny
