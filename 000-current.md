@@ -234,4 +234,4 @@ I don't feel well again. It works as a catalisator and maked me more depressive 
 
 # 28 August - Mittwoch - Yerevan - 706 Tag der Einwanderung - Heat Sunny
 
-I was in doctor's office in the morning he looked at sitiation and told me that I am recovering well. I want to believe in it. So, I do my best for being better.
+I was in doctor's office in the morning he looked at sitiation and told me that I am recovering well. I want to believe in it. So, I do my best for being better. Also I did a lot of important persinal things today.
