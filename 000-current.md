@@ -237,3 +237,5 @@ I don't feel well again. It works as a catalisator and maked me more depressive 
 I was in doctor's office in the morning he looked at sitiation and told me that I am recovering well. I want to believe in it. So, I do my best for being better. Also I did a lot of important persinal things today. I had to do it because my depression occupies me more and more. Besides that I was on monthly company update that our c level provides. The situation for the company is not good again. Also It's constant situation in the company in general and I was not surprised. I think that only companies from the US are good. EU is in the crisis. Sometimes I think that I selected wrong way. Will see.
 
 # 29 August - Dienstag - Yerevan - 707 Tag der Einwanderung - Heat Sunny
+
+I was in the office doctor again.
