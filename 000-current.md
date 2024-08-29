@@ -238,4 +238,4 @@ I was in doctor's office in the morning he looked at sitiation and told me that 
 
 # 29 August - Dienstag - Yerevan - 707 Tag der Einwanderung - Heat Sunny
 
-I was in the office doctor again.
+I was in the office doctor again. He did some procedures that were really important.
