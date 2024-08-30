@@ -241,3 +241,5 @@ I was in doctor's office in the morning he looked at sitiation and told me that 
 I was in the office doctor again. He did some procedures that were really important. Eveything goes well for now even that I am not so good in general. I am in the middle of the process but already totaly tiered. The only thing that supports me that it is a finish line for my teeth treatment. I dreamd about it and I am almost done even that it is hard.
 
 # 30 August - Freitag - Yerevan - 707 Tag der Einwanderung - Heat Sunny
+
+Where was I today? Sure! I 
