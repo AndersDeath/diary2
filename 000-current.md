@@ -242,4 +242,4 @@ I was in the office doctor again. He did some procedures that were really import
 
 # 30 August - Freitag - Yerevan - 707 Tag der Einwanderung - Heat Sunny
 
-Where was I today? Sure! I 
+Where was I today? Sure! I was in the doctro's office.
