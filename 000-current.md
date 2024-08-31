@@ -246,4 +246,4 @@ Where was I today? Sure! I was in the doctor's office. Surgery recovery goes pre
 
 # 31 August - Samstag - Yerevan - 709 Tag der Einwanderung - Heat Sunny
 
-After short visit of my doctor I just walked here and there.
+After short visit of my doctor I just walked here and there. It was tipical Saturday for me.
