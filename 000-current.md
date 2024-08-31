@@ -243,3 +243,5 @@ I was in the office doctor again. He did some procedures that were really import
 # 30 August - Freitag - Yerevan - 708 Tag der Einwanderung - Heat Sunny
 
 Where was I today? Sure! I was in the doctor's office. Surgery recovery goes pretty well and I am good. It makes me happy. In the evening I was talking to Ksusha. He is going back soon on the next week.  After doctor I had a german lesson that was also nice. I reached and crossed an important milestone. I moved to A2 level. Maybe I have chance to lear german pretty well and pass an exam that I need to. Will see.
+
+# 31 August - Samstag - Yerevan - 709 Tag der Einwanderung - Heat Sunny
