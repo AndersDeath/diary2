@@ -249,3 +249,5 @@ Where was I today? Sure! I was in the doctor's office. Surgery recovery goes pre
 After short visit of my doctor I just walked here and there. It was tipical Saturday for me. I really did nothing and was happy about it. I miss Ksusha very much and need her near me constantly. It's not only because she is my wife but also due to close connetion we have. also I did german homework today and several exersices related to my mental condition.
 
 # 01 September - Sonstag - Yerevan - 710 Tag der Einwanderung - Heat Sunny
+
+The weather is still crazy here.
