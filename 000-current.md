@@ -250,4 +250,4 @@ After short visit of my doctor I just walked here and there. It was tipical Satu
 
 # 01 September - Sonstag - Yerevan - 710 Tag der Einwanderung - Heat Sunny
 
-The weather is still crazy here. I cannot say that I don't like it. It is just cool. I walked today a lot, I was in central station and visited several other cool places. Surely I don't have enough energy to do everyhing but I do my best. So it was nice sunday.
+The weather is still crazy here. I cannot say that I don't like it. It is just cool. I walked today a lot, I was in central station and visited several other cool places. Surely I don't have enough energy to do everyhing but I do my best. So it was nice sunday. I cannot complain.
