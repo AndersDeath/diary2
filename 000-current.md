@@ -253,3 +253,5 @@ After short visit of my doctor I just walked here and there. It was tipical Satu
 The weather is still crazy here. I cannot say that I don't like it. It is just cool. I walked today a lot, I was in central station and visited several other cool places. Surely I don't have enough energy to do everyhing but I do my best. So it was nice sunday. I cannot complain. The inportant thing about my life that I don't have a lot of time here in Yerean and very soon flying back to Berlin. Actually it is going to happen in two weeks. My teeth preparation is not finished due to operation and surgeries. It's sad but I hope that doctor knows what he does.
 
 It was a mistake in my time settings and I recorded 01 of september to 31 of august. I am sorry it was really mistake. Sometimes I switch my time for testing purposes and I forgot to change it back.
+
+# 02 September - Montag - Yerevan - 711 Tag der Einwanderung - Heat Sunny
