@@ -255,3 +255,5 @@ The weather is still crazy here. I cannot say that I don't like it. It is just c
 It was a mistake in my time settings and I recorded 01 of september to 31 of august. I am sorry it was really mistake. Sometimes I switch my time for testing purposes and I forgot to change it back.
 
 # 02 September - Montag - Yerevan - 711 Tag der Einwanderung - Heat Sunny
+
+It was just filled with stuff and deals day.
