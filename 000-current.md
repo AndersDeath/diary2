@@ -256,4 +256,4 @@ It was a mistake in my time settings and I recorded 01 of september to 31 of aug
 
 # 02 September - Montag - Yerevan - 711 Tag der Einwanderung - Heat Sunny
 
-It was just filled with stuff and deals day. I was working on main tasks and almost didn't touch nothing else. I still have to manage my time very carefully. The problem is it's impossible to predict how much time doctor's appointment might take. But I try. Today I had a really nice german lesson. Ksusha is also going back to me very soon.
+It was just filled with stuff and deals day. I was working on main tasks and almost didn't touch nothing else. I still have to manage my time very carefully. The problem is it's impossible to predict how much time doctor's appointment might take. But I try. Today I had a really nice german lesson. Ksusha is also going back to me very soon. It's just a sad fact.
