@@ -259,3 +259,5 @@ It was a mistake in my time settings and I recorded 01 of september to 31 of aug
 It was just filled with stuff and deals day. I was working on main tasks and almost didn't touch nothing else. I still have to manage my time very carefully. The problem is it's impossible to predict how much time doctor's appointment might take. But I try. Today I had a really nice german lesson. Ksusha is also going back to me very soon. The sad fact is that I was in doctor's office today again and will be there tomorrow as well. Due to limited time I need to visit him almost daily now.
 
 # 03 September - Dienstag - Yerevan - 712 Tag der Einwanderung - Heat Sunny
+
+
