@@ -261,3 +261,5 @@ It was just filled with stuff and deals day. I was working on main tasks and alm
 # 03 September - Dienstag - Yerevan - 712 Tag der Einwanderung - Heat Sunny
 
 Ksusha errived from Russia today but I was in the doctor's office for 6 hours. It was really hard. He finished teeth preparations and I got 24 hour's dose of anestesia. It was really harsh my friend. One of shots touched my nerv and I some electrisity came through be. It was absoltely new experience. However I was really happy to see Ksusha and despite to my condition I spent nice time with her. So, in terms of my teeth I am on yhe final way.
+
+# 04 September - Dienstag - Yerevan - 712 Tag der Einwanderung - Heat Sunny
