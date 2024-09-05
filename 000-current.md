@@ -265,3 +265,5 @@ Ksusha errived from Russia today but I was in the doctor's office for 6 hours. I
 # 04 September - Mittwoch - Yerevan - 713 Tag der Einwanderung - Heat Sunny
 
 In the morning I visited my doctor and just after that had a long and hard working day. Today I was talking to everybody from my team. It's a 1-1 day and I needed to ask everything that happens to them. I did great job. In general I have nothing to add for today. Nothing happened.
+
+# 05 September - Donnerstag - Yerevan - 714 Tag der Einwanderung - Heat Sunny
