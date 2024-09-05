@@ -268,3 +268,4 @@ In the morning I visited my doctor and just after that had a long and hard worki
 
 # 05 September - Donnerstag - Yerevan - 714 Tag der Einwanderung - Heat Sunny
 
+To be honest I started missing Berlin.
