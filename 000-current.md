@@ -276,4 +276,4 @@ Today I was in doctor's office again because I needed to check how things are go
 
 # 07 September - Samstag - Yerevan - 716 Tag der Einwanderung - Heat Sunny
 
-We were walking for a whole day. This weekend is our final one here. The next Sunday morning we are flying to Milan. So, we tried to enjoy the day as much as we could. I think we were successful in this respect.
+We were walking for a whole day. This weekend is our final one here. The next Sunday morning we are flying to Milan. So, we tried to enjoy the day as much as we could. I think we were successful in this respect. We were walking in victory part then walked in Cascad.
