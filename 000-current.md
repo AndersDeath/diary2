@@ -274,4 +274,4 @@ To be honest I started missing Berlin. I need to admit that that place became ho
 
 Today I was in doctor's office again because I needed to check how things are going after one of operations I had. So, everything is going well. It is really good sighn. Also I've been waiting for an answer from another doctor because it is a time for checking if my teeth model is good and I everything will be fine with me. So, yea, I've been waiting. In the evening me and Ksusha were in the cinema. It was really nice end of the day. I liked it.
 
-# 07 September - Freitag - Yerevan - 715 Tag der Einwanderung - Heat Sunny
+# 07 September - Samstag - Yerevan - 716 Tag der Einwanderung - Heat Sunny
