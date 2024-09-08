@@ -280,4 +280,4 @@ We were walking for a whole day. This weekend is our final one here. The next Su
 
 # 08 September - Sonntag - Yerevan - 717 Tag der Einwanderung - Heat Sunny
 
-The weather became less stable. The temperature is still hot but it sarted raining. The short wet season is almost here. However even rainy Yerevan is beautiful. We were walking today in children's railroad are again. It was nice and fun. In general I have a list of places in Yerevan that I really enjoy to visit.
+The weather became less stable. The temperature is still hot but it sarted raining. The short wet season is almost here. However even rainy Yerevan is beautiful. We were walking today in children's railroad are again. It was nice and fun. In general I have a list of places in Yerevan that I really enjoy to visit. It partially equal to some ones on the internet but a little bit different.
