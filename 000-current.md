@@ -280,4 +280,4 @@ We were walking for a whole day. This weekend is our final one here. The next Su
 
 # 08 September - Sonntag - Yerevan - 717 Tag der Einwanderung - Heat Sunny
 
-The weather became less stable.
+The weather became less stable. The temperature is still hot but it sarted raining.
