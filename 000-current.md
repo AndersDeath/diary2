@@ -284,4 +284,4 @@ The weather became less stable. The temperature is still hot but it sarted raini
 
 # 09 September - Montag - Yerevan - 718 Tag der Einwanderung - Heat Sunny
 
-The final stage of my teeth treatment has been started.
+The final stage of my teeth treatment has been started. I spent a half of the day in doctor's cabinet.
