@@ -288,4 +288,4 @@ The final stage of my teeth treatment has been started. I spent a half of the da
 
 # 10 September - Diestag - Yerevan - 719 Tag der Einwanderung - Heat Sunny
 
-To be honest I was happy to spend this day just at home. Ksusha was in her doctor's office and I met her after that visit. We walked a little bit and came back to work. Everything was nice. I am a little bit nervouse about my teeth because it is less that a week before I need to come back home. I hope everything will be nice. Will see.
+To be honest I was happy to spend this day just at home. Ksusha was in her doctor's office and I met her after that visit. We walked a little bit and came back to work. Everything was nice. I am a little bit nervouse about my teeth because it is less that a week before I need to come back home. I hope everything will be nice. Will see. I am not sure for now.
