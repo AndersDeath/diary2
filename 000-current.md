@@ -287,3 +287,5 @@ The weather became less stable. The temperature is still hot but it sarted raini
 The final stage of my teeth treatment has been started. I spent a half of the day in doctor's cabinet. Today he checked if tempates of my future teeth are good. In general they are ok. I was really glad to see that. It was hard but ok. Everything was good in general. Besides that I worked and had the german lesson. In general I am really tiered to write something here today.
 
 # 10 September - Diestag - Yerevan - 719 Tag der Einwanderung - Heat Sunny
+
+To be honest I was happy to spend this day just at home.
