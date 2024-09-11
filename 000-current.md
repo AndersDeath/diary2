@@ -292,4 +292,4 @@ To be honest I was happy to spend this day just at home. Ksusha was in her docto
 
 # 11 September - Mitwoch - Yerevan - 720 Tag der Einwanderung - Heat Sunny
 
-The day was nice and nothing happened. it was good. I was working and did my things. Everythin was nice. In the evening we went to the city center and just walked.
+The day was nice and nothing happened. it was good. I was working and did my things. Everythin was nice. In the evening we went to the city center and just walked. I try to enjoy my last days in Yerevan.
