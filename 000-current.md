@@ -295,3 +295,5 @@ To be honest I was happy to spend this day just at home. Ksusha was in her docto
 The day was nice and nothing happened. it was good. I was working and did my things. Everythin was nice. In the evening we went to the city center and just walked. I try to enjoy my last days in Yerevan. I will visit it in six months again due to my last tooth that should be finished and also for having fun here. You probably noticed that I don't write anything about my other business, It's because I need to reload my life shortly but I will do it in Berlin when come back. I need to set goals and adjust life strategy. I will do it soon. When it's ready I will start writing my thought about it down.
 
 # 12 September - Donnerstag - Yerevan - 721 Tag der Einwanderung - Heat Sunny
+
+So, I finally got a message from my doctor. The final visit will be at Saturday just the day before my departure.
