@@ -296,4 +296,4 @@ The day was nice and nothing happened. it was good. I was working and did my thi
 
 # 12 September - Donnerstag - Yerevan - 721 Tag der Einwanderung - Heat Sunny
 
-So, I finally got a message from my doctor. The final visit will be at Saturday just the day before my departure. These news were hard to me because I would like to have at least one day additionally. Unfortunately i will not be a case. I hope everything will be nice.
+So, I finally got a message from my doctor. The final visit will be at Saturday just the day before my departure. These news were hard to me because I would like to have at least one day additionally. Unfortunately i will not be a case. I hope everything will be nice. Ksuhsa were in dentist's cabinet again and finished her treatment.
