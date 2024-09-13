@@ -300,4 +300,4 @@ So, I finally got a message from my doctor. The final visit will be at Saturday 
 
 # 13 September - Freitag - Yerevan - 722 Tag der Einwanderung - Heat Sunny
 
-
+I was working for a whole day with a strange feeling that I am about to leave this place again.
