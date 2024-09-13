@@ -297,3 +297,7 @@ The day was nice and nothing happened. it was good. I was working and did my thi
 # 12 September - Donnerstag - Yerevan - 721 Tag der Einwanderung - Heat Sunny
 
 So, I finally got a message from my doctor. The final visit will be at Saturday just the day before my departure. These news were hard to me because I would like to have at least one day additionally. Unfortunately i will not be a case. I hope everything will be nice. Ksuhsa were in dentist's cabinet again and finished her treatment. IT was also nice. In general this day was nice even that I got some scary news. Also I had a strange call with my CTO. He asked some strange questions but it seemed to me that he wanted to know me better.
+
+# 13 September - Freitag - Yerevan - 722 Tag der Einwanderung - Heat Sunny
+
+
