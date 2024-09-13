@@ -300,4 +300,4 @@ So, I finally got a message from my doctor. The final visit will be at Saturday 
 
 # 13 September - Freitag - Yerevan - 722 Tag der Einwanderung - Heat Sunny
 
-I was working for a whole day with a strange feeling that I am about to leave this place again. It's true that Yerevan became a very important place to me. I spent a lot of time here and it impacted me very much. However, this place is not good for future life.
+I was working for a whole day with a strange feeling that I am about to leave this place again. It's true that Yerevan became a very important place to me. I spent a lot of time here and it impacted me very much. However, this place is not good for future life. Tomorrow I will be in the doctor's cabinet for a whole day and then going to airport.
