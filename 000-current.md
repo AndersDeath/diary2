@@ -304,3 +304,5 @@ I was working for a whole day with a strange feeling that I am about to leave th
 
 # 14 September - Samstag - Yerevan - 723 Tag der Einwanderung - Heat Cloudy
 
+So, I am writing these lines sitting in the airpot Zvartnotz.
+
