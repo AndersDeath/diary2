@@ -304,4 +304,4 @@ I was working for a whole day with a strange feeling that I am about to leave th
 
 # 14 September - Samstag - Yerevan - 723 Tag der Einwanderung - Heat Cloudy
 
-So, I am writing these lines sitting in the airpot Zvartnotz. Next morning I will be in Milan already and next monday in Berlin. My teeth are in pain. The whole final operation was really exosting to me. I am so tiered of it. My doctor was also extremely tiered. He finished even after closing of the clinic. It was intence.
+So, I am writing these lines sitting in the airpot Zvartnotz. Next morning I will be in Milan already and next monday in Berlin. My teeth are in pain. The whole final operation was really exosting to me. I am so tiered of it. My doctor was also extremely tiered. He finished even after closing of the clinic. It was intence. Just after it I moved to apartments and packed all rest stuff.
