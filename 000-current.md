@@ -308,4 +308,4 @@ So, I am writing these lines sitting in the airpot Zvartnotz. Next morning I wil
 
 # 15 September - Sontag - Milan - 724 Tag der Einwanderung - Heat Cloudy
 
-This morning we arrived to Milan and moved to an apartments. Accedetally we rented the apartments without an internet connection that was not good but ok. The owner of the place was a very seniour person and he met us quite polite and well. In general we didn't have enough time for the investigation of the city today.
+This morning we arrived to Milan and moved to an apartments. Accedetally we rented the apartments without an internet connection that was not good but ok. The owner of the place was a very seniour person and he met us quite polite and well. In general we didn't have enough time for the investigation of the city today. It was because of that late flight.
