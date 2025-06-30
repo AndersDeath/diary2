@@ -320,4 +320,4 @@ This morning we arrived to Milan and moved to an apartments. Accedetally we rent
 
 # 30 Июня - Понедельник - Берлин - 1012 День эмиграции - Жарко
 
-
+Погода сегодня, конечно, очень жаркая снова.
