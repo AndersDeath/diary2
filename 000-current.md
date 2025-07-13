@@ -332,3 +332,4 @@ This morning we arrived to Milan and moved to an apartments. Accedetally we rent
 
 # 13 Июля - Воскресение - Берлин - 1025 День эмиграции - Дождливо
 
+Получился очередной пробел в ведении дневника. Это
