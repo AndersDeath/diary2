@@ -372,4 +372,4 @@ This morning we arrived to Milan and moved to an apartments. Accedetally we rent
 
 # 08 Апреля - Среда - Берлин - какой-то день иммиграции - Тепло
 
-
+На самом деле оказалось не так легко себя сподвигнуть на возобновление записей в этот дневник.
